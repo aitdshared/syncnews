@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [习近平坦承亲自隐瞒，自认是魔鬼？出动军队很诡异。武汉殡仪馆昼夜加班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cce2f8ff0949f70d9b6e76d8c426e5b0cc9f758.torrent)<br/>
 * [《石濤News》「最新即時：武漢肺炎傳播速度是非典SARS8倍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89769047b2e71917ae73795b81f0107854b61fa3.torrent)<br/>
 * [【环球直击】1月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f49bdcbaf518cea4f2f98f488214693be65ae1a.torrent)<br/>
 * [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)<br/>
