@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [《石濤聚焦》「軍報奇文生物戰：挑戰習總」此地無銀三百兩式設局承認：非典SARS2.0病原體源自“一帶一路”的典範「武漢P4病毒實驗室」（2901）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f947f8eb833ae0339aa23ff98592d502a6a138b1.torrent)<br/>
 * [韓國近日成立新黨議員在這個迷茫的時代望青年擔負起責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5155560b750bffd20fd5f5bea64a08c52d62f942.torrent)<br/>
 * [习近平坦承亲自隐瞒，自认是魔鬼？出动军队很诡异。武汉殡仪馆昼夜加班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cce2f8ff0949f70d9b6e76d8c426e5b0cc9f758.torrent)<br/>
 * [《石濤News》「最新即時：武漢肺炎傳播速度是非典SARS8倍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89769047b2e71917ae73795b81f0107854b61fa3.torrent)<br/>
