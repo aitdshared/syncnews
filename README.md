@@ -1,4 +1,6 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [疫情失控香港政府遲遲不宣布封關桑普中共有可能故意讓病毒在香港傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af0dd79e37dbca9157760857c9f997fc095c0f46.torrent)<br/>
+* [涉嫌隱瞞千人計劃哈佛化學系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0df1c0b6ebc9471dec42618ac2709d54febc79b2.torrent)<br/>
 * [日本撤僑班機抵達東京英國已暫停所有飛往中國的航班更多國家包機撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5d02bd63c8510dbca0ffed7e70f6298be2d7343.torrent)<br/>
 * [武漢每天死亡病例不低於200人武漢醫務人員哭訴：千萬不要相信政府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be60bf5fc4ef7dcbfdf01db31060b7e39a1a423e.torrent)<br/>
 * [《石濤聚焦》「軍報奇文生物戰：挑戰習總」此地無銀三百兩式設局承認：非典SARS2.0病原體源自“一帶一路”的典範「武漢P4病毒實驗室」（2901）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f947f8eb833ae0339aa23ff98592d502a6a138b1.torrent)<br/>
