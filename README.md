@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [多地出現被醫院確診後家被圍攻或全家被釘門里甚至整棟大樓被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ace98ca88ac4d022b21f9824b351b8f0e1d0a55a.torrent)<br/>
 * [【环球直击】1月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2e524caa88ab2679d91539ab5ee1a4937d64ff1.torrent)<br/>
 * [从海外寄到中國的防護用品被政府機構公開化搶劫！並以此賺錢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a94881b9e79a5eb46081fbf516e12f8f23aeeab7.torrent)<br/>
 * [《石濤聚焦》「習近平親領海陸空大戰非典2.0」重現［送瘟神］之偉大港媒：海量國內外援助物資金錢人員被習傯［黨領導一切］而截流為明日開啟習式戰瘟神之偉大壯舉而用（2910）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/354db8d789452a43f2cba567e827e42eccbb56c7.torrent)<br/>
