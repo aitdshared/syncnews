@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [武漢肺炎最新消息：中共拒絕美國疾控中心CDC援助控制新冠狀病毒背後不可告人的陰謀美國撤僑抵安大略機場微信謠言華人恐懼（江峰漫談20200129第106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb28e683a1ea94869558cb37d82c116e6518d664.torrent)<br/>
 * [武漢人，在自己的祖国流浪……武漢肺炎纪实之一：游走在生活边缘的武漢同胞（老北京茶馆第235集20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260084f236f2fb9ded06a10b4bb2fb5fb7a78612.torrent)<br/>
 * [《濤哥侃封神》「封神演義第二十一回文王夸官逃五關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1c0a99e307d8bf5fbc78e4dea544a9748f7152.torrent)<br/>
 * [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)<br/>
