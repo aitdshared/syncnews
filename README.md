@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [【环球直击】1月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f49bdcbaf518cea4f2f98f488214693be65ae1a.torrent)<br/>
 * [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)<br/>
 * [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)<br/>
 * [【全球新闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee359a33e4f4f3446663f204aaa20783c4c215f2.torrent)<br/>
