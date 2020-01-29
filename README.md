@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)<br/>
 * [【中国禁闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b48578d93e13ba6fccb13f99318395e0cbe030cb.torrent)<br/>
 * [《石濤聚焦》「習近平以世衛作背景高聲宣稱‘我統領防疫一切’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f35059d6e6e176ba9f4176c4cdc068497e2f9214.torrent)<br/>
 * [《石濤聚焦》「非典SARS2.0最新更新」感染者超6000亡132西藏出現全國淪陷美考慮停飛中國-完全切斷德國日本出現2代本土傳染加國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e54e2e8f6f09150b9981983fda0f14731886e20.torrent)<br/>
