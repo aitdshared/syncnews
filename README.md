@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [古巴南部海域發生77級強震.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2feae9617831a3383956a0125991bc9c9f432924.torrent)<br/>
 * [疫情失控香港政府遲遲不宣布封關桑普中共有可能故意讓病毒在香港傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af0dd79e37dbca9157760857c9f997fc095c0f46.torrent)<br/>
 * [涉嫌隱瞞千人計劃哈佛化學系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0df1c0b6ebc9471dec42618ac2709d54febc79b2.torrent)<br/>
 * [日本撤僑班機抵達東京英國已暫停所有飛往中國的航班更多國家包機撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5d02bd63c8510dbca0ffed7e70f6298be2d7343.torrent)<br/>
