@@ -1,4 +1,6 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)<br/>
+* [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)<br/>
 * [【全球新闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee359a33e4f4f3446663f204aaa20783c4c215f2.torrent)<br/>
 * [武漢肺炎最新消息：中共拒絕美國疾控中心CDC援助控制新冠狀病毒背後不可告人的陰謀美國撤僑抵安大略機場微信謠言華人恐懼（江峰漫談20200129第106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb28e683a1ea94869558cb37d82c116e6518d664.torrent)<br/>
 * [武漢人，在自己的祖国流浪……武漢肺炎纪实之一：游走在生活边缘的武漢同胞（老北京茶馆第235集20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260084f236f2fb9ded06a10b4bb2fb5fb7a78612.torrent)<br/>
