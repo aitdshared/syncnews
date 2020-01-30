@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [火神山醫院工地陳秋實與武漢當地人一起實訪武漢版“小湯山醫院”（“公民記者陳秋實武漢疫區採訪實錄”系列08）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bd0afa52fd52d5f3327bd3c2b98cd37378c6ec7.torrent)
+
 * [資源緊缺，疫情緊急陳秋實大年初六中午焦慮總結報導（“公民記者陳秋實武漢疫區採訪實錄”系列10）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33cd865a64fdcb4f0fe38cbaefa2e64bbc01393b.torrent)
 
 * [武汉第五医院大概是发烧和咳嗽多日一直排不到床位所以情绪崩溃了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f40e5b68060d136de84adc5f8a1e8c38e066aa2.torrent)
