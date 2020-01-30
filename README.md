@@ -3,6 +3,10 @@
 
 ## [安卓手机版BT下载工具BitTorrent下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
 
+* [世衛披露武漢現第四代病例傳染速率或超SARS可能進一步重組和突變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2774cd8ce65ff9d75c8d0c6481064a53b9b15e8.torrent)<br/>
+* [撤侨与断航,武汉封城还要多久到底死了多少人(政论天下第97集20200129)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1e445f25bfbd994fd78fa2a9dfc688f3a33236.torrent)<br/>
+* [中國大陸幾乎被冠狀病毒全面攻陷中共被指嚴重瞞報疫情武漢肺炎蔓延19國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6390d77ec93c358f9714aea6e670a1dda05f42c8.torrent)<br/>
+* [美撤僑200多人專機從武漢抵加州空軍基地更多國家撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16b6f94a47d9c69e3a66c290c21671412a7d63f0.torrent)<br/>
 * [美聯航取消往來美中之間的航班紐約肯尼迪機場直擊華人返美.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/122c1309dc6bea4f4f5a08cdb5805bcf87cebbda.torrent)<br/>
 * [加拿大移民爆料：武漢母親高燒十多天得不到救治家中很快會斷糧政府之責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3609fcd13d496426791c1cb000b56f8413571b6.torrent)<br/>
 * [中共拒美国专家驰援，多国启动“断飞封国”节奏！拖延加强了一大胆猜测（20200129第691期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/998a9bcce903eeab9db84c0cd82fd68166831bec.torrent)<br/>
