@@ -1,4 +1,9 @@
-# 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+# 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具，不要用迅雷。<br/>
+## [Windows版BT下载工具qBitorrent下载](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
+
+## [安卓手机版BT下载工具BitTorrent下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
+
+* [美聯航取消往來美中之間的航班紐約肯尼迪機場直擊華人返美.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/122c1309dc6bea4f4f5a08cdb5805bcf87cebbda.torrent)<br/>
 * [加拿大移民爆料：武漢母親高燒十多天得不到救治家中很快會斷糧政府之責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3609fcd13d496426791c1cb000b56f8413571b6.torrent)<br/>
 * [中共拒美国专家驰援，多国启动“断飞封国”节奏！拖延加强了一大胆猜测（20200129第691期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/998a9bcce903eeab9db84c0cd82fd68166831bec.torrent)<br/>
 * [武漢日均200人亡，多人倒地，殯儀館很忙，北京3次拒絕美國援助，38國撤僑，武漢人呼「救命」！關於武漢肺炎的幾個必知，下一步該怎麼辦？【新聞看點】（20200129）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8077d12e1faff2bde4c5a816d105d1c033160a41.torrent)<br/>
