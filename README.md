@@ -8,6 +8,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [【中国禁闻】1月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0d3dd66fe2f0f5ada847443704336f0fd420ea1.torrent)
+
 * [《石濤聚焦》「最新即時：感染者近8000亡170」傳播速度遠超過當年非典全球口罩短缺400港人排隊碰運氣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6a4273c1c3a9d53ec5a2157801a1b1c90928ec8.torrent)
 
 * [【禁闻】1月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acc3250cd5e769ac999f1319e5cd7af25ef0987.torrent)
