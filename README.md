@@ -1,12 +1,14 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具，不要用迅雷。
 
-## [Windows版BT下载工具qBitorrent下载](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
+## [Windows版BT下载工具qBitorrent点我下载（推荐）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
 
 下载解压后双击执行qBittorrentPortable.exe，如出现防火墙弹窗则允许，点击下面新闻标题下载.torrent文件，拖入qBitorrent窗口即可下载，下载完双击标题观看。
 
-## [安卓手机版BT下载工具BitTorrent下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
+## [安卓手机版BT下载工具BitTorrent点我下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
 
-下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent打开，下载完点击标题观看。
+下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
+
+* [【禁闻】医院拒绝收治武汉患者网上求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf5fb77c64d456ad30544b42533c695f10ff3bcd.torrent)
 
 * [應對大國競爭落實國防戰略與中俄競爭五角大樓要求改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de247d5436357c902b9aee20649bf2499e692777.torrent)
 
