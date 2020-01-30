@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [疫情難控，國際插手，中共高官不戴口罩有秘密！刷屏三件事「細思極恐」，爆料郵箱：xwkd2017@gmail.com【新聞看點】（20200130）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ab765d3f2daca3884758f7dbe91711664962eb5.torrent)
+
 * [武汉肺炎疫情：压在疫区的三座大山王剑每日财经观察20200130.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/292845efbbbede65b5d16909be54f4138dceb273.torrent)
 
 * [《石濤聚焦》「突發：WHO終於確認武漢肺炎-非典2.0」為［國際關注公共衞生緊急事件］習傯好友總幹事「不是對中共國不信任」含義包括：發生嚴重突然不尋常意外等事件超出國界立即採取國際行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a147489379ceb11db51a2758711071d319e6d66.torrent)
