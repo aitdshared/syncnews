@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [王沪宁急了，大胆篡改习近平原话！国难当头，国人继续愚昧？上海主任医生一炮而红.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6af4e35683145c8fc1e433a89212b820ebde85b2.torrent)
+
 * [【解讀】武漢肺炎致死率有多高？火葬場為何晝夜燒不停？病毒來源藏詭異？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ff51d45a9e5e7f2d0819cec82435f856589e6d0.torrent)
 
 * [武漢肺炎疫情真实数字流出？真相与谎言之间，只差了一个脚趾头的距离！（老北京茶馆第236集20200130）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96fe2d09beeab13e18f540fef77948e01009fa9b.torrent)
