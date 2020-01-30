@@ -8,6 +8,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [【全球新闻】1月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea43aaad720d048254157a5814068adf80e45f53.torrent)
+
 * [韩国情况急迫，两病例接触几百人，首尔防疫圈或被击破，在韩朋友要小心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63b9b5dd4d2e256db3e45fe0629585809a09e657.torrent)
 
 * [美國撤僑航班降落軍用機場，美中處理疫情：公民與草民之別；美國頂級化學家涉千人計劃被控（江峰漫談20200130第107期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34795120365ebf3912c8ba6ce75ca397bba969b5.torrent)
