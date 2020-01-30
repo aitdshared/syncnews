@@ -12,6 +12,10 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [川普成立疾病控制與預防中心CDC：撤僑專機無高風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452fc41ed86be27934accd124ae273d3dd4a52d4.torrent)
+
+* [英國批准華為參與5G蓬佩奧赴倫敦勸阻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17c0043407c1b2df439d83f8e77b48ed849772c3.torrent)
+
 * [菲律賓等國新增確診病例多國撤僑多個航空公司宣佈暫停往返中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/807caeead1a0491f72b78491df2cb11a2032ff0b.torrent)
 
 * [《石濤.News》「突發：WHO再次替‘習勢-共黨’出頭」拒絕宣佈肺炎非典2.0為［危害］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d36141e31d7cc4fbe23dddedeec5e6afb97d2f07.torrent)
