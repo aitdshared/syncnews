@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [《石濤聚焦》「突發：WHO終於確認武漢肺炎-非典2.0」為［國際關注公共衞生緊急事件］習傯好友總幹事「不是對中共國不信任」含義包括：發生嚴重突然不尋常意外等事件超出國界立即採取國際行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a147489379ceb11db51a2758711071d319e6d66.torrent)
+
 * [火神山醫院工地陳秋實與武漢當地人一起實訪武漢版“小湯山醫院”（“公民記者陳秋實武漢疫區採訪實錄”系列08）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bd0afa52fd52d5f3327bd3c2b98cd37378c6ec7.torrent)
 
 * [資源緊缺，疫情緊急陳秋實大年初六中午焦慮總結報導（“公民記者陳秋實武漢疫區採訪實錄”系列10）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33cd865a64fdcb4f0fe38cbaefa2e64bbc01393b.torrent)
