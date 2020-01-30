@@ -12,6 +12,10 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [資源緊缺，疫情緊急陳秋實大年初六中午焦慮總結報導（“公民記者陳秋實武漢疫區採訪實錄”系列10）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33cd865a64fdcb4f0fe38cbaefa2e64bbc01393b.torrent)
+
+* [武汉第五医院大概是发烧和咳嗽多日一直排不到床位所以情绪崩溃了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f40e5b68060d136de84adc5f8a1e8c38e066aa2.torrent)
+
 * [大陸民間缺口罩智慧防疫自救頭上頂個大罐子柚子皮也派上用場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d91096d712b7926773d3d77a874eb517b4a3d16.torrent)
 
 * [【环球直击】1月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96ef6d9cd7860395ccf9dd4d73611471f5b0f73d.torrent)
