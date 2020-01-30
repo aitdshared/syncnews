@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [新闻茶座：武汉人湖北人这些日子都经历了什么王剑每日财经观察20200131.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da90fd5821218172cd883548c0fc36b9a2b12e0a.torrent)
+
 * [疫情難控，國際插手，中共高官不戴口罩有秘密！刷屏三件事「細思極恐」，爆料郵箱：xwkd2017@gmail.com【新聞看點】（20200130）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ab765d3f2daca3884758f7dbe91711664962eb5.torrent)
 
 * [武汉肺炎疫情：压在疫区的三座大山王剑每日财经观察20200130.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/292845efbbbede65b5d16909be54f4138dceb273.torrent)
