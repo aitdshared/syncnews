@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [哈佛教授：肺炎疫苗四个月出，药物半年；顶级生化武器专家认为中共没开发生物武器，原因出人意料；患者家门被封，功利主义社会酿人间惨剧。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfe0e20630b7206c4abc3eb50392fa3d42fd0262.torrent)
+
 * [日本從武漢撤回的僑民中有3人感染武漢肺炎其中2人無任何症狀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34f4f4b5023206606bd5c565c6c201b5cfda22e.torrent)
 
 * [川普成立疾病控制與預防中心CDC：撤僑專機無高風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452fc41ed86be27934accd124ae273d3dd4a52d4.torrent)
