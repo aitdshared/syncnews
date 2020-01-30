@@ -1,4 +1,5 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，请用 BitTorrent 或 µTorrent 等软件下载，不要用迅雷下载。<br/>
+* [武漢日均200人亡，多人倒地，殯儀館很忙，北京3次拒絕美國援助，38國撤僑，武漢人呼「救命」！關於武漢肺炎的幾個必知，下一步該怎麼辦？【新聞看點】（20200129）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8077d12e1faff2bde4c5a816d105d1c033160a41.torrent)<br/>
 * [【微视频】中共武汉围城民众如何自治自救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fb5622ec8111d66260e7ab62f169e2370e08641.torrent)<br/>
 * [多地出現被醫院確診後家被圍攻或全家被釘門里甚至整棟大樓被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ace98ca88ac4d022b21f9824b351b8f0e1d0a55a.torrent)<br/>
 * [【环球直击】1月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2e524caa88ab2679d91539ab5ee1a4937d64ff1.torrent)<br/>
