@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [【环球直击】1月31日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b98ec8df0e418a86dbc09cf7f8b66e9e4b740344.torrent)
+
 * [大陸被感染區不斷傳出令人心酸的一句話“又倒了一個”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba369c7ab3f924fd817f200f8c43d813490849ad.torrent)
 
 * [武汉肺炎最新疫情：先封口后封城，离开中国越来越难了王剑每日财经观察20200130.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/818cdda89d456089c8cd2905741735d60df68d0e.torrent)
