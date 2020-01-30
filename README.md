@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [大陸民間缺口罩智慧防疫自救頭上頂個大罐子柚子皮也派上用場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d91096d712b7926773d3d77a874eb517b4a3d16.torrent)
+
 * [【环球直击】1月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96ef6d9cd7860395ccf9dd4d73611471f5b0f73d.torrent)
 
 * [港人排隊瘋搶口罩市民專家批港府無能.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27eb6fd452836d08cb4dca92390fa17a3e663a0c.torrent)
