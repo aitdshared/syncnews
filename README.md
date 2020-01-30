@@ -3,6 +3,7 @@
 
 ## [安卓手机版BT下载工具BitTorrent下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
 
+* [【禁闻】1月29日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c979b05d61efae199a3a9ebe82a5585997c1660.torrent)<br/>
 * [世衛披露武漢現第四代病例傳染速率或超SARS可能進一步重組和突變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2774cd8ce65ff9d75c8d0c6481064a53b9b15e8.torrent)<br/>
 * [撤侨与断航,武汉封城还要多久到底死了多少人(政论天下第97集20200129)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1e445f25bfbd994fd78fa2a9dfc688f3a33236.torrent)<br/>
 * [中國大陸幾乎被冠狀病毒全面攻陷中共被指嚴重瞞報疫情武漢肺炎蔓延19國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6390d77ec93c358f9714aea6e670a1dda05f42c8.torrent)<br/>
