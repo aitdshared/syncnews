@@ -8,6 +8,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [【禁闻】武汉肺炎疫情严重英美航空停飞中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4189bfcb083b5858174f723c9eed09894917cc.torrent)
+
 * [【禁闻】医院拒绝收治武汉患者网上求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf5fb77c64d456ad30544b42533c695f10ff3bcd.torrent)
 
 * [應對大國競爭落實國防戰略與中俄競爭五角大樓要求改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de247d5436357c902b9aee20649bf2499e692777.torrent)
