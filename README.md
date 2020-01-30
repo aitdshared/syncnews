@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [《石濤.News》「突發：WHO再次替‘習勢-共黨’出頭」拒絕宣佈肺炎非典2.0為［危害］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d36141e31d7cc4fbe23dddedeec5e6afb97d2f07.torrent)
+
 * [王沪宁急了，大胆篡改习近平原话！国难当头，国人继续愚昧？上海主任医生一炮而红.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6af4e35683145c8fc1e433a89212b820ebde85b2.torrent)
 
 * [【解讀】武漢肺炎致死率有多高？火葬場為何晝夜燒不停？病毒來源藏詭異？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ff51d45a9e5e7f2d0819cec82435f856589e6d0.torrent)
