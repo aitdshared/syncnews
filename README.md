@@ -12,6 +12,10 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [民生緊張物資短缺武漢市民痛批紅十字會搶劫捐贈物資用來牟利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/439d5ff2cc994c47212c2163db2249ae17d813af.torrent)
+
+* [高官相繼染肺炎湖北官場搶打球蛋白自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69edd2c59cf09fbec962c701666e70901f106fdb.torrent)
+
 * [哈佛教授：肺炎疫苗四个月出，药物半年；顶级生化武器专家认为中共没开发生物武器，原因出人意料；患者家门被封，功利主义社会酿人间惨剧。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfe0e20630b7206c4abc3eb50392fa3d42fd0262.torrent)
 
 * [日本從武漢撤回的僑民中有3人感染武漢肺炎其中2人無任何症狀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34f4f4b5023206606bd5c565c6c201b5cfda22e.torrent)
