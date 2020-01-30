@@ -8,6 +8,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [《石濤聚焦》「最新即時：感染者近8000亡170」傳播速度遠超過當年非典全球口罩短缺400港人排隊碰運氣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6a4273c1c3a9d53ec5a2157801a1b1c90928ec8.torrent)
+
 * [【禁闻】1月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acc3250cd5e769ac999f1319e5cd7af25ef0987.torrent)
 
 * [【禁闻】武汉肺炎疫情严重英美航空停飞中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4189bfcb083b5858174f723c9eed09894917cc.torrent)
