@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [【解讀】中共隱瞞病毒人傳人權威證據曝光；世衛為何吹捧中共？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/790c397935c5cd782555df2e8b9304aaacfa4b19.torrent)
+
 * [世卫宣布全球卫生紧急状态！武汉肺炎疫情惊现次生灾害！持台湾护照被禁止回台湾！（老北京茶馆第237集20200131）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41df8840aa5a2253f1ded0361d1f61836138a1f8.torrent)
 
 * [【中国禁闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bf4fbf1f35e932beb2e802043c026ad3bdf0bd4.torrent)
