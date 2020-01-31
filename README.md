@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [中國疫情嚴峻防護物資奇缺武漢協和醫院醫療物資告急求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecfc654c1e5a0b3fe7f6161679e8b22b64d277a.torrent)
+
 * [英國正式脫歐11個月過渡期談判開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07853b5c547c6d79c9851cc1a0f3ba50a3846689.torrent)
 
 * [浸大高教呂秉權：中共重點不在防疫而是控制輿論擔憂港府遲遲不全面封關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd8ab835613c43a7c19563f0ab9bd5f809d0c698.torrent)
