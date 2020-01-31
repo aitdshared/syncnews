@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [習要部隊衝一線，粗暴隔離釀命案，病患躺地等死，殯葬車不夠用？女醫生夜診200人，武漢紅會收5億多捐款去哪了？報料郵箱：xwkd2017@gmail.com【新聞看點】（20200131）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/486b7f9496b246799690fb50f7fa915b9a2903d6.torrent)
+
 * [《石濤聚焦》「網友發現中共疫情公布計算規律」故今天數字難產至今.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452f60624d5a517e9471f40428acd56cd784446c.torrent)
 
 * [《石濤聚焦》「12月中旬已經人傳人」習近平-重要指示發表於1月20日［看齊意識核心意識］+［兩個維護］直接造成今天全球共享［武漢肺炎-非典2.0］的人類命運共同體偉大境界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41b14144abb47e63ae2dbafe418c9c36a2f2c49b.torrent)
