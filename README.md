@@ -12,6 +12,10 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [新型冠狀病毒全面攻陷中國大陸在全球持續蔓延到22國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7950f1a327c9c99bc6dbd57f53344a44c685844.torrent)
+
+* [蓬佩奧訪英談貿易華為問題亟待解決英脫歐後兩國貿易協議將成爲重點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5666b364632970ab321d17077b80a1e3b495992.torrent)
+
 * [美國五角大樓密切關注武漢疫情美中軍事交流全面停止.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/320d597129f140c90454a6cf417746429a7e1e66.torrent)
 
 * [首批撤僑被隔離有人披露撤離的經歷美國務院宣布2月3日將再次派飛機至武漢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04efd18d2b7b832f845dbe1669e001ad84217484.torrent)
