@@ -14,6 +14,12 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [韓醫師：預防病毒性肺炎關鍵在於清理肺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bdb126af41b2870e4e05bd300db1d45d6839269.torrent)
+
+* [應對武漢肺炎全台醫院防疫升級重啟疫病門診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22e73ae58dac2fddb89a22e8a5a897274880c319.torrent)
+
+* [紐約華人狂掃口罩寄回大陸快遞打包忙翻天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b6342c9071279af29d7f6e02bcecb83c8a38e4c.torrent)
+
 * [武汉人怒揭官宣造假，王沪宁封杀王岐山！世卫宣布紧急状态，世界为中共独裁付出代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c66660927db8e417b371587eeba1f9582235d711.torrent)
 
 * [【环球直击】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d24e045806a257da232e9e3346eda311fa3dd23e.torrent)
