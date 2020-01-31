@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [《石濤.News》「最新即時：62國限制中國人進出境」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dc0f29e1726919da0222e9cbf4b85dff3999cc.torrent)
+
 * [中共下令要「打贏防疫戰」各地防疫手段極端引人道危機已演變成一場政治運動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f90122eb20a1bf04fefe9d1d75c6754638b36c.torrent)
 
 * [中國疫情嚴峻防護物資奇缺武漢協和醫院醫療物資告急求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecfc654c1e5a0b3fe7f6161679e8b22b64d277a.torrent)
