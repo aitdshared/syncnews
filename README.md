@@ -12,6 +12,12 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [【禁闻】中国制无人机有后门美日考虑禁用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6eab71d3ecefb1013534cf07cf4072a2f32e5dbd.torrent)
+
+* [【禁闻】武汉肺炎疫情升温全球大撤侨断航中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b174c6197f9ea3b9a88ce613f75158c04a0d709b.torrent)
+
+* [知情人講述：湖北腦癱兒家人被隔離孤獨一人受凍挨餓6天后去世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1f633a661742b26d910cdfd2f6654f9c0f00b74.torrent)
+
 * [武汉肺炎，世界卫生组织宣布全球紧急事件；武警部队染病毒;大瘟疫下的良知拷问;社会大动荡下,如何获得心灵的抚慰和安宁(政论天下第98集20200130)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc1f3e032dc43cc5f42ef9f38c5b9fd50570f5b.torrent)
 
 * [【环球直击】1月31日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b98ec8df0e418a86dbc09cf7f8b66e9e4b740344.torrent)
