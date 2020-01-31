@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [《石濤聚焦》「網友發現中共疫情公布計算規律」故今天數字難產至今.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452f60624d5a517e9471f40428acd56cd784446c.torrent)
+
 * [《石濤聚焦》「12月中旬已經人傳人」習近平-重要指示發表於1月20日［看齊意識核心意識］+［兩個維護］直接造成今天全球共享［武漢肺炎-非典2.0］的人類命運共同體偉大境界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41b14144abb47e63ae2dbafe418c9c36a2f2c49b.torrent)
 
 * [《石濤聚焦》「紐時：習近平顧盼自雄的獨裁者」疫情蔓延全球為其買單「實現了“中國夢”全球遵從其“重要指示”完成了“一帶一路”目標」中共唯一神話般震撼世界的“聖人”（3101）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/467f8b98f5b4062015769dbf73aeecee146840ae.torrent)
