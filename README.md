@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [武汉肺炎二次爆发迫在眉睫美国将中国旅游警示提至最高级多国彻底断航(政论天下第99集20200131)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/471a7cd8429161800a88113b620e67ccc0f81a94.torrent)
+
 * [接近真相了，武汉肺炎的感染规模有多大？重要的参照和我们从历史学到的唯一教训（20200131第692期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bdc121647512be415c70cc9705801be7eeae7bb.torrent)
 
 * [網爆：重慶疫情特別嚇人很多都被醫院隱瞞感染者的肺都變白了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf2376e496a40f29e4176fc5209943109a0d5214.torrent)
