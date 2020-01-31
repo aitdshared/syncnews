@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [世衛組織宣布武漢肺炎突發公共衛生事件，對中國衝擊有多大？軍隊進城後面的權鬥陰影；多國停飛航線；香港遲到的封關，台灣拒絕口罩的道德綁架（江峰漫談20200131第108期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daff43f67548d96e573cc73b5e2392dafdf84a34.torrent)
+
 * [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50414472dee552a1243ab6222afbe6af2e707d3d.torrent)
 
 * [【禁闻】1月30日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fa9010556924a9c20cbb2f1beee70b41002afdb.torrent)
