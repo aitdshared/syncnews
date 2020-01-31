@@ -14,6 +14,14 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [英國正式脫歐11個月過渡期談判開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07853b5c547c6d79c9851cc1a0f3ba50a3846689.torrent)
+
+* [浸大高教呂秉權：中共重點不在防疫而是控制輿論擔憂港府遲遲不全面封關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd8ab835613c43a7c19563f0ab9bd5f809d0c698.torrent)
+
+* [武漢肺炎國際傳播英國意大利首次出現確診病例各國撤僑航班停飛中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/069de7f03bca5ad90376991a1a16d801a090ce0c.torrent)
+
+* [香港出現人傳人武漢肺炎個案民間聲浪要求封關港府再次拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1f91f7782071c3026fc96844f55e6b1fb256534.torrent)
+
 * [韓醫師：預防病毒性肺炎關鍵在於清理肺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bdb126af41b2870e4e05bd300db1d45d6839269.torrent)
 
 * [應對武漢肺炎全台醫院防疫升級重啟疫病門診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22e73ae58dac2fddb89a22e8a5a897274880c319.torrent)
