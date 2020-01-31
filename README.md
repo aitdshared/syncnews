@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [武汉肺炎，世界卫生组织宣布全球紧急事件；武警部队染病毒;大瘟疫下的良知拷问;社会大动荡下,如何获得心灵的抚慰和安宁(政论天下第98集20200130)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc1f3e032dc43cc5f42ef9f38c5b9fd50570f5b.torrent)
+
 * [【环球直击】1月31日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b98ec8df0e418a86dbc09cf7f8b66e9e4b740344.torrent)
 
 * [大陸被感染區不斷傳出令人心酸的一句話“又倒了一個”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba369c7ab3f924fd817f200f8c43d813490849ad.torrent)
