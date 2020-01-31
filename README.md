@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [《石濤聚焦》「紐時：習近平顧盼自雄的獨裁者」疫情蔓延全球為其買單「實現了“中國夢”全球遵從其“重要指示”完成了“一帶一路”目標」中共唯一神話般震撼世界的“聖人”（3101）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/467f8b98f5b4062015769dbf73aeecee146840ae.torrent)
+
 * [《石濤聚焦》「林鄭死抗拒關口岸」唯一理由：為習近平等中共權貴整體食利者保留一條逃亡海外的通道［WHO總幹事與林鄭雙簧為習傯與權貴服務］出賣港人的安全利益.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59e424019b7c960bf91f7ea97b613ebd9b7e04cf.torrent)
 
 * [《石濤.News》「最新即時：62國限制中國人進出境」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dc0f29e1726919da0222e9cbf4b85dff3999cc.torrent)
