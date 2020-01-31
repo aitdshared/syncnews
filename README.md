@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [武汉人怒揭官宣造假，王沪宁封杀王岐山！世卫宣布紧急状态，世界为中共独裁付出代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c66660927db8e417b371587eeba1f9582235d711.torrent)
+
 * [【环球直击】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d24e045806a257da232e9e3346eda311fa3dd23e.torrent)
 
 * [(大声版）哈佛教授：肺炎疫苗四个月出，药物半年；患者家门被封，功利主义社会酿人间惨剧。生化武器专家认为中共没开发生物武器，原因出人意料；.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8994b586a080edb99bd6ad097fade8208dfaa789.torrent)
