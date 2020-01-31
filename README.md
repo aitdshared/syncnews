@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [【禁闻】1月30日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8532d817abb3c12cc5c08e18b868bc986b0bc7e.torrent)
+
 * [【禁闻】参与中共千人计划哈佛化学系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e05a76797383e3ef7832e5a242cfb3c9a6c68f3c.torrent)
 
 * [美國海關在美墨邊境發現了一條有史以來最長的偷渡地道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48aa97caa4f4d0a47d5e468b26c55438279f19b9.torrent)
