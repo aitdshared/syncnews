@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [接近真相了，武汉肺炎的感染规模有多大？重要的参照和我们从历史学到的唯一教训（20200131第692期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bdc121647512be415c70cc9705801be7eeae7bb.torrent)
+
 * [網爆：重慶疫情特別嚇人很多都被醫院隱瞞感染者的肺都變白了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf2376e496a40f29e4176fc5209943109a0d5214.torrent)
 
 * [習要部隊衝一線，粗暴隔離釀命案，病患躺地等死，殯葬車不夠用？女醫生夜診200人，武漢紅會收5億多捐款去哪了？報料郵箱：xwkd2017@gmail.com【新聞看點】（20200131）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/486b7f9496b246799690fb50f7fa915b9a2903d6.torrent)
