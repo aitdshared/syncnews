@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [中共下令要「打贏防疫戰」各地防疫手段極端引人道危機已演變成一場政治運動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f90122eb20a1bf04fefe9d1d75c6754638b36c.torrent)
+
 * [中國疫情嚴峻防護物資奇缺武漢協和醫院醫療物資告急求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecfc654c1e5a0b3fe7f6161679e8b22b64d277a.torrent)
 
 * [英國正式脫歐11個月過渡期談判開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07853b5c547c6d79c9851cc1a0f3ba50a3846689.torrent)
