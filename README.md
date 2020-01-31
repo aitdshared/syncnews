@@ -14,6 +14,10 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [【禁闻】1月30日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fa9010556924a9c20cbb2f1beee70b41002afdb.torrent)
+
+* [【禁闻】武汉肺炎中共下指标控制就诊人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb5c0378d8697ec4ef8729e0c118d166b96d0379.torrent)
+
 * [【禁闻】1月30日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8532d817abb3c12cc5c08e18b868bc986b0bc7e.torrent)
 
 * [【禁闻】参与中共千人计划哈佛化学系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e05a76797383e3ef7832e5a242cfb3c9a6c68f3c.torrent)
