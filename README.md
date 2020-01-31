@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [《石濤聚焦》「最新數據：感染者近萬人亡213義大利淪陷」以色列義大利中斷航空美國人傳人IKEA關閉所有店鋪「習近平稱疫情為惡魔」與「出埃及記-神降災」對立等同「侮辱神佛道」（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1916d26b7c386becca7986edea227e72765c1eb7.torrent)
+
 * [【禁闻】中国制无人机有后门美日考虑禁用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6eab71d3ecefb1013534cf07cf4072a2f32e5dbd.torrent)
 
 * [【禁闻】武汉肺炎疫情升温全球大撤侨断航中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b174c6197f9ea3b9a88ce613f75158c04a0d709b.torrent)
