@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [【中国禁闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bf4fbf1f35e932beb2e802043c026ad3bdf0bd4.torrent)
+
 * [【全球新闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbc95d1a1499302474e410b5a392d16a83ea94b.torrent)
 
 * [韩国撤侨，中共居然这么干，中共才是真正的病毒，中国人醒醒吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e389f4baf9a4c34f2766c65f3d0a905f5854fa.torrent)
