@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50414472dee552a1243ab6222afbe6af2e707d3d.torrent)
+
 * [【禁闻】1月30日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fa9010556924a9c20cbb2f1beee70b41002afdb.torrent)
 
 * [【禁闻】武汉肺炎中共下指标控制就诊人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb5c0378d8697ec4ef8729e0c118d166b96d0379.torrent)
