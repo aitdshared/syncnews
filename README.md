@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [【全球新闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbc95d1a1499302474e410b5a392d16a83ea94b.torrent)
+
 * [韩国撤侨，中共居然这么干，中共才是真正的病毒，中国人醒醒吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e389f4baf9a4c34f2766c65f3d0a905f5854fa.torrent)
 
 * [世衛組織宣布武漢肺炎突發公共衛生事件，對中國衝擊有多大？軍隊進城後面的權鬥陰影；多國停飛航線；香港遲到的封關，台灣拒絕口罩的道德綁架（江峰漫談20200131第108期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daff43f67548d96e573cc73b5e2392dafdf84a34.torrent)
