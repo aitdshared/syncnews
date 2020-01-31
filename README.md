@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [世卫宣布全球卫生紧急状态！武汉肺炎疫情惊现次生灾害！持台湾护照被禁止回台湾！（老北京茶馆第237集20200131）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41df8840aa5a2253f1ded0361d1f61836138a1f8.torrent)
+
 * [【中国禁闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bf4fbf1f35e932beb2e802043c026ad3bdf0bd4.torrent)
 
 * [【全球新闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbc95d1a1499302474e410b5a392d16a83ea94b.torrent)
