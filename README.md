@@ -14,6 +14,8 @@
 
 ## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
 
+* [《石濤聚焦》「林鄭死抗拒關口岸」唯一理由：為習近平等中共權貴整體食利者保留一條逃亡海外的通道［WHO總幹事與林鄭雙簧為習傯與權貴服務］出賣港人的安全利益.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59e424019b7c960bf91f7ea97b613ebd9b7e04cf.torrent)
+
 * [《石濤.News》「最新即時：62國限制中國人進出境」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dc0f29e1726919da0222e9cbf4b85dff3999cc.torrent)
 
 * [中共下令要「打贏防疫戰」各地防疫手段極端引人道危機已演變成一場政治運動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f90122eb20a1bf04fefe9d1d75c6754638b36c.torrent)
