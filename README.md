@@ -12,6 +12,8 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
+* [《石濤聚焦》「美宣布：撤出所有領事館非緊急人員與家屬」突發：美方以武漢為準等同對待北京上海重慶視全國為疫區「武大美德籍學生：仿似置身世界末日」等待德國撤僑飛機（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2727ed2d596b5920317a169b2cd8d0dbc2911699.torrent)
+
 * [世衛新冠肺炎構成國際突發公共衛生事件.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2ef36e5ff23b54eddb9446ff9f87c17c43cdf67.torrent)
 
 * [《石濤聚焦》「最新數據：感染者近萬人亡213義大利淪陷」以色列義大利中斷航空美國人傳人IKEA關閉所有店鋪「習近平稱疫情為惡魔」與「出埃及記-神降災」對立等同「侮辱神佛道」（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1916d26b7c386becca7986edea227e72765c1eb7.torrent)
