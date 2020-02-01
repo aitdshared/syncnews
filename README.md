@@ -16,6 +16,10 @@
 
 ## [不会翻墙不会用BT的朋友可以点这里看文字版](https://github.com/begood0513/goodnews/blob/master/indexes/_%E7%BC%96%E8%BE%91%E6%8E%A8%E8%8D%90%E6%96%87%E7%AB%A0.md)
 
+* [彈劾案審理進入最後階段川普或很快被判無罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67d1002b3ed4b3141354502c446b52827dd6a0fd.torrent)
+
+* [服務業受重創新冠肺炎經濟衝擊或超薩斯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/760982654fde5824f732506d14b9f157fc2c6bcf.torrent)
+
 * [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece6058a416297cb02f54190e7f82c302f0c5988.torrent)
 
 * [武汉肺炎二次爆发迫在眉睫美国将中国旅游警示提至最高级多国彻底断航(政论天下第99集20200131)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/471a7cd8429161800a88113b620e67ccc0f81a94.torrent)
