@@ -19,6 +19,8 @@
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
 
 
+* [【禁闻】武汉肺炎冲击中共会否履行美中贸易协议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b70f3652255a89fc2200eb8d507964ff0d914c7.torrent)
+
 * [感谢郭大老板高抬贵手放过我们.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72aa27732801e2bd669d1f065697c2e92b2fe61f.torrent)
 
 * [《石濤聚焦》「最新即時：1.2萬人確診259人亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a15191d15b035ef95daa09c5c804d12b34db6ed2.torrent)
