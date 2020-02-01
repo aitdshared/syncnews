@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cgQN3V)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/arEmsd)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [习近平大事不妙！湖北官员暗批，孔和尚也反了。武汉盛传：他过不了端午.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/889794297bc0dffc2d816d9dcfba87694fe844f2.torrent)
 
 * [《石濤.News》「最新即時：金正恩慰問習近平：請保重身體」李克強回歸求歐盟國務院：一次性護目鏡可重複使用「全國物質短缺」澳洲封關黃岡或成武漢第二火神山7日完工思考「出埃及：降災與神蹟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/632b1ba0960a83948a1c2e877d82f54632c9d2e7.torrent)
 
