@@ -19,6 +19,8 @@
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
 
 
+* [【禁闻】1月31日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c863eb5dc1416bd54d1bcce2ee927e08d0295700.torrent)
+
 * [【禁闻】WHO武汉肺炎疫情构成全球公共卫生威胁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66af5835635d73652bd495668a1da9cfe05ad481.torrent)
 
 * [母武漢患病獲救助加移民感謝新唐人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af292428e2716ef8f576691a1591ee17df35abe1.torrent)
