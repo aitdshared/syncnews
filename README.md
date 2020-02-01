@@ -12,7 +12,11 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [推荐：松鼠VPN](https://zh.squirrelvpn.com/)
+## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
+
+## [不会翻墙不会用BT的朋友可以点这里看文字版](https://github.com/begood0513/goodnews/blob/master/indexes/_%E7%BC%96%E8%BE%91%E6%8E%A8%E8%8D%90%E6%96%87%E7%AB%A0.md)
+
+* [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece6058a416297cb02f54190e7f82c302f0c5988.torrent)
 
 * [武汉肺炎二次爆发迫在眉睫美国将中国旅游警示提至最高级多国彻底断航(政论天下第99集20200131)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/471a7cd8429161800a88113b620e67ccc0f81a94.torrent)
 
