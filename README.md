@@ -19,6 +19,8 @@
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
 
 
+* [【禁闻】感染人数激增武汉医院一床难求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c898a825534f5bf5b8f698aef7303ac53708ae46.torrent)
+
 * [【禁闻】最新研究报告：武汉肺炎12月已人传人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b50095191287f31a4f210aecf3e75c8db84116f2.torrent)
 
 * [【禁闻】1月31日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c863eb5dc1416bd54d1bcce2ee927e08d0295700.torrent)
