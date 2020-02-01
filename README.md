@@ -1,6 +1,6 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具任选其一，不要用迅雷。
 
-## [Windows版BT下载工具qBittorrent点我下载（推荐）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
+## [Windows版BT下载工具qBittorrent点我下载（推荐）.](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
 
 下载解压后双击执行qBittorrentPortable.exe，如出现防火墙弹窗请允许，点击下面新闻标题下载.torrent文件，拖入qBitorrent窗口即可下载，下载完双击标题观看。
 
