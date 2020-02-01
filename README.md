@@ -1,4 +1,4 @@
-# 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具任选其一，不要用迅雷。
+# 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具任选其一，不要用迅雷。本页面短网址 https://git.io/news20
 
 ## [Windows版BT下载工具qBittorrent点我下载（推荐）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
 
@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 诸葛亮说的瘟疫的大淘汰已经拉开序幕，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mwVp3u)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫的大淘汰已经拉开序幕，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ooc2ZV)
 
-## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/indexes/_%E7%BC%96%E8%BE%91%E6%8E%A8%E8%8D%90%E6%96%87%E7%AB%A0.md)
+## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
-## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
+## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/) [无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
 * [【禁闻】武汉肺炎冲击中共会否履行美中贸易协议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b70f3652255a89fc2200eb8d507964ff0d914c7.torrent)
 
