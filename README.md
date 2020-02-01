@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F2GTzg)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5XytIe)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [500多台人與大陸配偶困武漢兩人被確診中共目前還沒有同意台府包機接回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82c897ffb1f637c93a27fbf85acffd04c1b7c076.torrent)
 
 * [多种迹象指向新型冠状病毒为人工合成，被泄漏。中或有艾滋病毒的基因插入，指向此病毒为合成病毒。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7b77d8d3245d1a67f04cf6cff9701a2bcd68c29.torrent)
 
