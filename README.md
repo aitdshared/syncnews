@@ -16,6 +16,13 @@
 
 ## [不会翻墙不会用BT的朋友可以点这里看文字版](https://github.com/begood0513/goodnews/blob/master/indexes/_%E7%BC%96%E8%BE%91%E6%8E%A8%E8%8D%90%E6%96%87%E7%AB%A0.md)
 
+## [太紧急了❗️❗️❗️](https://is.gd/mwVp3u/)
+
+诸葛亮说的瘟疫的大淘汰已经拉开序幕，[尽快点开这里](https://is.gd/mwVp3u)，简单填即得到平安果🍎 無需重复📩
+
+
+* [【禁闻】WHO武汉肺炎疫情构成全球公共卫生威胁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66af5835635d73652bd495668a1da9cfe05ad481.torrent)
+
 * [母武漢患病獲救助加移民感謝新唐人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af292428e2716ef8f576691a1591ee17df35abe1.torrent)
 
 * [新冠病毒攻入26國美國宣布進入國家公共衛生緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2680c5d4b4a82ef48a7cb8e2201f645912b3d1e1.torrent)
