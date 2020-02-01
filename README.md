@@ -19,6 +19,8 @@
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)
 
 
+* [《石濤聚焦》「最新即時：1.2萬人確診259人亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a15191d15b035ef95daa09c5c804d12b34db6ed2.torrent)
+
 * [【禁闻】感染人数激增武汉医院一床难求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c898a825534f5bf5b8f698aef7303ac53708ae46.torrent)
 
 * [【禁闻】最新研究报告：武汉肺炎12月已人传人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b50095191287f31a4f210aecf3e75c8db84116f2.torrent)
