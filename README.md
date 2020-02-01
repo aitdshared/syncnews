@@ -16,6 +16,10 @@
 
 ## [不会翻墙不会用BT的朋友可以点这里看文字版](https://github.com/begood0513/goodnews/blob/master/indexes/_%E7%BC%96%E8%BE%91%E6%8E%A8%E8%8D%90%E6%96%87%E7%AB%A0.md)
 
+* [母武漢患病獲救助加移民感謝新唐人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af292428e2716ef8f576691a1591ee17df35abe1.torrent)
+
+* [新冠病毒攻入26國美國宣布進入國家公共衛生緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2680c5d4b4a82ef48a7cb8e2201f645912b3d1e1.torrent)
+
 * [彈劾案審理進入最後階段川普或很快被判無罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67d1002b3ed4b3141354502c446b52827dd6a0fd.torrent)
 
 * [服務業受重創新冠肺炎經濟衝擊或超薩斯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/760982654fde5824f732506d14b9f157fc2c6bcf.torrent)
