@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3WSxGd)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7t4BC1)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [美國封关！武漢疫情下，党的目标泄露：解决全部武汉人？党来信：老乡，请花光你的钱再走！（老北京茶馆第238集20200201）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d740c920a40d10ec925be35c1372e7226ad414e0.torrent)
 
 * [美国全面对华封关，澳洲跟进；美国找到了对付武汉肺炎的方法？武汉肺炎病毒是否人造？复工在即，中共拿命跟病毒赌（政论天下第100集20200201）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcab697ba3e04d1aa44213f85e2a5bc832de7442.torrent)
 
