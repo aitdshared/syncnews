@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gme2Og)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U3U8qa)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [习近平多日不露面，王沪宁把武汉人民逼到死角！美国准备第三次拯救中国？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efc25da6e1bb04cd8e818a4f42349786d1bb359e.torrent)
 
 * [蹲守汉口殡仪馆报告武汉人民需要自觉自救发出你们的声音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/420e0b557dfd42cf9d42e1a21b16d5b428aa77a4.torrent)
 
