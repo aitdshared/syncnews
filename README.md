@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VyaS16)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3WSxGd)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [美国全面对华封关，澳洲跟进；美国找到了对付武汉肺炎的方法？武汉肺炎病毒是否人造？复工在即，中共拿命跟病毒赌（政论天下第100集20200201）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcab697ba3e04d1aa44213f85e2a5bc832de7442.torrent)
 
 * [香府徵用「翠雅山房」作隔離營美孚新村居民遊行抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d2dff01adf8fa2fdcc38686f31f88c7456d0ae3.torrent)
 
