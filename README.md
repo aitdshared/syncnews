@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/El5s0v)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dGKvtW)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [武汉肺炎引起温州骚乱；大疫面前的道德困境，以及解决办法（哲思心语第6集20200202）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d391503c01a8af86dea82bbae568d4cbf52a2f2.torrent)
 
 * [小品《碰瓷兒》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b93f1ae70ed37cf07630f36f8baabba8775d4be.torrent)
 
