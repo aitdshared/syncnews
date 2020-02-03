@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Oqdb84)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xiLncl)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤聚焦》「習總‘親臨’武漢？」央視闢謠式常委會新聞13分鐘［無畫面］時間出在「江城瘟疫起端午除惡習」露面之後（0301）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d9a0e279e836006b498d295dd34bdec608ba9cd.torrent)
 
 * [穿防護服的警察持槍幹什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/baa37350dd121ab97ec3956b70ca33d44e861253.torrent)
 
@@ -416,6 +418,4 @@
 * [【禁闻】传参加两会被传染杨晓波“重症肺炎”死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc2002f58906f570e5815062996c27f690bde38.torrent)
 
 * [10大守則助您防範武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c87bbd455edbd0fe7176ee3481329f9382537bb.torrent)
-
-* [更多的線索表明中共對疫情作假武漢肺炎蔓延17國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/087e9854327c487707c61c6b0ba7aa6b9d577d3a.torrent)
 
