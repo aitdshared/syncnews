@@ -12,12 +12,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZJ3xso)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/y4Sv7T)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [小品《尋親》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b92129f485035a3ba1255c8db492732a8658ba.torrent)
+
+* [小品《京川菜館》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82dbab61c3048858e7a7f60c00360cbda79896c3.torrent)
 
 * [相聲《魔鏡奇緣》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68d1fc3d8836c8bec1d36116c79566f6fe8b2db2.torrent)
 
