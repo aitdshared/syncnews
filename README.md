@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5p5Bxa)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/njyWsH)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [賣多少錢？美國吉列製藥推出武漢肺炎新型冠狀病毒特效藥，全面向中國開放藥物分子結構，助中國臨床試驗及生產（江峰漫談20200202第110期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/007fa957a499788816a89a32d46f5d37423959b8.torrent)
 
 * [【禁闻】2月2日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b0e61fcace20d688ad118242868d976513f1d9a.torrent)
 
