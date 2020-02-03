@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eyvboy)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S6rGSo)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [🚨當局擬處決(部分)感染者；方斌爆料直擊三大敏感處💥警察審訊時吐露維穩實情；實況！年後回武漢闖關歷險🚓美國新藥對治新冠病毒有效；紅十字會扣物資，醫護自製口罩新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62e0d56050dacec75de44678ea23e4a06dfebc20.torrent)
 
 * [【解讀】武漢醫生爆「遺體多到用貨車拖」；湖南爆發禽流感；中共數據藏神秘規律？內蒙古驚傳「無接觸」感染｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ea7f088f290f0fcb0df7eec50933ecd7f1816ec.torrent)
 
