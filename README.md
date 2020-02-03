@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KYFNft)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OPD1vK)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【环球直击】2月3日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90d38a2c22527bafddb455420c9b53f4515440bd.torrent)
 
 * [美駐華使館關閉！騰訊洩密！武漢肺炎第2影響出現，股匯市暴跌，防化部隊上陣！軍管15家醫院，淘大花園事件再現爆料：xwkd2017@gmail.com【新聞看點】（20200203）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cf6784b5316293f3982978f9ae16683c0e0c1f1.torrent)
 
@@ -416,6 +418,4 @@
 * [《石濤聚焦》「習近平以世衛作背景高聲宣稱‘我統領防疫一切’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f35059d6e6e176ba9f4176c4cdc068497e2f9214.torrent)
 
 * [《石濤聚焦》「非典SARS2.0最新更新」感染者超6000亡132西藏出現全國淪陷美考慮停飛中國-完全切斷德國日本出現2代本土傳染加國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e54e2e8f6f09150b9981983fda0f14731886e20.torrent)
-
-* [【禁闻】武汉肺炎地方中央互推责民吁中共下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9062cee05ee7123b3aaa0556c0dc2e5c4f418a9f.torrent)
 
