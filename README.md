@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ec5vXX)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/83nLUu)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】他们死了连个数据都算不上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbf00e4832d16de637162845e58cf79cd505485d.torrent)
 
 * [【中国禁闻】2月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbb36f9cd6f585bcbe5fa2df3225e0cfb89036b6.torrent)
 
@@ -416,6 +418,4 @@
 * [疫情失控香港政府遲遲不宣布封關桑普中共有可能故意讓病毒在香港傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af0dd79e37dbca9157760857c9f997fc095c0f46.torrent)
 
 * [涉嫌隱瞞千人計劃哈佛化學系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0df1c0b6ebc9471dec42618ac2709d54febc79b2.torrent)
-
-* [日本撤僑班機抵達東京英國已暫停所有飛往中國的航班更多國家包機撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5d02bd63c8510dbca0ffed7e70f6298be2d7343.torrent)
 
