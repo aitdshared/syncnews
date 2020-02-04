@@ -12,12 +12,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vBaBR0)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Oc1vfn)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】武汉医护：全市每天只让用2000个试剂盒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5d939e651d0f7dfb4603af7ff2512ed19b019ef.torrent)
+
+* [【禁闻】2月3日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10109bd214462de186e73a84b522b623a0472b40.torrent)
 
 * [【禁闻】2月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0c47393d1be0f16f9c2367c6692769d97f162a6.torrent)
 
@@ -414,8 +418,4 @@
 * [从海外寄到中國的防護用品被政府機構公開化搶劫！並以此賺錢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a94881b9e79a5eb46081fbf516e12f8f23aeeab7.torrent)
 
 * [《石濤聚焦》「習近平親領海陸空大戰非典2.0」重現［送瘟神］之偉大港媒：海量國內外援助物資金錢人員被習傯［黨領導一切］而截流為明日開啟習式戰瘟神之偉大壯舉而用（2910）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/354db8d789452a43f2cba567e827e42eccbb56c7.torrent)
-
-* [古巴南部海域發生77級強震.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2feae9617831a3383956a0125991bc9c9f432924.torrent)
-
-* [疫情失控香港政府遲遲不宣布封關桑普中共有可能故意讓病毒在香港傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af0dd79e37dbca9157760857c9f997fc095c0f46.torrent)
 
