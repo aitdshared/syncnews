@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9Na98v)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bXcgWw)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【环球直击】2月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca1303019f0f49e0a7e486b906fb09083ecff4d.torrent)
 
 * [陈秋实探访方舱医院隔离环境医生担心交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4458e4a601a2eb00d90201be9b6bec0e8f72da86.torrent)
 
@@ -416,6 +418,4 @@
 * [美聯航取消往來美中之間的航班紐約肯尼迪機場直擊華人返美.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/122c1309dc6bea4f4f5a08cdb5805bcf87cebbda.torrent)
 
 * [加拿大移民爆料：武漢母親高燒十多天得不到救治家中很快會斷糧政府之責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3609fcd13d496426791c1cb000b56f8413571b6.torrent)
-
-* [中共拒美国专家驰援，多国启动“断飞封国”节奏！拖延加强了一大胆猜测（20200129第691期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/998a9bcce903eeab9db84c0cd82fd68166831bec.torrent)
 
