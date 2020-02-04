@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A7a0pt)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pKqaRh)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤.News》「在劫難逃天滅中共：生與滅」最新即時：杭州封城警察持槍牽狗香港出現第一位離世與隨街倒地者醫護人員罷工爆光醫院屍體候診家屬病人同處一室澳門關閉賭場北京空如鬼城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc994bf924f8e3907aa96657b4bba21fc36af31c.torrent)
 
 * [美國CDC尚不清楚病毒傳播程度建議自我防護三要三不要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6760e6e1cb594530fd52ad994b466aecf8a0c30e.torrent)
 
@@ -416,6 +418,4 @@
 * [撤侨与断航,武汉封城还要多久到底死了多少人(政论天下第97集20200129)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1e445f25bfbd994fd78fa2a9dfc688f3a33236.torrent)
 
 * [中國大陸幾乎被冠狀病毒全面攻陷中共被指嚴重瞞報疫情武漢肺炎蔓延19國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6390d77ec93c358f9714aea6e670a1dda05f42c8.torrent)
-
-* [美撤僑200多人專機從武漢抵加州空軍基地更多國家撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16b6f94a47d9c69e3a66c290c21671412a7d63f0.torrent)
 
