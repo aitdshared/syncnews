@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kyeAWF)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1aZzXv)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤.News》「2020在劫難逃天滅中共生與滅」肺炎-非典2.0最新掩蓋後數據：確診1.95萬亡425強迫患者統一食用中成藥國家疫控主任是獸醫抗疫首席醫生是少將首席生化武器專家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873238165e6eeaa2f3c65404e9a9ea19ecf9602a.torrent)
 
 * [【禁闻】共军接管医院防疫成军机民忧自生自灭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c587bd75de9f0e9ae2f45588f20ef08c9179142c.torrent)
 
@@ -416,6 +418,4 @@
 * [武漢人，在自己的祖国流浪……武漢肺炎纪实之一：游走在生活边缘的武漢同胞（老北京茶馆第235集20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260084f236f2fb9ded06a10b4bb2fb5fb7a78612.torrent)
 
 * [《濤哥侃封神》「封神演義第二十一回文王夸官逃五關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1c0a99e307d8bf5fbc78e4dea544a9748f7152.torrent)
-
-* [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)
 
