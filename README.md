@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n9GfVO)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kyeAWF)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】共军接管医院防疫成军机民忧自生自灭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c587bd75de9f0e9ae2f45588f20ef08c9179142c.torrent)
 
 * [【微视频】各国撤侨数字推算出武汉感染人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57d82025836e74132c262f11ea60ac2d147b9b5e.torrent)
 
@@ -416,6 +418,4 @@
 * [《濤哥侃封神》「封神演義第二十一回文王夸官逃五關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1c0a99e307d8bf5fbc78e4dea544a9748f7152.torrent)
 
 * [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)
-
-* [【中国禁闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b48578d93e13ba6fccb13f99318395e0cbe030cb.torrent)
 
