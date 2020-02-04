@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pPeoHN)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m2oDve)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [新冠肺炎繼續蔓延重創大陸經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32fc1057c385dec2b8060b2bd302f24e7150c87a.torrent)
 
 * [武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c9006d9be1dd8fa329a2381013d9f426bce247b.torrent)
 
@@ -416,6 +418,4 @@
 * [习近平坦承亲自隐瞒，自认是魔鬼？出动军队很诡异。武汉殡仪馆昼夜加班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cce2f8ff0949f70d9b6e76d8c426e5b0cc9f758.torrent)
 
 * [《石濤News》「最新即時：武漢肺炎傳播速度是非典SARS8倍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89769047b2e71917ae73795b81f0107854b61fa3.torrent)
-
-* [【环球直击】1月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f49bdcbaf518cea4f2f98f488214693be65ae1a.torrent)
 
