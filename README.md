@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bXcgWw)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iQJlMK)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [中国人民有救了？美国新药在北京投入临床试验！华大妈反美却泄密。某国领导人牛，不戴口罩访武汉？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e8c780b60888db90c8b5b6904b225b51601e903.torrent)
 
 * [【环球直击】2月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca1303019f0f49e0a7e486b906fb09083ecff4d.torrent)
 
@@ -416,6 +418,4 @@
 * [美撤僑200多人專機從武漢抵加州空軍基地更多國家撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16b6f94a47d9c69e3a66c290c21671412a7d63f0.torrent)
 
 * [美聯航取消往來美中之間的航班紐約肯尼迪機場直擊華人返美.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/122c1309dc6bea4f4f5a08cdb5805bcf87cebbda.torrent)
-
-* [加拿大移民爆料：武漢母親高燒十多天得不到救治家中很快會斷糧政府之責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3609fcd13d496426791c1cb000b56f8413571b6.torrent)
 
