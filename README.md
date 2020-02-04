@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BnSazT)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3T4JUu)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤聚焦》「清華法學家許章潤再檄文“疫癘猖獗憤怒的人民不再恐懼“」痛斥習傯“無恥之尤”列九大罪狀以「此生最後一文」之語相拚「武昌再起義辛亥再革命」皆因封城而起（0401）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63a4dc407f84060984c2c0c6ea9870f0346dc24a.torrent)
 
 * [武漢市民楊陽：我與母被確診只想為母要個床位父親因肺炎去世未算在官方數據中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/378749d0b16cb7fad29d77256f0d77b7a6fb5603.torrent)
 
@@ -34,8 +36,6 @@
 * [2020總統大選兩黨愛荷華州初選結果推遲公佈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2eb30dc1e25ed31dbc43e0b07237cbec8f7a7f61.torrent)
 
 * [香港出現第一起死亡病例9千醫護人員罷工要求港府全面關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bfceda7e4ca52333bea295038fb7da99cbb0069.torrent)
-
-* [美國移民局將在全美正式實施「公共負擔不予受理」新規.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b459c422fb61e05eb73efed96094afe619965e3e.torrent)
 
 * [泰國再確診六人成爲中國境外感染最多的國家澳門賭場韓國現代停業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d69f40564794cd44313b2147239f12f22efa60bf.torrent)
 
