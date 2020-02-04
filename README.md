@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bH3hV0)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pPeoHN)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c9006d9be1dd8fa329a2381013d9f426bce247b.torrent)
 
 * [【禁闻】武汉肺炎冲击底层农民工该何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/644d1847a4320a676923c879e62cba07c97875a3.torrent)
 
@@ -416,6 +418,4 @@
 * [《石濤News》「最新即時：武漢肺炎傳播速度是非典SARS8倍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89769047b2e71917ae73795b81f0107854b61fa3.torrent)
 
 * [【环球直击】1月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f49bdcbaf518cea4f2f98f488214693be65ae1a.torrent)
-
-* [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)
 
