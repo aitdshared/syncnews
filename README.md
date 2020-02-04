@@ -12,12 +12,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CUIM12)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W5pfcM)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [紐約時代廣場各國民眾聚焦武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01e69e30e309403b9eefca05637706dbc48e4e50.torrent)
+
+* [法國六例感染冠狀病毒法國現狀盤點已從武漢撤離200位僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c9e5013f28d7f2765374528c2117b6cc5d8efc6.torrent)
 
 * [新冠肺炎繼續蔓延重創大陸經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32fc1057c385dec2b8060b2bd302f24e7150c87a.torrent)
 
@@ -414,8 +418,4 @@
 * [《石濤聚焦》「軍報奇文生物戰：挑戰習總」此地無銀三百兩式設局承認：非典SARS2.0病原體源自“一帶一路”的典範「武漢P4病毒實驗室」（2901）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f947f8eb833ae0339aa23ff98592d502a6a138b1.torrent)
 
 * [韓國近日成立新黨議員在這個迷茫的時代望青年擔負起責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5155560b750bffd20fd5f5bea64a08c52d62f942.torrent)
-
-* [习近平坦承亲自隐瞒，自认是魔鬼？出动军队很诡异。武汉殡仪馆昼夜加班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cce2f8ff0949f70d9b6e76d8c426e5b0cc9f758.torrent)
-
-* [《石濤News》「最新即時：武漢肺炎傳播速度是非典SARS8倍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89769047b2e71917ae73795b81f0107854b61fa3.torrent)
 
