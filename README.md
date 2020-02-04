@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pYWxn8)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jquHDo)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [在目前的情况下，习核心还能支撑多久？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/987786fd25e451913b7b872af84824154602d2b6.torrent)
 
 * [【全球新闻】2月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a40c9f3a9678f81f7b4a0449d22760fcbb31bf7.torrent)
 
@@ -416,6 +418,4 @@
 * [武漢日均200人亡，多人倒地，殯儀館很忙，北京3次拒絕美國援助，38國撤僑，武漢人呼「救命」！關於武漢肺炎的幾個必知，下一步該怎麼辦？【新聞看點】（20200129）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8077d12e1faff2bde4c5a816d105d1c033160a41.torrent)
 
 * [【微视频】中共武汉围城民众如何自治自救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fb5622ec8111d66260e7ab62f169e2370e08641.torrent)
-
-* [多地出現被醫院確診後家被圍攻或全家被釘門里甚至整棟大樓被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ace98ca88ac4d022b21f9824b351b8f0e1d0a55a.torrent)
 
