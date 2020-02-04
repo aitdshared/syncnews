@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pSXc6l)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9mNkmi)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤聚焦》「網傳：3日內軍人接管武漢」所有人不得進出中老年人外出搶購米麵［醋艾草板藍根等再成國民希望］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7938e576e545bab5752eab7d9517ca691c46383.torrent)
 
 * [湖北民眾：物質不足住不上醫院政府應急水平低一幕幕家破人亡的人間慘劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03d1764addee4fbcdc36d84dd8064566d48b6b9d.torrent)
 
@@ -416,6 +418,4 @@
 * [《石濤聚焦》「最新即時：感染者近8000亡170」傳播速度遠超過當年非典全球口罩短缺400港人排隊碰運氣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6a4273c1c3a9d53ec5a2157801a1b1c90928ec8.torrent)
 
 * [【禁闻】1月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acc3250cd5e769ac999f1319e5cd7af25ef0987.torrent)
-
-* [【禁闻】武汉肺炎疫情严重英美航空停飞中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4189bfcb083b5858174f723c9eed09894917cc.torrent)
 
