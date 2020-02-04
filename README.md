@@ -12,12 +12,18 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2r9d8q)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QZ8Kst)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [香港出現第一起死亡病例9千醫護人員罷工要求港府全面關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bfceda7e4ca52333bea295038fb7da99cbb0069.torrent)
+
+* [美國移民局將在全美正式實施「公共負擔不予受理」新規.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b459c422fb61e05eb73efed96094afe619965e3e.torrent)
+
+* [泰國再確診六人成爲中國境外感染最多的國家澳門賭場韓國現代停業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d69f40564794cd44313b2147239f12f22efa60bf.torrent)
 
 * [《石濤.News》「在劫難逃天滅中共：生與滅」最新即時：杭州封城警察持槍牽狗香港出現第一位離世與隨街倒地者醫護人員罷工爆光醫院屍體候診家屬病人同處一室澳門關閉賭場北京空如鬼城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc994bf924f8e3907aa96657b4bba21fc36af31c.torrent)
 
@@ -412,10 +418,4 @@
 * [【禁闻】律师：四川法院办理法轮功案弄虚作假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5736a093d20818cd40621e09fa1840cb8409e598.torrent)
 
 * [【禁闻】1月29日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c979b05d61efae199a3a9ebe82a5585997c1660.torrent)
-
-* [世衛披露武漢現第四代病例傳染速率或超SARS可能進一步重組和突變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2774cd8ce65ff9d75c8d0c6481064a53b9b15e8.torrent)
-
-* [撤侨与断航,武汉封城还要多久到底死了多少人(政论天下第97集20200129)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1e445f25bfbd994fd78fa2a9dfc688f3a33236.torrent)
-
-* [中國大陸幾乎被冠狀病毒全面攻陷中共被指嚴重瞞報疫情武漢肺炎蔓延19國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6390d77ec93c358f9714aea6e670a1dda05f42c8.torrent)
 
