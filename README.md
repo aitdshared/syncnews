@@ -12,12 +12,22 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0CUR4Y)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fkm1uM)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [湖北民眾：物質不足住不上醫院政府應急水平低一幕幕家破人亡的人間慘劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03d1764addee4fbcdc36d84dd8064566d48b6b9d.torrent)
+
+* [武漢受訪人：我喘不過氣來醫院不收家裡沒法隔離媽媽也開始不舒服了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fbbd278699889a9b8430fe59482f14827889d01.torrent)
+
+* [杭州繼溫州後封城疫情延燒下一個上海或許也不妙了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93f3df6cd15e9b218fef75251348e7fb0f593652.torrent)
+
+* [美國官員證實確診11例撤僑行動繼續五個軍事設施協助安置隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/536223f5cd983c97b8bb5613a25da7196627fb5d.torrent)
+
+* [2020總統大選兩黨愛荷華州初選結果推遲公佈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2eb30dc1e25ed31dbc43e0b07237cbec8f7a7f61.torrent)
 
 * [香港出現第一起死亡病例9千醫護人員罷工要求港府全面關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bfceda7e4ca52333bea295038fb7da99cbb0069.torrent)
 
@@ -408,14 +418,4 @@
 * [【禁闻】1月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acc3250cd5e769ac999f1319e5cd7af25ef0987.torrent)
 
 * [【禁闻】武汉肺炎疫情严重英美航空停飞中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4189bfcb083b5858174f723c9eed09894917cc.torrent)
-
-* [【禁闻】医院拒绝收治武汉患者网上求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf5fb77c64d456ad30544b42533c695f10ff3bcd.torrent)
-
-* [應對大國競爭落實國防戰略與中俄競爭五角大樓要求改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de247d5436357c902b9aee20649bf2499e692777.torrent)
-
-* [傳染速率或超SARS，武漢現第四代病例，三代後難控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8bf8ba2d11a1216bfe26813df8561a6d394acb78.torrent)
-
-* [【禁闻】律师：四川法院办理法轮功案弄虚作假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5736a093d20818cd40621e09fa1840cb8409e598.torrent)
-
-* [【禁闻】1月29日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c979b05d61efae199a3a9ebe82a5585997c1660.torrent)
 
