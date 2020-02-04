@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O11Of1)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s8gSty)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [杭州也下封城令！“杭三封”与武汉的异同，遗漏的视角；习近平神隐，真正的挑战所在（20200204第694期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412ba33c5f4713be4875e02ae414980191980834.torrent)
 
 * [疫区笼罩恐怖警察上街抓人進室內打砸街上查手機还有公安提枪上膛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcfa1eb6d3210b8154f22fbd8b18f0e1a4c1df7.torrent)
 
@@ -416,6 +418,4 @@
 * [【全球新闻】1月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea43aaad720d048254157a5814068adf80e45f53.torrent)
 
 * [韩国情况急迫，两病例接触几百人，首尔防疫圈或被击破，在韩朋友要小心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63b9b5dd4d2e256db3e45fe0629585809a09e657.torrent)
-
-* [美國撤僑航班降落軍用機場，美中處理疫情：公民與草民之別；美國頂級化學家涉千人計劃被控（江峰漫談20200130第107期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34795120365ebf3912c8ba6ce75ca397bba969b5.torrent)
 
