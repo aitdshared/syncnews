@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/87QLoy)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YPJS9h)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤聚焦》「信命：2019-21皆為水年習近平-屬蛇為火中共為火」庚子年之庚（天干第七位）習總將因［火神山與雷神山］而兌現天滅中共日媒：習總的定於一尊是大瘟疫肆虐的根本原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8d2e01ef1d0e816e767e6c0c12f2ea52591536.torrent)
 
 * [武漢肺炎疫情：火神山医院军管暗藏惊人秘密？武汉方斌勇士再陷隔离险情！新浪报道治肺炎美国神奇药方？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91de063c7bc0548eaefba81c9acfef68c1b42fee.torrent)
 
@@ -416,6 +418,4 @@
 * [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)
 
 * [【全球新闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee359a33e4f4f3446663f204aaa20783c4c215f2.torrent)
-
-* [武漢肺炎最新消息：中共拒絕美國疾控中心CDC援助控制新冠狀病毒背後不可告人的陰謀美國撤僑抵安大略機場微信謠言華人恐懼（江峰漫談20200129第106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb28e683a1ea94869558cb37d82c116e6518d664.torrent)
 
