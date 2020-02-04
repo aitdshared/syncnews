@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BIUAVp)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BNwW56)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [武汉一家小医院：每天都有死亡急诊科快成为停尸房.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e608b71fa6577a9aaba5389e83e66776f99a37b.torrent)
 
 * [《石濤聚焦》「」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/748b8ed0071790d4e29bce3a75c919fa0c010c7f.torrent)
 
@@ -416,6 +418,4 @@
 * [美國撤僑航班降落軍用機場，美中處理疫情：公民與草民之別；美國頂級化學家涉千人計劃被控（江峰漫談20200130第107期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34795120365ebf3912c8ba6ce75ca397bba969b5.torrent)
 
 * [🔥調動軍隊！習近平親自指揮疫情防控，武漢市長承認「瞞報」；西藏中招，多國撤僑✈️；權威刊物揭武漢肺炎確診者3種主要病徵，致死率11%！中國疫情正誘發三大「併發症」新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cae336cf28b4d7b0abbee5dd17f94494e946c8c.torrent)
-
-* [【中国禁闻】1月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0d3dd66fe2f0f5ada847443704336f0fd420ea1.torrent)
 
