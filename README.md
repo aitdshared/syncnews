@@ -1,23 +1,33 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，如果您没有BT下载工具，推荐使用以下软件工具任选其一，不要用迅雷。本页面短网址 https://git.io/news20
 
+## WebTorrent自动更新视频自带播放器边下边看（最推荐！）
+
+在Windows电脑上打开网址 https://is.gd/wt21win 下载后解压、双击执行WebTorrent.exe，如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新。
+
 ## [Windows版BT下载工具qBittorrent点我下载（推荐）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
 
 下载解压后双击执行qBittorrentPortable.exe，如出现防火墙弹窗请允许，点击下面新闻标题下载.torrent文件，拖入qBitorrent窗口即可下载，下载完双击标题观看。
 
-## WebTorrent自带播放器边下边看 [Mac版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/WebTorrent-v0.21.0.dmg) [Windows版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/WebTorrentSetup-v0.21.0.exe) [Ubuntu版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/webtorrent-desktop_0.21.0_amd64.deb)
+## WebTorrent自带播放器边下边看 [Mac版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/WebTorrent-v0.21.0.dmg) [Ubuntu版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/webtorrent-desktop_0.21.0_amd64.deb)
 
-下载后安装并执行，如出现防火墙弹窗请允许，点击下面新闻标题下载.torrent文件，拖入WebTorrent窗口，等待缓冲至3%即可点击右侧播放按钮观看。
+下载后安装并执行，如出现防火墙弹窗请允许，点击下面新闻标题下载.torrent文件，拖入WebTorrent窗口，等待缓冲至10%即可点击右侧播放按钮观看。
 
 ## [安卓手机版BT下载工具BitTorrent点我下载](https://github.com/aitdshared/syncnews/raw/master/BitTorrent%C2%AE%20Torrent%20Downloads_v6.1.8_apkpure.com.apk)
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yCYQwp)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uWaITu)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】2月4日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72051a56976f88d01a9fd0334d0284691e3151bb.torrent)
+
+* [【禁闻】世卫一味挺共20万人连署吁总干事下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/970bed3a6de3181481f5d968abb79e0a43354e87.torrent)
+
+* [2月4日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87d808dbf2cc19215099e6f78b7500ed129452ee.torrent)
 
 * [【疫情追擊】武漢肺炎病毒紐約疑似病例上升記者疫情追擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70b756ff17e2ae47f252051b6453b27421f3fcbe.torrent)
 
@@ -316,10 +326,6 @@
 * [《石濤聚焦》「林鄭死抗拒關口岸」唯一理由：為習近平等中共權貴整體食利者保留一條逃亡海外的通道［WHO總幹事與林鄭雙簧為習傯與權貴服務］出賣港人的安全利益.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59e424019b7c960bf91f7ea97b613ebd9b7e04cf.torrent)
 
 * [《石濤.News》「最新即時：62國限制中國人進出境」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dc0f29e1726919da0222e9cbf4b85dff3999cc.torrent)
-
-* [中共下令要「打贏防疫戰」各地防疫手段極端引人道危機已演變成一場政治運動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f90122eb20a1bf04fefe9d1d75c6754638b36c.torrent)
-
-* [中國疫情嚴峻防護物資奇缺武漢協和醫院醫療物資告急求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecfc654c1e5a0b3fe7f6161679e8b22b64d277a.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
