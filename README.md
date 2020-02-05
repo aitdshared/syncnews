@@ -12,7 +12,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aRJpUj)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cuNmwZ)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -325,97 +325,37 @@
 
 * [韩国撤侨，中共居然这么干，中共才是真正的病毒，中国人醒醒吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e389f4baf9a4c34f2766c65f3d0a905f5854fa.torrent)
 
-* [世衛組織宣布武漢肺炎突發公共衛生事件，對中國衝擊有多大？軍隊進城後面的權鬥陰影；多國停飛航線；香港遲到的封關，台灣拒絕口罩的道德綁架（江峰漫談20200131第108期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daff43f67548d96e573cc73b5e2392dafdf84a34.torrent)
-
-* [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)
-
-* [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)
-
-* [【全球新闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee359a33e4f4f3446663f204aaa20783c4c215f2.torrent)
-
-* [武漢肺炎最新消息：中共拒絕美國疾控中心CDC援助控制新冠狀病毒背後不可告人的陰謀美國撤僑抵安大略機場微信謠言華人恐懼（江峰漫談20200129第106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb28e683a1ea94869558cb37d82c116e6518d664.torrent)
-
-* [武漢人，在自己的祖国流浪……武漢肺炎纪实之一：游走在生活边缘的武漢同胞（老北京茶馆第235集20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260084f236f2fb9ded06a10b4bb2fb5fb7a78612.torrent)
-
-* [《濤哥侃封神》「封神演義第二十一回文王夸官逃五關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1c0a99e307d8bf5fbc78e4dea544a9748f7152.torrent)
-
-* [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)
-
-* [【中国禁闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b48578d93e13ba6fccb13f99318395e0cbe030cb.torrent)
-
-* [《石濤聚焦》「習近平以世衛作背景高聲宣稱‘我統領防疫一切’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f35059d6e6e176ba9f4176c4cdc068497e2f9214.torrent)
-
-* [《石濤聚焦》「非典SARS2.0最新更新」感染者超6000亡132西藏出現全國淪陷美考慮停飛中國-完全切斷德國日本出現2代本土傳染加國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e54e2e8f6f09150b9981983fda0f14731886e20.torrent)
-
-* [【禁闻】武汉肺炎地方中央互推责民吁中共下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9062cee05ee7123b3aaa0556c0dc2e5c4f418a9f.torrent)
-
 * [【禁闻】传参加两会被传染杨晓波“重症肺炎”死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc2002f58906f570e5815062996c27f690bde38.torrent)
-
-* [10大守則助您防範武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c87bbd455edbd0fe7176ee3481329f9382537bb.torrent)
-
-* [更多的線索表明中共對疫情作假武漢肺炎蔓延17國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/087e9854327c487707c61c6b0ba7aa6b9d577d3a.torrent)
-
-* [武漢肺炎疫情不斷影響全球美議員質疑武漢肺炎來源籲中共信息透明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98c4d78b090218036161f3eecc0a35cadb347c0d.torrent)
 
 * [NTSB公布球星科比墜機現場畫面面目全非未能找到飛機的黑匣子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e560851b9f2402047591e10159679fbba522641.torrent)
 
-* [美國南加州機場嚴陣以待將接收武漢回美人員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dfa8b56cba6737c5c55f9eff443701c145f102a.torrent)
-
-* [武汉肺炎伪装躲过检测;病毒不止一种,毒源不止一个亡党威胁隐现(政论天下第96集20200128)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f7580e67d8fb58e5943bd08d92d332ac22eb239.torrent)
-
-* [武汉肺炎毒源鉴定有重大逆转；军队被病毒攻陷！武汉病毒研究所里发生了什么（20200128第690期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea4246ef8ae3bd11d9cd7dc779df8a7a6588e001.torrent)
-
-* [【禁闻】2020全民脱贫？百姓党对人民的欺骗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ac80157eb3797ea2a57eff2409faab7b18d3a11.torrent)
-
-* [【禁闻】章天亮：2020年为中共垮台做准备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/594e2076d79d95f6226fb0ff3cce54c74b1d3050.torrent)
-
-* [往哪逃？瘟疫下的陰謀：5大問題看清它這麼殺人！武漢死亡上萬，武漢小夥再求救，武漢市長甩鍋，習近平要「黨員先上」。【新聞看點】（20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9264290c83c0efbcab5c552b2ae52148c864a3eb.torrent)
-
-* [【微视频】武汉假封城真围城北京真封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25ba5d1dcdb3ddbb48bad193bb4babde2846fd08.torrent)
-
-* [《石濤聚焦》「中共國連續三次拒絕美國援助」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/701be26196a8806ae22bcaceb17268193af04858.torrent)
-
 * [醫學專家：病毒感染人數已有10萬2月4日傳染人數將超過25萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff3596aecb5505906e7060d45ce1e4f59a633c72.torrent)
-
-* [武漢肺炎擴散美法包機本週接回本國人更多國家在尋求將本國公民接回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4edb8acb4714f442527330b1da35f6893c439f8.torrent)
-
-* [武漢肺炎確診病例猛增京津滬停長途客運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a5cda6a7fd47a688ee5bcc97cd917ba38267e20.torrent)
-
-* [加國首例患者搭CZ311返國患者的妻子成为第二例患者或造成更多病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58e6cedfa734bebaf076636cdb0abf3a7c1fdead.torrent)
-
-* [台灣確診第5例武漢肺炎病例患者曾與首例搭班機疫情中心推斷她在武漢時感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f3bf7178f9adc6e9047e2ea5989b883b1fb437b.torrent)
-
-* [《石濤聚焦》「習總統領再欺騙：1個月可出疫苗」效仿03年血清治療之欺騙美國家級機構要3個月港大要1年袁國勇教授「不可能最快1年」注：中共把病人當作動物實驗品-就可以.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b12aa88ad8e3842e1d97a96efc24f743d6a82d3e.torrent)
-
-* [李克强疫区冒险，习近平霸占头条。武汉市长一语泄天机！湖北民怨沸腾.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d00a950b4194f34c2f78a55e9c1d9bb3c64f2a85.torrent)
-
-* [《石濤.News》「非典SARS2.0最新消息」染病5千亡106上海揚州武漢隨街地鐵購物倒斃者8名造謠者被高法平反鐘南山10內大爆發公安部長地方不能封路-習傯認敗上海近萬人北京有錢人先亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac035ba6e55cd6475321b71000bcd3810593cb8.torrent)
 
 * [知情者：中共用試劑盒數量控制感染數據中共官方嚴控感染人數和死亡率外界得不到真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5d9167b69b93ad52ed5c5bf7ef5b7a74eb465c6.torrent)
 
-* [全國封路愈演愈烈隔絕疫情疫情正迅速蔓延導致物資匱乏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cefb1d3826708421a1c4f2c81ce296c777613b08.torrent)
-
-* [全美2020人口普查華府市長籲華人積極參與.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6255e1da206d7958f3fb5def75a1da7acb922acc.torrent)
-
 * [白宮亞太裔行動計劃彭斯：美國準備好幫助疫情中的中國人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/716054e9abf6c76d1670b8834acd75da8c24458f.torrent)
-
-* [近20國確診感染病例柬埔寨和斯里蘭卡出現首例病患多國開始前往中國撤離僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7239b2db58a45fd81f1e19574dfb7f84cbd81ff.torrent)
-
-* [香港民主黨請願行動不做肺炎收容港要求港府立即封閉跨境渡輪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7575108c85a28e1652054bae189da1c0dcaca02.torrent)
-
-* [武漢人冒風險講述武漢疫情的真實情況向國際社會求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c953abaf1d06e45311a22af14f6a87da534fb6b.torrent)
-
-* [醫療用品不足武漢醫護人員風險加大中共官方嚴控感染人數和死亡率外界得不到真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cb9aa1dbae93b2f01ba1740b6a603720c66f58a.torrent)
-
-* [【專訪台灣抗SARS專家（1）】新SARS會透過眼睛傳染不過病毒量小於飛沫傳染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c0b08ed6be0b832f3f1535ff1007f800a4c444c.torrent)
-
-* [【專訪台灣抗SARS專家（3）】媒體和政治透明對防疫至關重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95a6bab31b8eaa1c14a0777944247ed316f01b9a.torrent)
 
 * [【專訪台灣抗SARS專家（2）】新SARS+流感+春節研究十幾年還是無解預測武漢醫療已崩潰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0beaaf4222c99cea9fc38d822b272a021e28dcf.torrent)
 
-* [【緊急】4月疫情恐暴增每天增加20萬病患；黑心口罩人心比病毒更可怕；下一個重災區在哪裡？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2a32e32e22df0e50be98ce476d6e5109c98e4d4.torrent)
+* [美國高院裁決支持「公共負擔」移民新規.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83225d652fa2e2814aaee80113b31730d8548a48.torrent)
 
-* [武漢肺炎最新消息：500萬人離開武漢，封城何用？中共官員開始互咬：數字不是我要隱瞞的。川普捧習近平換順利撤僑（江峰漫談20200128第105期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1249147b5bc1e63dfa975c5fc3b5ce969a28f641.torrent)
+* [美國籃球明星科比意外去世許多中國球迷震驚與惋惜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fa8ed9b9b2185ecefd3b125fa0b6d36becf6ffb.torrent)
 
-* [政府不道歉，民众不追责，各家自扫门前雪，中国的希望在哪儿？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8aa187ab61478cde62909742854a07fc4c9d2c4.torrent)
+* [武漢百姓：說2020奔小康現在人都沒了求求你們下台吧！誰來救救我們老百姓？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad463fe4057a36383b34a599e5d93bec3740ce93.torrent)
+
+* [NBA傳奇球星科比不幸去世美各界哀悼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3518f04e8a648791c2fec62020db53be0506010.torrent)
+
+* [奧斯維辛集中營紀念大屠殺75周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5e4af987ee0d79aed68f534e60ccf56629a1a53.torrent)
+
+* [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
+
+* [武汉封城，多城跟进！会断网吗？在一种情况下真会发生（20200123第687期）.mp4](https://torrentsshare.s3.amazonaws.com/%E6%AD%A6%E6%B1%89%E5%B0%81%E5%9F%8E%EF%BC%8C%E5%A4%9A%E5%9F%8E%E8%B7%9F%E8%BF%9B%EF%BC%81%E4%BC%9A%E6%96%AD%E7%BD%91%E5%90%97%EF%BC%9F%E5%9C%A8%E4%B8%80%E7%A7%8D%E6%83%85%E5%86%B5%E4%B8%8B%E7%9C%9F%E4%BC%9A%E5%8F%91%E7%94%9F%EF%BC%8820200123%E7%AC%AC687%E6%9C%9F%EF%BC%89.mp4.torrent)
+
+* [香港新華社大樓被焚燒，牆外噴字“驅逐共黨”；11月2號香港示威者維園、遮打、尖沙咀多處聚集，警水炮車驅趕抓捕，一人背部遭催淚彈炸出窟窿新聞拍案驚奇大宇.mp4](https://torrentsshare.s3.amazonaws.com/%E9%A6%99%E6%B8%AF%E6%96%B0%E8%8F%AF%E7%A4%BE%E5%A4%A7%E6%A8%93%E8%A2%AB%E7%84%9A%E7%87%92%EF%BC%8C%E7%89%86%E5%A4%96%E5%99%B4%E5%AD%97%E2%80%9C%E9%A9%85%E9%80%90%E5%85%B1%E9%BB%A8%E2%80%9D%EF%BC%9B11%E6%9C%882%E8%99%9F%E9%A6%99%E6%B8%AF%E7%A4%BA%E5%A8%81%E8%80%85%E7%B6%AD%E5%9C%92%E3%80%81%E9%81%AE%E6%89%93%E3%80%81%E5%B0%96%E6%B2%99%E5%92%80%E5%A4%9A%E8%99%95%E8%81%9A%E9%9B%86%EF%BC%8C%E8%AD%A6%E6%B0%B4%E7%82%AE%E8%BB%8A%E9%A9%85%E8%B6%95%E6%8A%93%E6%8D%95%EF%BC%8C%E4%B8%80%E4%BA%BA%E8%83%8C%E9%83%A8%E9%81%AD%E5%82%AC%E6%B7%9A%E5%BD%88%E7%82%B8%E5%87%BA%E7%AA%9F%E7%AA%BF%E6%96%B0%E8%81%9E%E6%8B%8D%E6%A1%88%E9%A9%9A%E5%A5%87%E5%A4%A7%E5%AE%87.mp4.torrent)
+
+* [台湾大选蔡英文成功连任！中共力推小英护台湾民主自由、抵制一国两制！港人齐撑台湾！（老北京茶馆_第226集_2020_01_11）-p9ThXUPZ1mU.mp4](https://torrentsshare.s3.amazonaws.com/%E5%8F%B0%E6%B9%BE%E5%A4%A7%E9%80%89%E8%94%A1%E8%8B%B1%E6%96%87%E6%88%90%E5%8A%9F%E8%BF%9E%E4%BB%BB%EF%BC%81%E4%B8%AD%E5%85%B1%E5%8A%9B%E6%8E%A8%E5%B0%8F%E8%8B%B1%E6%8A%A4%E5%8F%B0%E6%B9%BE%E6%B0%91%E4%B8%BB%E8%87%AA%E7%94%B1%E3%80%81%E6%8A%B5%E5%88%B6%E4%B8%80%E5%9B%BD%E4%B8%A4%E5%88%B6%EF%BC%81%E6%B8%AF%E4%BA%BA%E9%BD%90%E6%92%91%E5%8F%B0%E6%B9%BE%EF%BC%81%EF%BC%88%E8%80%81%E5%8C%97%E4%BA%AC%E8%8C%B6%E9%A6%86_%E7%AC%AC226%E9%9B%86_2020_01_11%EF%BC%89-p9ThXUPZ1mU.mp4.torrent)
+
+* [你爱和我爱的不同.mp4](https://torrentsshare.s3.amazonaws.com/%E4%BD%A0%E7%88%B1%E5%92%8C%E6%88%91%E7%88%B1%E7%9A%84%E4%B8%8D%E5%90%8C.mp4.torrent)
+
+* [10月31日维权动态.mp4](https://torrentsshare.s3.amazonaws.com/10%E6%9C%8831%E6%97%A5%E7%BB%B4%E6%9D%83%E5%8A%A8%E6%80%81.mp4.torrent)
 
