@@ -12,12 +12,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/La9bFx)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1oPSN5)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【中国禁闻】2月4日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d248c7e635097269211a358eb4fbfa610a2829eb.torrent)
+
+* [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dd4b9e3dc5c77ae8d7312aa9aa5b1c79a3b85a.torrent)
 
 * [武漢肺炎肆虐，习近平哪去了？外交部华春莹说漏嘴泄秘密！封城时代宅家最优方案！（老北京茶馆第240集20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/945c4aea6094262dd670dd34322481d002f6aff8.torrent)
 
@@ -318,10 +322,6 @@
 * [英國正式脫歐11個月過渡期談判開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07853b5c547c6d79c9851cc1a0f3ba50a3846689.torrent)
 
 * [浸大高教呂秉權：中共重點不在防疫而是控制輿論擔憂港府遲遲不全面封關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd8ab835613c43a7c19563f0ab9bd5f809d0c698.torrent)
-
-* [武漢肺炎國際傳播英國意大利首次出現確診病例各國撤僑航班停飛中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/069de7f03bca5ad90376991a1a16d801a090ce0c.torrent)
-
-* [香港出現人傳人武漢肺炎個案民間聲浪要求封關港府再次拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1f91f7782071c3026fc96844f55e6b1fb256534.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
