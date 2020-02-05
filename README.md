@@ -12,7 +12,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EMjKvD)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aRJpUj)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -327,10 +327,6 @@
 
 * [世衛組織宣布武漢肺炎突發公共衛生事件，對中國衝擊有多大？軍隊進城後面的權鬥陰影；多國停飛航線；香港遲到的封關，台灣拒絕口罩的道德綁架（江峰漫談20200131第108期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daff43f67548d96e573cc73b5e2392dafdf84a34.torrent)
 
-* [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50414472dee552a1243ab6222afbe6af2e707d3d.torrent)
-
-* [【禁闻】武汉肺炎中共下指标控制就诊人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb5c0378d8697ec4ef8729e0c118d166b96d0379.torrent)
-
 * [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)
 
 * [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)
@@ -370,8 +366,6 @@
 * [武汉肺炎毒源鉴定有重大逆转；军队被病毒攻陷！武汉病毒研究所里发生了什么（20200128第690期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea4246ef8ae3bd11d9cd7dc779df8a7a6588e001.torrent)
 
 * [【禁闻】2020全民脱贫？百姓党对人民的欺骗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ac80157eb3797ea2a57eff2409faab7b18d3a11.torrent)
-
-* [【环球直击】1月28日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f96392c3ff54a3e5d2d1fbf79cfd51209664603.torrent)
 
 * [【禁闻】章天亮：2020年为中共垮台做准备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/594e2076d79d95f6226fb0ff3cce54c74b1d3050.torrent)
 
@@ -418,4 +412,10 @@
 * [【專訪台灣抗SARS專家（3）】媒體和政治透明對防疫至關重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95a6bab31b8eaa1c14a0777944247ed316f01b9a.torrent)
 
 * [【專訪台灣抗SARS專家（2）】新SARS+流感+春節研究十幾年還是無解預測武漢醫療已崩潰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0beaaf4222c99cea9fc38d822b272a021e28dcf.torrent)
+
+* [【緊急】4月疫情恐暴增每天增加20萬病患；黑心口罩人心比病毒更可怕；下一個重災區在哪裡？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2a32e32e22df0e50be98ce476d6e5109c98e4d4.torrent)
+
+* [武漢肺炎最新消息：500萬人離開武漢，封城何用？中共官員開始互咬：數字不是我要隱瞞的。川普捧習近平換順利撤僑（江峰漫談20200128第105期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1249147b5bc1e63dfa975c5fc3b5ce969a28f641.torrent)
+
+* [政府不道歉，民众不追责，各家自扫门前雪，中国的希望在哪儿？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8aa187ab61478cde62909742854a07fc4c9d2c4.torrent)
 
