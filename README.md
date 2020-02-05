@@ -12,7 +12,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KCZGgA)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HVoeYi)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -320,8 +320,6 @@
 * [武漢肺炎國際傳播英國意大利首次出現確診病例各國撤僑航班停飛中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/069de7f03bca5ad90376991a1a16d801a090ce0c.torrent)
 
 * [香港出現人傳人武漢肺炎個案民間聲浪要求封關港府再次拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1f91f7782071c3026fc96844f55e6b1fb256534.torrent)
-
-* [韓醫師：預防病毒性肺炎關鍵在於清理肺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bdb126af41b2870e4e05bd300db1d45d6839269.torrent)
 
 * [紐約華人狂掃口罩寄回大陸快遞打包忙翻天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b6342c9071279af29d7f6e02bcecb83c8a38e4c.torrent)
 
