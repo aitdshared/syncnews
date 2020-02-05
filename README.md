@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MFEzaN)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KTiuBd)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [武漢男子崩潰？提菜刀上街警察多處抓人和圍捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2ed798f80931af14cee4985ee8add29a1d69115.torrent)
 
 * [獨家：醫療內部資料曝光！發燒就地焚燒！習被喊下台，川普5談中國，出生30小時確診染病，1人確診4000人隔離，爆料：xwkd2017@gmail.com【新聞看點】（20200205）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b85a2d53be01416b83b5f07bb1fcc4e7c5f47905.torrent)
 
@@ -322,8 +324,6 @@
 * [【禁闻】武汉肺炎冲击中共会否履行美中贸易协议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b70f3652255a89fc2200eb8d507964ff0d914c7.torrent)
 
 * [感谢郭大老板高抬贵手放过我们.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72aa27732801e2bd669d1f065697c2e92b2fe61f.torrent)
-
-* [《石濤聚焦》「最新即時：1.2萬人確診259人亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a15191d15b035ef95daa09c5c804d12b34db6ed2.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
