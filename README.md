@@ -12,12 +12,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2hgVvx)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c5USEJ)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】武汉医护人员对话流出显疫情严峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7b7175810b1080d59612fe6181a271cbfd98fc7.torrent)
+
+* [【禁闻】应对中共威胁美两党智库提出近百倡议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1565ad8e2c565a46cb542c43c87bb0cecfa23ee.torrent)
 
 * [【禁闻】中共下武汉疫情封口令最高判十五年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23682c61c46c20987a89024b0507c86b890efbe2.torrent)
 
@@ -320,10 +324,6 @@
 * [應對武漢肺炎全台醫院防疫升級重啟疫病門診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22e73ae58dac2fddb89a22e8a5a897274880c319.torrent)
 
 * [紐約華人狂掃口罩寄回大陸快遞打包忙翻天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b6342c9071279af29d7f6e02bcecb83c8a38e4c.torrent)
-
-* [武汉人怒揭官宣造假，王沪宁封杀王岐山！世卫宣布紧急状态，世界为中共独裁付出代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c66660927db8e417b371587eeba1f9582235d711.torrent)
-
-* [【环球直击】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d24e045806a257da232e9e3346eda311fa3dd23e.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
