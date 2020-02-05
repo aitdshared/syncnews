@@ -16,7 +16,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RnV8BG)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ivvKbW)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -322,10 +322,6 @@
 * [彈劾案審理進入最後階段川普或很快被判無罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67d1002b3ed4b3141354502c446b52827dd6a0fd.torrent)
 
 * [服務業受重創新冠肺炎經濟衝擊或超薩斯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/760982654fde5824f732506d14b9f157fc2c6bcf.torrent)
-
-* [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece6058a416297cb02f54190e7f82c302f0c5988.torrent)
-
-* [武汉肺炎二次爆发迫在眉睫美国将中国旅游警示提至最高级多国彻底断航(政论天下第99集20200131)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/471a7cd8429161800a88113b620e67ccc0f81a94.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
