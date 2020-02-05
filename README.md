@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cuNmwZ)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9vucgr)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [六階段選出總統2020美國大選流程.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c33b5f0d56a6f5e3f34117dd4f328fe6a694fd1d.torrent)
 
 * [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
@@ -322,8 +324,6 @@
 * [【中国禁闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bf4fbf1f35e932beb2e802043c026ad3bdf0bd4.torrent)
 
 * [【全球新闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbc95d1a1499302474e410b5a392d16a83ea94b.torrent)
-
-* [韩国撤侨，中共居然这么干，中共才是真正的病毒，中国人醒醒吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e389f4baf9a4c34f2766c65f3d0a905f5854fa.torrent)
 
 * [【禁闻】传参加两会被传染杨晓波“重症肺炎”死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc2002f58906f570e5815062996c27f690bde38.torrent)
 
