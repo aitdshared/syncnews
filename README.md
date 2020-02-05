@@ -2,7 +2,7 @@
 
 ## WebTorrent自动更新视频自带播放器边下边看（最推荐！）
 
-在Windows电脑上打开网址 https://is.gd/wt21win 下载后解压、双击执行WebTorrent.exe，如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新。
+在Windows电脑上打开网址 https://is.gd/wtwinse 下载后双击执行WebTorrentSE.exe，如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新。
 
 ## [Windows版BT下载工具qBittorrent点我下载（推荐）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
 
@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ivvKbW)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cWP4hQ)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤聚焦》「林鄭最終半封關天滅中共被高層接受—留下唯一逃生之門」因70個國家封鎖中共國國內12省市37個大城市封城貴州吉林等全省城市鎮「社區自我封閉式」封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cfdab14d31b7100333ffd2a933cd4b60d40cd99.torrent)
 
 * [【解讀】民眾染武漢肺炎台灣部長落淚兩岸抗疫大不同；南京封城中共捐20萬口罩給菲律賓？武漢台灣人返鄉，中共搞政治鬥爭？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd7634c77084885c68536d5702d838be76cdfdcc.torrent)
 
@@ -318,8 +320,6 @@
 * [母武漢患病獲救助加移民感謝新唐人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af292428e2716ef8f576691a1591ee17df35abe1.torrent)
 
 * [新冠病毒攻入26國美國宣布進入國家公共衛生緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2680c5d4b4a82ef48a7cb8e2201f645912b3d1e1.torrent)
-
-* [彈劾案審理進入最後階段川普或很快被判無罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67d1002b3ed4b3141354502c446b52827dd6a0fd.torrent)
 
 * [服務業受重創新冠肺炎經濟衝擊或超薩斯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/760982654fde5824f732506d14b9f157fc2c6bcf.torrent)
 
