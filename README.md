@@ -12,12 +12,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s8gSty)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1FxQwC)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
 * [杭州也下封城令！“杭三封”与武汉的异同，遗漏的视角；习近平神隐，真正的挑战所在（20200204第694期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412ba33c5f4713be4875e02ae414980191980834.torrent)
 
@@ -327,95 +329,93 @@
 
 * [《濤哥侃封神》「封神演義第二十二回西伯侯文王吐子」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50414472dee552a1243ab6222afbe6af2e707d3d.torrent)
 
-* [【禁闻】1月30日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fa9010556924a9c20cbb2f1beee70b41002afdb.torrent)
-
 * [【禁闻】武汉肺炎中共下指标控制就诊人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb5c0378d8697ec4ef8729e0c118d166b96d0379.torrent)
 
-* [【禁闻】1月30日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8532d817abb3c12cc5c08e18b868bc986b0bc7e.torrent)
+* [【全球新闻】1月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fe11f91717b5daae8fa0541bf2446006927d6a.torrent)
 
-* [【禁闻】参与中共千人计划哈佛化学系主任被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e05a76797383e3ef7832e5a242cfb3c9a6c68f3c.torrent)
+* [❎3個可怕特徵！令武漢肺炎疫情走向高峰⏰解析今後2個關鍵峰值！當前死者數據準確嗎？未來轉機：疫苗研發進展；報導指朝鮮1例確診，7湖北高官感染；新拍互動：為何洗手更重要新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae59472b4d14288ac220999ac151c0524d5856f5.torrent)
 
-* [美國海關在美墨邊境發現了一條有史以來最長的偷渡地道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48aa97caa4f4d0a47d5e468b26c55438279f19b9.torrent)
+* [【全球新闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee359a33e4f4f3446663f204aaa20783c4c215f2.torrent)
 
-* [【禁闻】如果有人穿越回1个月前能否救武汉？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/125303f93068f1b08fc3f86e0226a32f73ef5469.torrent)
+* [武漢肺炎最新消息：中共拒絕美國疾控中心CDC援助控制新冠狀病毒背後不可告人的陰謀美國撤僑抵安大略機場微信謠言華人恐懼（江峰漫談20200129第106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb28e683a1ea94869558cb37d82c116e6518d664.torrent)
 
-* [《石濤聚焦》「丹麥作家“病毒五星旗”惹怒中共強硬堅持」美商務部長羅斯驚人之語：中共國經營風險倍增美企應回流「中共國供應鏈必備摧毀」納瓦羅「不會因肺炎-非典2.0而取消關稅」（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/997c0d9d460e1987deba4c10a53c8734c36b41d9.torrent)
+* [武漢人，在自己的祖国流浪……武漢肺炎纪实之一：游走在生活边缘的武漢同胞（老北京茶馆第235集20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260084f236f2fb9ded06a10b4bb2fb5fb7a78612.torrent)
 
-* [疾控中心專家論文曝光12月已發生人傳人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09e103abf02a00495935c970662499f097af0974.torrent)
+* [《濤哥侃封神》「封神演義第二十一回文王夸官逃五關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1c0a99e307d8bf5fbc78e4dea544a9748f7152.torrent)
 
-* [新型冠狀病毒全面攻陷中國大陸在全球持續蔓延到22國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7950f1a327c9c99bc6dbd57f53344a44c685844.torrent)
+* [【禁闻】“湖北不止武汉”周边县市求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5e2d1699f0740bf2892d77e79b6b5d6461b7e3.torrent)
 
-* [蓬佩奧訪英談貿易華為問題亟待解決英脫歐後兩國貿易協議將成爲重點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5666b364632970ab321d17077b80a1e3b495992.torrent)
+* [【中国禁闻】1月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b48578d93e13ba6fccb13f99318395e0cbe030cb.torrent)
 
-* [美國五角大樓密切關注武漢疫情美中軍事交流全面停止.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/320d597129f140c90454a6cf417746429a7e1e66.torrent)
+* [《石濤聚焦》「習近平以世衛作背景高聲宣稱‘我統領防疫一切’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f35059d6e6e176ba9f4176c4cdc068497e2f9214.torrent)
 
-* [首批撤僑被隔離有人披露撤離的經歷美國務院宣布2月3日將再次派飛機至武漢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04efd18d2b7b832f845dbe1669e001ad84217484.torrent)
+* [《石濤聚焦》「非典SARS2.0最新更新」感染者超6000亡132西藏出現全國淪陷美考慮停飛中國-完全切斷德國日本出現2代本土傳染加國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e54e2e8f6f09150b9981983fda0f14731886e20.torrent)
 
-* [《石濤聚焦》「美宣布：撤出所有領事館非緊急人員與家屬」突發：美方以武漢為準等同對待北京上海重慶視全國為疫區「武大美德籍學生：仿似置身世界末日」等待德國撤僑飛機（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2727ed2d596b5920317a169b2cd8d0dbc2911699.torrent)
+* [【禁闻】武汉肺炎地方中央互推责民吁中共下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9062cee05ee7123b3aaa0556c0dc2e5c4f418a9f.torrent)
 
-* [世衛新冠肺炎構成國際突發公共衛生事件.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2ef36e5ff23b54eddb9446ff9f87c17c43cdf67.torrent)
+* [【禁闻】传参加两会被传染杨晓波“重症肺炎”死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc2002f58906f570e5815062996c27f690bde38.torrent)
 
-* [《石濤聚焦》「最新數據：感染者近萬人亡213義大利淪陷」以色列義大利中斷航空美國人傳人IKEA關閉所有店鋪「習近平稱疫情為惡魔」與「出埃及記-神降災」對立等同「侮辱神佛道」（3001）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1916d26b7c386becca7986edea227e72765c1eb7.torrent)
+* [10大守則助您防範武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c87bbd455edbd0fe7176ee3481329f9382537bb.torrent)
 
-* [【禁闻】中国制无人机有后门美日考虑禁用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6eab71d3ecefb1013534cf07cf4072a2f32e5dbd.torrent)
+* [更多的線索表明中共對疫情作假武漢肺炎蔓延17國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/087e9854327c487707c61c6b0ba7aa6b9d577d3a.torrent)
 
-* [【禁闻】武汉肺炎疫情升温全球大撤侨断航中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b174c6197f9ea3b9a88ce613f75158c04a0d709b.torrent)
+* [武漢肺炎疫情不斷影響全球美議員質疑武漢肺炎來源籲中共信息透明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98c4d78b090218036161f3eecc0a35cadb347c0d.torrent)
 
-* [知情人講述：湖北腦癱兒家人被隔離孤獨一人受凍挨餓6天后去世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1f633a661742b26d910cdfd2f6654f9c0f00b74.torrent)
+* [NTSB公布球星科比墜機現場畫面面目全非未能找到飛機的黑匣子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e560851b9f2402047591e10159679fbba522641.torrent)
 
-* [武汉肺炎，世界卫生组织宣布全球紧急事件；武警部队染病毒;大瘟疫下的良知拷问;社会大动荡下,如何获得心灵的抚慰和安宁(政论天下第98集20200130)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc1f3e032dc43cc5f42ef9f38c5b9fd50570f5b.torrent)
+* [美國南加州機場嚴陣以待將接收武漢回美人員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dfa8b56cba6737c5c55f9eff443701c145f102a.torrent)
 
-* [【环球直击】1月31日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b98ec8df0e418a86dbc09cf7f8b66e9e4b740344.torrent)
+* [武汉肺炎伪装躲过检测;病毒不止一种,毒源不止一个亡党威胁隐现(政论天下第96集20200128)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f7580e67d8fb58e5943bd08d92d332ac22eb239.torrent)
 
-* [大陸被感染區不斷傳出令人心酸的一句話“又倒了一個”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba369c7ab3f924fd817f200f8c43d813490849ad.torrent)
+* [武汉肺炎毒源鉴定有重大逆转；军队被病毒攻陷！武汉病毒研究所里发生了什么（20200128第690期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea4246ef8ae3bd11d9cd7dc779df8a7a6588e001.torrent)
 
-* [武汉肺炎最新疫情：先封口后封城，离开中国越来越难了王剑每日财经观察20200130.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/818cdda89d456089c8cd2905741735d60df68d0e.torrent)
+* [【禁闻】2020全民脱贫？百姓党对人民的欺骗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ac80157eb3797ea2a57eff2409faab7b18d3a11.torrent)
 
-* [新闻茶座：武汉人湖北人这些日子都经历了什么王剑每日财经观察20200131.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da90fd5821218172cd883548c0fc36b9a2b12e0a.torrent)
+* [【环球直击】1月28日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f96392c3ff54a3e5d2d1fbf79cfd51209664603.torrent)
 
-* [疫情難控，國際插手，中共高官不戴口罩有秘密！刷屏三件事「細思極恐」，爆料郵箱：xwkd2017@gmail.com【新聞看點】（20200130）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ab765d3f2daca3884758f7dbe91711664962eb5.torrent)
+* [【禁闻】章天亮：2020年为中共垮台做准备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/594e2076d79d95f6226fb0ff3cce54c74b1d3050.torrent)
 
-* [武汉肺炎疫情：压在疫区的三座大山王剑每日财经观察20200130.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/292845efbbbede65b5d16909be54f4138dceb273.torrent)
+* [往哪逃？瘟疫下的陰謀：5大問題看清它這麼殺人！武漢死亡上萬，武漢小夥再求救，武漢市長甩鍋，習近平要「黨員先上」。【新聞看點】（20200128）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9264290c83c0efbcab5c552b2ae52148c864a3eb.torrent)
 
-* [《石濤聚焦》「突發：WHO終於確認武漢肺炎-非典2.0」為［國際關注公共衞生緊急事件］習傯好友總幹事「不是對中共國不信任」含義包括：發生嚴重突然不尋常意外等事件超出國界立即採取國際行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a147489379ceb11db51a2758711071d319e6d66.torrent)
+* [【微视频】武汉假封城真围城北京真封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25ba5d1dcdb3ddbb48bad193bb4babde2846fd08.torrent)
 
-* [火神山醫院工地陳秋實與武漢當地人一起實訪武漢版“小湯山醫院”（“公民記者陳秋實武漢疫區採訪實錄”系列08）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bd0afa52fd52d5f3327bd3c2b98cd37378c6ec7.torrent)
+* [《石濤聚焦》「中共國連續三次拒絕美國援助」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/701be26196a8806ae22bcaceb17268193af04858.torrent)
 
-* [資源緊缺，疫情緊急陳秋實大年初六中午焦慮總結報導（“公民記者陳秋實武漢疫區採訪實錄”系列10）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33cd865a64fdcb4f0fe38cbaefa2e64bbc01393b.torrent)
+* [醫學專家：病毒感染人數已有10萬2月4日傳染人數將超過25萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff3596aecb5505906e7060d45ce1e4f59a633c72.torrent)
 
-* [武汉第五医院大概是发烧和咳嗽多日一直排不到床位所以情绪崩溃了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f40e5b68060d136de84adc5f8a1e8c38e066aa2.torrent)
+* [武漢肺炎擴散美法包機本週接回本國人更多國家在尋求將本國公民接回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4edb8acb4714f442527330b1da35f6893c439f8.torrent)
 
-* [大陸民間缺口罩智慧防疫自救頭上頂個大罐子柚子皮也派上用場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d91096d712b7926773d3d77a874eb517b4a3d16.torrent)
+* [武漢肺炎確診病例猛增京津滬停長途客運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a5cda6a7fd47a688ee5bcc97cd917ba38267e20.torrent)
 
-* [【环球直击】1月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96ef6d9cd7860395ccf9dd4d73611471f5b0f73d.torrent)
+* [加國首例患者搭CZ311返國患者的妻子成为第二例患者或造成更多病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58e6cedfa734bebaf076636cdb0abf3a7c1fdead.torrent)
 
-* [港人排隊瘋搶口罩市民專家批港府無能.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27eb6fd452836d08cb4dca92390fa17a3e663a0c.torrent)
+* [台灣確診第5例武漢肺炎病例患者曾與首例搭班機疫情中心推斷她在武漢時感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f3bf7178f9adc6e9047e2ea5989b883b1fb437b.torrent)
 
-* [民生緊張物資短缺武漢市民痛批紅十字會搶劫捐贈物資用來牟利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/439d5ff2cc994c47212c2163db2249ae17d813af.torrent)
+* [《石濤聚焦》「習總統領再欺騙：1個月可出疫苗」效仿03年血清治療之欺騙美國家級機構要3個月港大要1年袁國勇教授「不可能最快1年」注：中共把病人當作動物實驗品-就可以.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b12aa88ad8e3842e1d97a96efc24f743d6a82d3e.torrent)
 
-* [高官相繼染肺炎湖北官場搶打球蛋白自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69edd2c59cf09fbec962c701666e70901f106fdb.torrent)
+* [李克强疫区冒险，习近平霸占头条。武汉市长一语泄天机！湖北民怨沸腾.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d00a950b4194f34c2f78a55e9c1d9bb3c64f2a85.torrent)
 
-* [哈佛教授：肺炎疫苗四个月出，药物半年；顶级生化武器专家认为中共没开发生物武器，原因出人意料；患者家门被封，功利主义社会酿人间惨剧。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfe0e20630b7206c4abc3eb50392fa3d42fd0262.torrent)
+* [《石濤.News》「非典SARS2.0最新消息」染病5千亡106上海揚州武漢隨街地鐵購物倒斃者8名造謠者被高法平反鐘南山10內大爆發公安部長地方不能封路-習傯認敗上海近萬人北京有錢人先亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac035ba6e55cd6475321b71000bcd3810593cb8.torrent)
 
-* [日本從武漢撤回的僑民中有3人感染武漢肺炎其中2人無任何症狀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34f4f4b5023206606bd5c565c6c201b5cfda22e.torrent)
+* [知情者：中共用試劑盒數量控制感染數據中共官方嚴控感染人數和死亡率外界得不到真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5d9167b69b93ad52ed5c5bf7ef5b7a74eb465c6.torrent)
 
-* [川普成立疾病控制與預防中心CDC：撤僑專機無高風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452fc41ed86be27934accd124ae273d3dd4a52d4.torrent)
+* [全國封路愈演愈烈隔絕疫情疫情正迅速蔓延導致物資匱乏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cefb1d3826708421a1c4f2c81ce296c777613b08.torrent)
 
-* [英國批准華為參與5G蓬佩奧赴倫敦勸阻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17c0043407c1b2df439d83f8e77b48ed849772c3.torrent)
+* [全美2020人口普查華府市長籲華人積極參與.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6255e1da206d7958f3fb5def75a1da7acb922acc.torrent)
 
-* [菲律賓等國新增確診病例多國撤僑多個航空公司宣佈暫停往返中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/807caeead1a0491f72b78491df2cb11a2032ff0b.torrent)
+* [白宮亞太裔行動計劃彭斯：美國準備好幫助疫情中的中國人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/716054e9abf6c76d1670b8834acd75da8c24458f.torrent)
 
-* [《石濤.News》「突發：WHO再次替‘習勢-共黨’出頭」拒絕宣佈肺炎非典2.0為［危害］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d36141e31d7cc4fbe23dddedeec5e6afb97d2f07.torrent)
+* [近20國確診感染病例柬埔寨和斯里蘭卡出現首例病患多國開始前往中國撤離僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7239b2db58a45fd81f1e19574dfb7f84cbd81ff.torrent)
 
-* [王沪宁急了，大胆篡改习近平原话！国难当头，国人继续愚昧？上海主任医生一炮而红.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6af4e35683145c8fc1e433a89212b820ebde85b2.torrent)
+* [香港民主黨請願行動不做肺炎收容港要求港府立即封閉跨境渡輪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7575108c85a28e1652054bae189da1c0dcaca02.torrent)
 
-* [【解讀】武漢肺炎致死率有多高？火葬場為何晝夜燒不停？病毒來源藏詭異？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ff51d45a9e5e7f2d0819cec82435f856589e6d0.torrent)
+* [武漢人冒風險講述武漢疫情的真實情況向國際社會求助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c953abaf1d06e45311a22af14f6a87da534fb6b.torrent)
 
-* [武漢肺炎疫情真实数字流出？真相与谎言之间，只差了一个脚趾头的距离！（老北京茶馆第236集20200130）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96fe2d09beeab13e18f540fef77948e01009fa9b.torrent)
+* [醫療用品不足武漢醫護人員風險加大中共官方嚴控感染人數和死亡率外界得不到真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cb9aa1dbae93b2f01ba1740b6a603720c66f58a.torrent)
 
-* [【武漢肺炎最新消息】美國撤僑航班降落軍用機場，美中處理疫情：公民與草民之別；美國頂級化學家涉千人計劃被控（江峰漫談20200130第107期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/614e242cbde27539a177fb5c70c8b13c5b24e7c3.torrent)
+* [【專訪台灣抗SARS專家（1）】新SARS會透過眼睛傳染不過病毒量小於飛沫傳染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c0b08ed6be0b832f3f1535ff1007f800a4c444c.torrent)
 
-* [【全球新闻】1月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea43aaad720d048254157a5814068adf80e45f53.torrent)
+* [【專訪台灣抗SARS專家（3）】媒體和政治透明對防疫至關重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95a6bab31b8eaa1c14a0777944247ed316f01b9a.torrent)
 
-* [韩国情况急迫，两病例接触几百人，首尔防疫圈或被击破，在韩朋友要小心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63b9b5dd4d2e256db3e45fe0629585809a09e657.torrent)
+* [【專訪台灣抗SARS專家（2）】新SARS+流感+春節研究十幾年還是無解預測武漢醫療已崩潰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0beaaf4222c99cea9fc38d822b272a021e28dcf.torrent)
 
