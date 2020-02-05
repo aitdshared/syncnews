@@ -12,12 +12,18 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IMtenp)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2hgVvx)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】中共下武汉疫情封口令最高判十五年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23682c61c46c20987a89024b0507c86b890efbe2.torrent)
+
+* [《石濤.News》「最新：掩蓋下的數字-確診2.4萬亡500」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b12b0de20ebd29d81f28bbeb0925b7b7fe0233d.torrent)
+
+* [《石濤聚焦》「BBC：習近平失蹤七天全球關注」“親自指揮親自部署”之後人沒了「如為推卸責任給總理表面瘟疫不可戰勝」只能刷心眼兒「天滅中共之時不賴我習傯」（0402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79c5b56ac31dea98a84f38c8f6711b75c153fdb.torrent)
 
 * [疫情恐懼蔓延海外紐約法拉盛也是一「罩」難求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e757a968eed1b58b099901cdbe502c8561b0952e.torrent)
 
@@ -318,12 +324,6 @@
 * [武汉人怒揭官宣造假，王沪宁封杀王岐山！世卫宣布紧急状态，世界为中共独裁付出代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c66660927db8e417b371587eeba1f9582235d711.torrent)
 
 * [【环球直击】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d24e045806a257da232e9e3346eda311fa3dd23e.torrent)
-
-* [(大声版）哈佛教授：肺炎疫苗四个月出，药物半年；患者家门被封，功利主义社会酿人间惨剧。生化武器专家认为中共没开发生物武器，原因出人意料；.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8994b586a080edb99bd6ad097fade8208dfaa789.torrent)
-
-* [🈲政府內秘密5米安全距離、重慶潛伏期更短⁉️武漢觀眾6點爆料；新病毒發現者，曾疑慮「人工病毒」外洩！中國疾控中心主任高福「揭」人際傳染瞞報鐵證；8個造謠者幕後不簡單新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c277a5168afa344af73b44a0ad7bf161d9e5f508.torrent)
-
-* [【解讀】中共隱瞞病毒人傳人權威證據曝光；世衛為何吹捧中共？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/790c397935c5cd782555df2e8b9304aaacfa4b19.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
