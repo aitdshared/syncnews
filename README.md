@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6GZN5L)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rjOkbc)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [緊盯武漢包機防疫24hr未闔眼陳時中：有意義的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6353fd8569c39c211930ed8dcc482882541aedb.torrent)
 
 * [憂武漢肺炎美國南加華人城市學區1.4萬人連署停課.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/970d7607122a3daadcd563b8f80dcbf0dac3285c.torrent)
 
@@ -324,8 +326,6 @@
 * [《石濤聚焦》「12月中旬已經人傳人」習近平-重要指示發表於1月20日［看齊意識核心意識］+［兩個維護］直接造成今天全球共享［武漢肺炎-非典2.0］的人類命運共同體偉大境界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41b14144abb47e63ae2dbafe418c9c36a2f2c49b.torrent)
 
 * [《石濤聚焦》「紐時：習近平顧盼自雄的獨裁者」疫情蔓延全球為其買單「實現了“中國夢”全球遵從其“重要指示”完成了“一帶一路”目標」中共唯一神話般震撼世界的“聖人”（3101）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/467f8b98f5b4062015769dbf73aeecee146840ae.torrent)
-
-* [《石濤聚焦》「林鄭死抗拒關口岸」唯一理由：為習近平等中共權貴整體食利者保留一條逃亡海外的通道［WHO總幹事與林鄭雙簧為習傯與權貴服務］出賣港人的安全利益.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59e424019b7c960bf91f7ea97b613ebd9b7e04cf.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
