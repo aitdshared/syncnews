@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cWP4hQ)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4Y1WUd)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/043696fe9f981e00488615614f556112775ef0a9.torrent)
 
 * [《石濤聚焦》「林鄭最終半封關天滅中共被高層接受—留下唯一逃生之門」因70個國家封鎖中共國國內12省市37個大城市封城貴州吉林等全省城市鎮「社區自我封閉式」封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cfdab14d31b7100333ffd2a933cd4b60d40cd99.torrent)
 
