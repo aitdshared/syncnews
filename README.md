@@ -12,12 +12,18 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rs8wyj)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IMtenp)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [疫情恐懼蔓延海外紐約法拉盛也是一「罩」難求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e757a968eed1b58b099901cdbe502c8561b0952e.torrent)
+
+* [賴清德訪華府受邀出席全美祈禱早餐會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67f151b706e4c6cce5d5d3bfa6e61234fc4b1320.torrent)
+
+* [繼湖北省多個城市先後封城後更多省市不斷進入「封城」模式.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65dcd68acb101da619182b27e8131a3f1fc085a2.torrent)
 
 * [六階段選出總統2020美國大選流程.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c33b5f0d56a6f5e3f34117dd4f328fe6a694fd1d.torrent)
 
@@ -318,34 +324,6 @@
 * [🈲政府內秘密5米安全距離、重慶潛伏期更短⁉️武漢觀眾6點爆料；新病毒發現者，曾疑慮「人工病毒」外洩！中國疾控中心主任高福「揭」人際傳染瞞報鐵證；8個造謠者幕後不簡單新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c277a5168afa344af73b44a0ad7bf161d9e5f508.torrent)
 
 * [【解讀】中共隱瞞病毒人傳人權威證據曝光；世衛為何吹捧中共？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/790c397935c5cd782555df2e8b9304aaacfa4b19.torrent)
-
-* [世卫宣布全球卫生紧急状态！武汉肺炎疫情惊现次生灾害！持台湾护照被禁止回台湾！（老北京茶馆第237集20200131）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41df8840aa5a2253f1ded0361d1f61836138a1f8.torrent)
-
-* [【中国禁闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bf4fbf1f35e932beb2e802043c026ad3bdf0bd4.torrent)
-
-* [【全球新闻】1月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbc95d1a1499302474e410b5a392d16a83ea94b.torrent)
-
-* [【禁闻】传参加两会被传染杨晓波“重症肺炎”死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc2002f58906f570e5815062996c27f690bde38.torrent)
-
-* [NTSB公布球星科比墜機現場畫面面目全非未能找到飛機的黑匣子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e560851b9f2402047591e10159679fbba522641.torrent)
-
-* [醫學專家：病毒感染人數已有10萬2月4日傳染人數將超過25萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff3596aecb5505906e7060d45ce1e4f59a633c72.torrent)
-
-* [知情者：中共用試劑盒數量控制感染數據中共官方嚴控感染人數和死亡率外界得不到真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5d9167b69b93ad52ed5c5bf7ef5b7a74eb465c6.torrent)
-
-* [白宮亞太裔行動計劃彭斯：美國準備好幫助疫情中的中國人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/716054e9abf6c76d1670b8834acd75da8c24458f.torrent)
-
-* [【專訪台灣抗SARS專家（2）】新SARS+流感+春節研究十幾年還是無解預測武漢醫療已崩潰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0beaaf4222c99cea9fc38d822b272a021e28dcf.torrent)
-
-* [美國高院裁決支持「公共負擔」移民新規.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83225d652fa2e2814aaee80113b31730d8548a48.torrent)
-
-* [美國籃球明星科比意外去世許多中國球迷震驚與惋惜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fa8ed9b9b2185ecefd3b125fa0b6d36becf6ffb.torrent)
-
-* [武漢百姓：說2020奔小康現在人都沒了求求你們下台吧！誰來救救我們老百姓？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad463fe4057a36383b34a599e5d93bec3740ce93.torrent)
-
-* [NBA傳奇球星科比不幸去世美各界哀悼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3518f04e8a648791c2fec62020db53be0506010.torrent)
-
-* [奧斯維辛集中營紀念大屠殺75周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5e4af987ee0d79aed68f534e60ccf56629a1a53.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
