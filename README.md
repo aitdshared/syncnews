@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/96KqNM)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b3isoT)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤.News》「武漢肺炎最早8個造謠者之一今早離世34歲」國內喧騰人日報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e6ff54a6cc4bddf4915a0b9952c187a271bf709.torrent)
 
 * [北京：將減半750億美元美國進口商品關稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21dcfce946091a614b42d0f06d6e0d308560e56.torrent)
 
@@ -318,8 +320,6 @@
 * [「火神山」被軍管，看懂了嗎？武漢求援「運屍袋」，官方數字的秘密，拿著住院單排隊，住院前後的區別，爆料郵箱：xwkd2017@gmail.com【新聞看點】（20200202）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/739f6c0b5fc19e82ff743d3c21bc8e15b3253bb6.torrent)
 
 * [习近平多日不露面，王沪宁把武汉人民逼到死角！美国准备第三次拯救中国？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efc25da6e1bb04cd8e818a4f42349786d1bb359e.torrent)
-
-* [蹲守汉口殡仪馆报告武汉人民需要自觉自救发出你们的声音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/420e0b557dfd42cf9d42e1a21b16d5b428aa77a4.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
