@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TznGtd)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/acXZFw)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【环球直击】2月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d44b44724924c7ec87325c90e38f54b06ce6ea3.torrent)
 
 * [武汉女在政府門前怒吼：母亲在屋里隔离政府不管就是等死千万不要信政府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26d78c670c54516d9299e65b409f218d5c6d79bc.torrent)
 
@@ -322,8 +324,6 @@
 * [武汉的网络求助大多是真实的，我们用碎片的间接证据来拼凑事实.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a8e76a0d92c03ba3fb1d85b57596b5b8ec5c5a0.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
-
-* [【禁闻】武汉肺炎冲击中共会否履行美中贸易协议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b70f3652255a89fc2200eb8d507964ff0d914c7.torrent)
 
 * [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
