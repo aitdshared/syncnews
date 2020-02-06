@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6LzyNv)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aUGTvs)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [美國會首次武漢肺炎聽證議員置疑中共隱瞞疫情並拒絕與國際社會合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11a50cf0c9b196504da9bc35e7d16600ec5134f0.torrent)
 
 * [习近平终于露面！不准那人去那个城市。华尔街日报重提亚洲病夫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76e24083d26d43dc3e0941d35ae9aa95894380fe.torrent)
 
@@ -318,8 +320,6 @@
 * [How The Economic Machine Works by Ray Dalio-PHe0bXAIuk0.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ece66814fc75e35f1c0f5b6c31549a38f738b81.torrent)
 
 * [【时事小品】问我国家哪像染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee07da3d7fdf0f31cac073cd9aa8c3404f8ea41b.torrent)
-
-* [【新闻周刊】第717期（202021）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5bf58ddbd56ecae530461fc573624e901e953ae.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
