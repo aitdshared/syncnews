@@ -16,7 +16,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3zRiZ7)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yUcaik)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -318,8 +318,6 @@
 * [相聲《魔鏡奇緣》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68d1fc3d8836c8bec1d36116c79566f6fe8b2db2.torrent)
 
 * [【环球直击】2月2日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c519874c55e98e5b8688aab2940a22fb4cc673bf.torrent)
-
-* [「火神山」被軍管，看懂了嗎？武漢求援「運屍袋」，官方數字的秘密，拿著住院單排隊，住院前後的區別，爆料郵箱：xwkd2017@gmail.com【新聞看點】（20200202）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/739f6c0b5fc19e82ff743d3c21bc8e15b3253bb6.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
