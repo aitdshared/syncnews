@@ -16,7 +16,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2wo9N7)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/COVs8T)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -316,8 +316,6 @@
 * [【严真点评】外交部大实话：武汉肺炎中共把厉害国给弄趴下了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/703075c96e18c8d96ba1c473ccab27a344613682.torrent)
 
 * [一周经济回顾（2020年2月2日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d182539c262022323d1bd3429764d39a6f96d47.torrent)
-
-* [How The Economic Machine Works by Ray Dalio-PHe0bXAIuk0.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ece66814fc75e35f1c0f5b6c31549a38f738b81.torrent)
 
 * [【时事小品】问我国家哪像染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee07da3d7fdf0f31cac073cd9aa8c3404f8ea41b.torrent)
 
