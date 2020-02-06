@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZFax5D)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MMceAv)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [《石濤.News》「武漢肺炎最早8個造謠者之一李文亮今早離世34歲」習近平“親自指揮親自部署”下1月2日央視火力猛攻「8個造謠者」1月3日李文亮被迫簽「訓誡書-悔過書」同日習傯開始向美國匯報疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3942845cb6ef4bf96f3e484a99468b7d4997df3e.torrent)
 
 * [疫情告急寧波封城強制外來人員住進帳篷軍隊看守並封鎖信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1120c80a4c905602b21b6ca4de546585ec5d9e2b.torrent)
 
@@ -318,8 +320,6 @@
 * [小品《碰瓷兒》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b93f1ae70ed37cf07630f36f8baabba8775d4be.torrent)
 
 * [小品《尋親》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b92129f485035a3ba1255c8db492732a8658ba.torrent)
-
-* [小品《京川菜館》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82dbab61c3048858e7a7f60c00360cbda79896c3.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
