@@ -16,12 +16,20 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IBtlpm)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S3c3SO)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [「世界夢號」1800人郵輪从港驶台現30名乘客發燒而返航港醫護籲全面封關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad6b2e5b9f82ee1092ac64712b94384797835d74.torrent)
+
+* [川普國情咨文專家兼顧政績和選戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28cbd73766b9f8d68eef8ff70f60f22b21bb917c.torrent)
+
+* [高度警惕！新冠肺炎新增2種疑似傳染途徑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8483ad9825abbb0fa25f409e62db0adb86c949ab.torrent)
+
+* [弹劾川普失败,议长佩洛西当众撕掉川普的国情咨文讲稿,美国为何如此分裂(政论天下第103集20200205)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d26ef62d3fed75ee4a6327faea08b8a8c1072c6.torrent)
 
 * [【禁闻】美无偿开放肺炎新药中科院抢注专利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4d4e79a3e2986566950ee27fa0bf8c0a91be436.torrent)
 
@@ -314,10 +322,6 @@
 * [潘東凱：肺炎病毒P4實驗室或是中共無意中洩漏的生物武器.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ea2dd7d4b9c5cb25652aa86cc992df5849ac1ea.torrent)
 
 * [紅十字會收捐贈物資堆積如山武漢協和醫院領物資碰壁被逼「闢謠」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a6b8d37e009df905ce89f57a4d28f6f0ea91d97.torrent)
-
-* [加拿大居民王女士：在武漢的親戚五人染肺炎親戚家沒有哪家沒病人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b25cca7129e2572e8080074134432882b7d5848.torrent)
-
-* [紧急发布，武汉市民方斌被自称防疫站的人闯入家中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9fdf2d9e89196b29a93bcf6e0bc3c4283e5592b.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
