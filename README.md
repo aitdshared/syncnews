@@ -16,12 +16,18 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MjR9rP)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZFax5D)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [疫情告急寧波封城強制外來人員住進帳篷軍隊看守並封鎖信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1120c80a4c905602b21b6ca4de546585ec5d9e2b.torrent)
+
+* [武漢老人向外界救：被隔离者無人救治未隔離感染者得不到隔離救治與家人交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80bdb9d8bb3be92adefd016e2623a51b85c8394d.torrent)
+
+* [防控武漢疫情公安部把維護政治安全放首位至少34個城市採取不同程度的「封城」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd9af7bf61b089739e48123d0d7331cbe77af0f2.torrent)
 
 * [【蕭茗訪談】苏莱曼尼之死令中共进退两难伊朗正處於一場革命的邊緣嗎？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9cff405e19b7c491bbc4259491f3c490c01e7d.torrent)
 
@@ -314,10 +320,6 @@
 * [小品《尋親》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b92129f485035a3ba1255c8db492732a8658ba.torrent)
 
 * [小品《京川菜館》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82dbab61c3048858e7a7f60c00360cbda79896c3.torrent)
-
-* [相聲《魔鏡奇緣》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68d1fc3d8836c8bec1d36116c79566f6fe8b2db2.torrent)
-
-* [【环球直击】2月2日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c519874c55e98e5b8688aab2940a22fb4cc673bf.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
