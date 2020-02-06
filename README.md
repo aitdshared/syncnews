@@ -16,12 +16,20 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AJdxqX)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xPtl37)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [封城蔓延多達36城尚未明確「封城」的北上廣等大城市也接近空城狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb7d78086bf026a0a32d64b48ccfa0a06fed72ca.torrent)
+
+* [【禁闻】报告：中共军医承认活摘法轮功学员器官.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acc563a0c2f174eb5057cc5277d7034669fdb198.torrent)
+
+* [【禁闻】武汉医护感染情况首曝光协和262例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a1ae277595f39af3ca64b730cb81d3a24641a7c.torrent)
+
+* [美參議院投票川普無罪長達5個月的總統彈劾案落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3469437bf4dc7cf4bb08d4c4d76564df7815b14a.torrent)
 
 * [《石濤.News》「川普彈劾案鬧劇結束川普勝在與神同行」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9518d7231ee7d0309dccb58a5ee7c08eaa4c0b3f.torrent)
 
@@ -314,14 +322,6 @@
 * [《石濤聚焦》「郭美美出獄莆田係風采紅十字會飄揚武漢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f9416c2647e19f7995a1d61e2cda2c6772f7130.torrent)
 
 * [习近平大事不妙！湖北官员暗批，孔和尚也反了。武汉盛传：他过不了端午.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/889794297bc0dffc2d816d9dcfba87694fe844f2.torrent)
-
-* [《石濤.News》「最新即時：金正恩慰問習近平：請保重身體」李克強回歸求歐盟國務院：一次性護目鏡可重複使用「全國物質短缺」澳洲封關黃岡或成武漢第二火神山7日完工思考「出埃及：降災與神蹟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/632b1ba0960a83948a1c2e877d82f54632c9d2e7.torrent)
-
-* [500多台人與大陸配偶困武漢兩人被確診中共目前還沒有同意台府包機接回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82c897ffb1f637c93a27fbf85acffd04c1b7c076.torrent)
-
-* [多种迹象指向新型冠状病毒为人工合成，被泄漏。中或有艾滋病毒的基因插入，指向此病毒为合成病毒。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7b77d8d3245d1a67f04cf6cff9701a2bcd68c29.torrent)
-
-* [潘東凱：肺炎病毒P4實驗室或是中共無意中洩漏的生物武器.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ea2dd7d4b9c5cb25652aa86cc992df5849ac1ea.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
