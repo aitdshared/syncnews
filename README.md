@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5nmsuT)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jegtgF)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】美无偿开放肺炎新药中科院抢注专利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4d4e79a3e2986566950ee27fa0bf8c0a91be436.torrent)
 
 * [美药企抗冠状病毒药在中国被抢注，要点探究；华春莹批美不帮助，大家失焦了（2020020第695期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cdabd0a0f36c14a056cf3081529e478eaacb53a.torrent)
 
@@ -320,8 +322,6 @@
 * [【解讀】肺炎病患是官方數據72倍！海外武漢人為何「被撤僑」？300台灣人為何回不了家？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7c4675ea41ced4e77e8deec08c2eeaf498af010.torrent)
 
 * [㊙️新冠病毒被注入「艾滋」病毒特徵💉印度科學家稱不像自然發生；武漢人David再爆6⃣️猛料：滅疫將有「非常行動」;武漢病毒有兩種？疫情嚴峻，大陸危機公關，美國有限封關新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29d52e1b2eed89c01569ba1a239d995ef9607f16.torrent)
-
-* [【全球新闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/726fb109c532d929a010b97c6c5f721d6621e78b.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
