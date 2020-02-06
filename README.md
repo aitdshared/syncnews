@@ -16,12 +16,20 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W1FQ26)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zgVrzA)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [北京：將減半750億美元美國進口商品關稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21dcfce946091a614b42d0f06d6e0d308560e56.torrent)
+
+* [譴責中共蓬佩奧：宗教自由是社會基石.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9f1440655e9e346b05d522769b9577df50a4655.torrent)
+
+* [美國威斯康辛州確診首例撤僑專機陸續抵美CDC宣布發放檢測套件.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e88285ddd22cde7e0ed673f362c67000ec72687.torrent)
+
+* [日本遊輪又新增10人感染加拿大巴西跟進撤僑沙特頒中國旅行禁令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c14cc88a110a9c411ea5ea345cc0f1db3b3992fa.torrent)
 
 * [美國會首次武漢肺炎聽證議員置疑中共隱瞞疫情並拒絕與國際社會合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11a50cf0c9b196504da9bc35e7d16600ec5134f0.torrent)
 
@@ -312,12 +320,6 @@
 * [习近平多日不露面，王沪宁把武汉人民逼到死角！美国准备第三次拯救中国？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efc25da6e1bb04cd8e818a4f42349786d1bb359e.torrent)
 
 * [蹲守汉口殡仪馆报告武汉人民需要自觉自救发出你们的声音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/420e0b557dfd42cf9d42e1a21b16d5b428aa77a4.torrent)
-
-* [【严真点评】外交部大实话：武汉肺炎中共把厉害国给弄趴下了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/703075c96e18c8d96ba1c473ccab27a344613682.torrent)
-
-* [一周经济回顾（2020年2月2日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d182539c262022323d1bd3429764d39a6f96d47.torrent)
-
-* [【时事小品】问我国家哪像染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee07da3d7fdf0f31cac073cd9aa8c3404f8ea41b.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
