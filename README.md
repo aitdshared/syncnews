@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aWpVlc)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GQdwJm)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【环球直击】2月6日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03015598a9bc62f45554c08f6ce15d1517ddce2a.torrent)
 
 * [做为一名法轮功修炼者，谈谈我对中国目前困境的看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9ce8bc176fee5db9670bf96b9519e5648bbb860.torrent)
 
@@ -318,8 +320,6 @@
 * [【新闻周刊】第717期（202021）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5bf58ddbd56ecae530461fc573624e901e953ae.torrent)
 
 * [当下，中国人在海外的处境很尴尬，聊聊我在韩国的境遇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a74719a36b6208bd916e6e42c669f73e7d69436.torrent)
-
-* [《濤哥侃封神》「封神演義第二十三回文王夜夢飛熊兆」靈臺拔地西歧起盛典枯骨道合天飛熊入夢吻天意聖德興周應時生（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10e9854df3be11d202750a56f0a02e2479356ca6.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
