@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mxy919)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6LZvXm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [《石濤.News》「深圳廣州封城超70個」多省全封閉中共亡於十八子（李）李文亮已火化父母妻兒未見82萬賠償妻感染懷子武漢人高喊「言論自由」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16af845f7fd9675dad7c1c4b05b396250539f089.torrent)
+
+磁力链接：magnet:?xt=urn:btih:16af845f7fd9675dad7c1c4b05b396250539f089
 
 * [《石濤聚焦》「突發：白宮下令調查武漢病毒擴散源頭」習近平隨後與川普通話ABC新聞：病毒可能來自人工合成並故意被洩漏（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10fbce2b11e4d3759cf84db0cc1a849f641a13d1.torrent)
 
@@ -605,10 +609,6 @@
 * [温州封城,火神山医院军管;武汉肺炎感染率,法国侨民为13.8%;钟南山远未到高潮(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b2b12974d5894a3970ad8493e1dc32a387ce57.torrent)
 
 磁力链接：magnet:?xt=urn:btih:77b2b12974d5894a3970ad8493e1dc32a387ce57
-
-* [《石濤聚焦》「信命：2019-21皆為水年習近平-屬蛇為火中共為火」庚子年之庚（天干第七位）習總將因［火神山與雷神山］而兌現天滅中共日媒：習總的定於一尊是大瘟疫肆虐的根本原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8d2e01ef1d0e816e767e6c0c12f2ea52591536.torrent)
-
-磁力链接：magnet:?xt=urn:btih:bb8d2e01ef1d0e816e767e6c0c12f2ea52591536
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
