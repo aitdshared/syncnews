@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DPHKEr)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ect6MB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【解讀】哀！吹哨者李文亮醫生殉職；武漢肺炎帶給中國七大危機；方艙醫院救命或害命？（2020.2.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c3e4bf001cc0b839118329ead3ccda36eca4c20.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7c3e4bf001cc0b839118329ead3ccda36eca4c20
 
 * [【全球新闻】2月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d594c4acf64684ee17a1f2ae23ceccfd1040f120.torrent)
 
@@ -613,10 +617,6 @@
 * [3億5千萬勇士三退脫離共產黨組織悉尼集會各界支持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14192f592274f3655bc8441a6e58f28c554f9bf5.torrent)
 
 磁力链接：magnet:?xt=urn:btih:14192f592274f3655bc8441a6e58f28c554f9bf5
-
-* [脫歐後第一個上班日英國與歐盟起爭執.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e01b68af297559c73f6fd743161900bd35920dee.torrent)
-
-磁力链接：magnet:?xt=urn:btih:e01b68af297559c73f6fd743161900bd35920dee
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
