@@ -16,12 +16,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FhRNQs)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QDhFis)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [武漢新冠狀病毒最早預告的“造謠者”李文亮醫生走了；中國速度打造的方艙醫院內情。武統台灣與武漢疫情的關係（江峰漫談20200207第114期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b728c681adc782151009d0a3e381ce0f4dd9f2d6.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b728c681adc782151009d0a3e381ce0f4dd9f2d6
 
 * [新冠肺炎疫情：零號病人是誰？病源到底是什麼？武漢病毒所搶先申請美國新藥專利，耍了個花招唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb10b874da7b9162cb238d2f20dd535633f6cb.torrent)
 
@@ -606,10 +610,6 @@
 * [疫情繼續在海外擴散美國將再撤僑俄羅斯或驅逐外國感染者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d6c8cf5506b72ace6ac952ba497c0a6086bbd57.torrent)
 
 磁力链接：magnet:?xt=urn:btih:9d6c8cf5506b72ace6ac952ba497c0a6086bbd57
-
-* [「新型冠狀病毒」肆虐影響日遊銀座遊客驟減.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd26aed0a043e8cef4a839c2bfc54f93db9db57a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:dd26aed0a043e8cef4a839c2bfc54f93db9db57a
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
