@@ -18,13 +18,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1VZ7l3)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YkD16O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [《石濤聚焦》「突發：白宮下令調查武漢病毒擴散源頭」習近平隨後與川普通話ABC新聞：病毒可能來自人工合成並故意被洩漏（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10fbce2b11e4d3759cf84db0cc1a849f641a13d1.torrent)
+
+磁力链接：magnet:?xt=urn:btih:10fbce2b11e4d3759cf84db0cc1a849f641a13d1
+
+* [川習就疫情通話川普：美國全力支持願派專家受疫情影響外界對中方履約持懷疑態度.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e26efcf15ac95360fe28193af9ad0281d78feaa4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:e26efcf15ac95360fe28193af9ad0281d78feaa4
+
+* [劉細良：冠狀病毒不及共產黨的病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e30b2dfb173249f12d9c761f3fbf515981026a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:79e30b2dfb173249f12d9c761f3fbf515981026a
 
 * [(錄音)李文亮母亲泣不成声：好多陌生人打來電話要捐助我們.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f46c401623ec6abd5a42ba68d38e8856d7f20bde.torrent)
 
@@ -597,18 +609,6 @@
 * [《石濤聚焦》「信命：2019-21皆為水年習近平-屬蛇為火中共為火」庚子年之庚（天干第七位）習總將因［火神山與雷神山］而兌現天滅中共日媒：習總的定於一尊是大瘟疫肆虐的根本原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8d2e01ef1d0e816e767e6c0c12f2ea52591536.torrent)
 
 磁力链接：magnet:?xt=urn:btih:bb8d2e01ef1d0e816e767e6c0c12f2ea52591536
-
-* [武漢肺炎疫情：火神山医院军管暗藏惊人秘密？武汉方斌勇士再陷隔离险情！新浪报道治肺炎美国神奇药方？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91de063c7bc0548eaefba81c9acfef68c1b42fee.torrent)
-
-磁力链接：magnet:?xt=urn:btih:91de063c7bc0548eaefba81c9acfef68c1b42fee
-
-* [火神山医院交付使用！《流浪地球》和“流浪武汉”，再恶劣的现实也有体现正义的方式（20200203第693期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55746b6ffbe72340bbd8a1370c778803f22d3054.torrent)
-
-磁力链接：magnet:?xt=urn:btih:55746b6ffbe72340bbd8a1370c778803f22d3054
-
-* [《石濤.News》「2020在劫難逃天滅中共生與滅」肺炎-非典2.0最新掩蓋後數據：確診1.95萬亡425強迫患者統一食用中成藥國家疫控主任是獸醫抗疫首席醫生是少將首席生化武器專家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873238165e6eeaa2f3c65404e9a9ea19ecf9602a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:873238165e6eeaa2f3c65404e9a9ea19ecf9602a
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
