@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IWlOKV)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gJBwEg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7d3937b63de97be43f2479f581e7346078d66d83
+
+* [日本遊輪增41人感染各國持續現新病例中共官方稱已有99個國家實施入境管制措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/253259f832c28023a4cbe92eb9042b28f75ead4a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:253259f832c28023a4cbe92eb9042b28f75ead4a
+
+* [撤僑機週五抵加拿大第二架包機待出發已有40多家航空公司停飛中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac9a5de48365ea13bd87548e4d61ff524357c01b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:ac9a5de48365ea13bd87548e4d61ff524357c01b
+
+* [年輕同事也倒下武漢醫護自白錄音：已寫好遺書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b7012f429bfc96a3abfb2599263e18c94eb0a63.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4b7012f429bfc96a3abfb2599263e18c94eb0a63
 
 * [李文亮走了！请记住他留下的一句话。习近平会哀悼他吗？从封口封城到封网.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0008e486a673663b4f13e521b4a92dd2d1f9a929.torrent)
 
@@ -593,22 +609,6 @@
 * [多個武漢病患家庭講述現實状况：父親整个肺全白了医生也累得可怜都穿纸尿裤上班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30233fbd5f8bcf85baff76e5ccff11a289ae8409.torrent)
 
 磁力链接：magnet:?xt=urn:btih:30233fbd5f8bcf85baff76e5ccff11a289ae8409
-
-* [【环球直击】2月3日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90d38a2c22527bafddb455420c9b53f4515440bd.torrent)
-
-磁力链接：magnet:?xt=urn:btih:90d38a2c22527bafddb455420c9b53f4515440bd
-
-* [美駐華使館關閉！騰訊洩密！武漢肺炎第2影響出現，股匯市暴跌，防化部隊上陣！軍管15家醫院，淘大花園事件再現爆料：xwkd2017@gmail.com【新聞看點】（20200203）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cf6784b5316293f3982978f9ae16683c0e0c1f1.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6cf6784b5316293f3982978f9ae16683c0e0c1f1
-
-* [《石濤.News》「最新消息：鐘南山-10天大爆發傳染源武漢-湖北之外」美國關閉所有領事館深圳建“火神山”醫院火車成快速傳染地16名老外在華染病全家染病眾多公布數字無以相稱（0302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11244f8fd9d2da6192ac338a87e5ad9bc9fa346c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:11244f8fd9d2da6192ac338a87e5ad9bc9fa346c
-
-* [《石濤聚焦》「習總‘親臨’武漢？」央視闢謠式常委會新聞13分鐘［無畫面］時間出在「江城瘟疫起端午除惡習」露面之後（0301）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d9a0e279e836006b498d295dd34bdec608ba9cd.torrent)
-
-磁力链接：magnet:?xt=urn:btih:1d9a0e279e836006b498d295dd34bdec608ba9cd
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
