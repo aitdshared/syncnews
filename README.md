@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IjbjI3)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PxFrdQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【环球直击】2月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a1403af0f63e403fd48f427dac623e3a7a9c444.torrent)
+
+磁力链接：magnet:?xt=urn:btih:6a1403af0f63e403fd48f427dac623e3a7a9c444
 
 * [獨家：一家家染病去世，2歲童向李克強呼救，李文亮離世引發輿論海嘯，官媒罕見與民同調，當局作秀折騰亡靈，救命藥被加價500倍，方艙醫院患者發視頻求救【新聞看點】（20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/477e150ff23071de85f703e0da106ba6cc394886.torrent)
 
@@ -573,10 +577,6 @@
 * [【禁闻】武汉医护：全市每天只让用2000个试剂盒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5d939e651d0f7dfb4603af7ff2512ed19b019ef.torrent)
 
 磁力链接：magnet:?xt=urn:btih:a5d939e651d0f7dfb4603af7ff2512ed19b019ef
-
-* [【禁闻】2月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0c47393d1be0f16f9c2367c6692769d97f162a6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:a0c47393d1be0f16f9c2367c6692769d97f162a6
 
 * [【禁闻】他们死了连个数据都算不上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbf00e4832d16de637162845e58cf79cd505485d.torrent)
 
