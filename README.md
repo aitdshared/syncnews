@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rFlSZS)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AquZkK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [“墙国”实至名归李文亮“劝退”习近平？江峰做客自由亞洲電台（RFA）（江峰漫談特別節目20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d9898008005a1a1dc5114d6b489e362eb307dc.torrent)
+
+磁力链接：magnet:?xt=urn:btih:35d9898008005a1a1dc5114d6b489e362eb307dc
+
+* [李文亮与蒋彦永,英雄还是普通人(政论天下第105集20200207)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87a3d3800857408d6051d568da178c8141b7f81f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:87a3d3800857408d6051d568da178c8141b7f81f
 
 * [【环球直击】中共6天抓325人封口公主号武汉肺炎再添41例（2月7日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/780a9a82fa8b45b4d1018fd57c953a0c4a2fdbe4.torrent)
 
@@ -558,17 +566,9 @@
 
 磁力链接：magnet:?xt=urn:btih:a071cd39bf8bc81a35546926de0fb4f868d664da
 
-* [🆘疑似病例更危險！10萬全須隔離，一線醫生實名緊急上書！🏥火神山真恐怖嗎？武漢肺炎病毒會「隱身」+多元傳播，可致全球風險；溫州封城「互相監督」🚧染疫不報是犯罪新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5b6a472b064d50085d074fd2e6b6205c04df3c1.torrent)
-
-磁力链接：magnet:?xt=urn:btih:a5b6a472b064d50085d074fd2e6b6205c04df3c1
-
 * [【禁闻】武汉医护：全市每天只让用2000个试剂盒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5d939e651d0f7dfb4603af7ff2512ed19b019ef.torrent)
 
 磁力链接：magnet:?xt=urn:btih:a5d939e651d0f7dfb4603af7ff2512ed19b019ef
-
-* [【禁闻】2月3日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10109bd214462de186e73a84b522b623a0472b40.torrent)
-
-磁力链接：magnet:?xt=urn:btih:10109bd214462de186e73a84b522b623a0472b40
 
 * [【禁闻】2月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0c47393d1be0f16f9c2367c6692769d97f162a6.torrent)
 
