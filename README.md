@@ -16,12 +16,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/01mJGT)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cCJtLR)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [江西辽宁步湖北后尘，李文亮病逝，人道灾难可能令方舱医院失控。（政论天下第104集20200206）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0ff1943a25914b6e7c2ac6aa8a617c79a501594.torrent)
+
+* [大陸出現一場史無前例的「封城」世衛：或尚未到達疫情高峯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2134f4ea83fff411f43e9d5798f5491d9d6ff59f.torrent)
 
 * [「吹哨人」李文亮去世悲劇隱喻封口難防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db8ca9f201139a877b272534542264083285a6c1.torrent)
 
@@ -314,10 +318,6 @@
 * [《石濤聚焦》「開市：滬指跌8.7%深指跌9.2%3000只跌停」美質疑「中方依然迴避美國專家援助」卻向歐盟伸手要物資與俄國合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260b19b670110ca8f30a6fe8b82fade758cdb1fe.torrent)
 
 * [《石濤聚焦》「美長壽劇23年前預測了‘武漢肺炎-非典2.0」電視劇「TheSimpsons-辛普森一家」曾成功預測川普當選和科比遇難預測劇中瘟疫全球爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/398539f729aca2f88915bdc0c2db28a17be9b826.torrent)
-
-* [《石濤.News》「最新即時：600重症無一確診1.7萬患者361亡大縮水」遺體速火化死亡數字成謎武漢殯儀館曾徵裝屍袋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3aff4f4058e4075d523e93c820826f2a248ed8b.torrent)
-
-* [《石濤.News》「最新即時：600重症無一確診1.7萬患者361亡大縮水」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/159201b570ce1b3208f91b95f942ff1715b05b22.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
