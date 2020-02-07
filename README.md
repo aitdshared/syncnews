@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/olF9qL)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TMLtge)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [「吹哨人」李文亮去世悲劇隱喻封口難防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db8ca9f201139a877b272534542264083285a6c1.torrent)
 
 * [川普白宮記者會慶勝利：贏了通俄門調查贏了彈劾案並向家人表達愧疚和感謝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d22b73f637e7e63a5d358346f368db63e7895bd4.torrent)
 
@@ -318,8 +320,6 @@
 * [《石濤.News》「最新即時：600重症無一確診1.7萬患者361亡大縮水」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/159201b570ce1b3208f91b95f942ff1715b05b22.torrent)
 
 * [【禁闻】方斌曝医院实情被抓中共惧真相如核弹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a0d83d1d16f430aaa261084635937aa11da321c.torrent)
-
-* [【禁闻】肺炎肆虐美提供防疫帮助中共不接受.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ff2c10c0243b7771ac5069c9a50672a08bfacf.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
