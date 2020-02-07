@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ect6MB)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k6GC0L)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [庚子年，我在武漢當醫生……武漢肺炎紀實之二：李文亮和他的同事，在死神身邊起舞的人（老北京茶館第241集20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/746efcbc2a8da14080afe07623262ea213c89dae.torrent)
+
+磁力链接：magnet:?xt=urn:btih:746efcbc2a8da14080afe07623262ea213c89dae
 
 * [【解讀】哀！吹哨者李文亮醫生殉職；武漢肺炎帶給中國七大危機；方艙醫院救命或害命？（2020.2.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c3e4bf001cc0b839118329ead3ccda36eca4c20.torrent)
 
@@ -613,10 +617,6 @@
 * [溫州被集中隔離人數高達二萬多人成第二大疫區2日封城警與民爆發衝突.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b708a32c4779105ae010b52ebf6b267e677fb3a0.torrent)
 
 磁力链接：magnet:?xt=urn:btih:b708a32c4779105ae010b52ebf6b267e677fb3a0
-
-* [3億5千萬勇士三退脫離共產黨組織悉尼集會各界支持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14192f592274f3655bc8441a6e58f28c554f9bf5.torrent)
-
-磁力链接：magnet:?xt=urn:btih:14192f592274f3655bc8441a6e58f28c554f9bf5
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
