@@ -16,12 +16,14 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wB5IQF)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jGU1QA)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [美國抵聖地亞哥167名武漢撤僑4人出現疑似感染新冠病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28f6d34e787e444d7a4665ca6008a456b8ce238f.torrent)
 
 * [武漢區被確診病人想要個床位社區主任：即使懷孕35週的婦女也無法生育.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09792eba8eb22b733e8f0b197b61cf11c069aab1.torrent)
 
@@ -316,10 +318,6 @@
 * [賣多少錢？美國吉列製藥推出武漢肺炎新型冠狀病毒特效藥，全面向中國開放藥物分子結構，助中國臨床試驗及生產（江峰漫談20200202第110期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/007fa957a499788816a89a32d46f5d37423959b8.torrent)
 
 * [【禁闻】2月2日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b0e61fcace20d688ad118242868d976513f1d9a.torrent)
-
-* [【禁闻】防范武汉肺炎多国关闭边界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a87e448258aebfef2c1fd197f3303cd819d749a9.torrent)
-
-* [《石濤聚焦》「開市：滬指跌8.7%深指跌9.2%3000只跌停」美質疑「中方依然迴避美國專家援助」卻向歐盟伸手要物資與俄國合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/260b19b670110ca8f30a6fe8b82fade758cdb1fe.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
