@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CIy6HW)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ABM95v)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [(錄音)李文亮母亲泣不成声：好多陌生人打來電話要捐助我們.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f46c401623ec6abd5a42ba68d38e8856d7f20bde.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f46c401623ec6abd5a42ba68d38e8856d7f20bde
 
 * [武漢全民測體溫工作逐戶逐人全面排查民眾擔心警方濫捕各類異見人士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fc12c435586b13ded53fd3bdee171c4f905ba5b.torrent)
 
@@ -605,10 +609,6 @@
 * [《石濤.News》「2020在劫難逃天滅中共生與滅」肺炎-非典2.0最新掩蓋後數據：確診1.95萬亡425強迫患者統一食用中成藥國家疫控主任是獸醫抗疫首席醫生是少將首席生化武器專家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873238165e6eeaa2f3c65404e9a9ea19ecf9602a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:873238165e6eeaa2f3c65404e9a9ea19ecf9602a
-
-* [【禁闻】共军接管医院防疫成军机民忧自生自灭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c587bd75de9f0e9ae2f45588f20ef08c9179142c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c587bd75de9f0e9ae2f45588f20ef08c9179142c
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
