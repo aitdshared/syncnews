@@ -16,12 +16,18 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/N4hp8x)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/po613O)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [【禁闻】武汉方舱医院开启网友曝光条件恶劣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ab7214d7bbfd29b12e806bbd5e5f1336372a22c.torrent)
+
+* [【环球直击】2月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18f6a1b4fdf56207cc1e8c9aff0522b071751a4b.torrent)
+
+* [軍管湖北，北京清算負責人，美國藥物被武漢病毒所搶註專利，P4實驗室病毒動物賣給誰？石正麗不敢「公開對質」，方艙醫院千人共用一廁，病患情緒激動，15秒染病【新聞看點】（20200206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38b1ceceeb5b05b7f953596d7fd73e3cc7ab6c39.torrent)
 
 * [《石濤聚焦》「‘瑞德西韋’CEO救人是關鍵專利就瞎扯啦」2016年已在中共國申請3年未批「武漢病毒所之為利菁英人類垃圾之絕品中共品質光輝」該藥網傳很有效醫師不認同（0602）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3dbd5f0bb039486686797e77d54d604aeb454dcf.torrent)
 
@@ -314,12 +320,6 @@
 * [【禁闻】肺炎肆虐美提供防疫帮助中共不接受.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ff2c10c0243b7771ac5069c9a50672a08bfacf.torrent)
 
 * [【禁闻】学者：中共欧威尔式维稳只能往下走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86717a21eced64b8310f68ab4c5ae99d0d573284.torrent)
-
-* [【禁闻】协和医护披露武汉红会领物资详情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bc28e2d1680bbe47af19e4bf26389a66f9691e4.torrent)
-
-* [小品《希望》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fd81f98904742c0193361b871c4a0e28b413284.torrent)
-
-* [武汉肺炎引起温州骚乱；大疫面前的道德困境，以及解决办法（哲思心语第6集20200202）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d391503c01a8af86dea82bbae568d4cbf52a2f2.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
