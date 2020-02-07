@@ -16,12 +16,16 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E5eoYo)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FhRNQs)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 翻墙工具推荐：[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
+
+* [新冠肺炎疫情：零號病人是誰？病源到底是什麼？武漢病毒所搶先申請美國新藥專利，耍了個花招唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb10b874da7b9162cb238d2f20dd535633f6cb.torrent)
+
+磁力链接：magnet:?xt=urn:btih:bfbb10b874da7b9162cb238d2f20dd535633f6cb
 
 * [【中国禁闻】2月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d0ce02aa4997ddf3ac94d02590dcf14a48ac1a9.torrent)
 
@@ -606,10 +610,6 @@
 * [「新型冠狀病毒」肆虐影響日遊銀座遊客驟減.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd26aed0a043e8cef4a839c2bfc54f93db9db57a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:dd26aed0a043e8cef4a839c2bfc54f93db9db57a
-
-* [｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/391f76580a9801ad3ec59db37f380a774a576744.torrent)
-
-磁力链接：magnet:?xt=urn:btih:391f76580a9801ad3ec59db37f380a774a576744
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
