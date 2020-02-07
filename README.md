@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6LZvXm)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CJhBjD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【环球直击】中共6天抓325人封口公主号武汉肺炎再添41例（2月7日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/780a9a82fa8b45b4d1018fd57c953a0c4a2fdbe4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:780a9a82fa8b45b4d1018fd57c953a0c4a2fdbe4
 
 * [《石濤.News》「深圳廣州封城超70個」多省全封閉中共亡於十八子（李）李文亮已火化父母妻兒未見82萬賠償妻感染懷子武漢人高喊「言論自由」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16af845f7fd9675dad7c1c4b05b396250539f089.torrent)
 
@@ -605,10 +609,6 @@
 * [【禁闻】武汉肺炎冲击底层农民工该何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/644d1847a4320a676923c879e62cba07c97875a3.torrent)
 
 磁力链接：magnet:?xt=urn:btih:644d1847a4320a676923c879e62cba07c97875a3
-
-* [温州封城,火神山医院军管;武汉肺炎感染率,法国侨民为13.8%;钟南山远未到高潮(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b2b12974d5894a3970ad8493e1dc32a387ce57.torrent)
-
-磁力链接：magnet:?xt=urn:btih:77b2b12974d5894a3970ad8493e1dc32a387ce57
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
