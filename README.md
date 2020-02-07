@@ -1,6 +1,6 @@
 # 最新新闻及疫情时刻更新，BT高速下载，长期有种，欢迎广传，请一起做种，推荐使用以下软件工具，不要用迅雷。本页面短网址 https://git.io/news20
 
-## 👍[【最最推荐】WebTorrent播放软件：自动更新视频边下边看（全自动下载视频）](https://is.gd/wtwinse)
+## [【最最推荐❗️】WebTorrent播放软件自动更新视频边下边看（全自动下载视频）](https://is.gd/wtwinse)
 
 在Windows电脑上打开网址 https://is.gd/wtwinse 下载后双击执行WebTorrentSE.exe，如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新。
 
@@ -8,7 +8,7 @@
 
 下载解压后双击执行qBittorrentPortable.exe，如出现防火墙弹窗请允许，鼠标右键复制点击下面新闻标题下的磁力链接，打开qBitorrent顶部菜单“文件”->“添加 Torrent 链接”->Ctrl+V粘贴上磁力链接->“下载”，下载完双击标题观看。
 
-## 【其他方式二】WebTorrent播放软件：边下边看（需手动下载视频） [Mac版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/WebTorrent-v0.21.0.dmg) [Ubuntu版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/webtorrent-desktop_0.21.0_amd64.deb)
+## 【其他方式二】WebTorrent播放软件边下边看（需手动下载视频） [Mac版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/WebTorrent-v0.21.0.dmg) [Ubuntu版下载](https://github.com/webtorrent/webtorrent-desktop/releases/download/v0.21.0/webtorrent-desktop_0.21.0_amd64.deb)
 
 下载后安装并执行，如出现防火墙弹窗请允许，鼠标右键复制点击下面新闻标题下的磁力链接，打开WebTorrent顶部菜单“Edit”->“Past Torrent Address”，等待缓冲至10%即可点击右侧播放按钮观看。
 
@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JCr4sQ)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DPHKEr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【全球新闻】2月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d594c4acf64684ee17a1f2ae23ceccfd1040f120.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d594c4acf64684ee17a1f2ae23ceccfd1040f120
 
 * [【禁闻】2月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e21d7b0cd55abdcea2230f934d559960566a2841.torrent)
 
@@ -613,10 +617,6 @@
 * [脫歐後第一個上班日英國與歐盟起爭執.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e01b68af297559c73f6fd743161900bd35920dee.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e01b68af297559c73f6fd743161900bd35920dee
-
-* [疫情繼續在海外擴散美國將再撤僑俄羅斯或驅逐外國感染者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d6c8cf5506b72ace6ac952ba497c0a6086bbd57.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9d6c8cf5506b72ace6ac952ba497c0a6086bbd57
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
