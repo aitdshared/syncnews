@@ -16,7 +16,7 @@
 
 下载apk后按提示安装好，点击下面新闻标题下载.torrent文件，打开文件，按提示选择用BitTorrent应用打开，下载完点击标题观看。
 
-## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TMLtge)
+## [太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/01mJGT)
 
 ## [不会翻墙不会用BT可以点这里看文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
@@ -318,8 +318,6 @@
 * [《石濤.News》「最新即時：600重症無一確診1.7萬患者361亡大縮水」遺體速火化死亡數字成謎武漢殯儀館曾徵裝屍袋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3aff4f4058e4075d523e93c820826f2a248ed8b.torrent)
 
 * [《石濤.News》「最新即時：600重症無一確診1.7萬患者361亡大縮水」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/159201b570ce1b3208f91b95f942ff1715b05b22.torrent)
-
-* [【禁闻】方斌曝医院实情被抓中共惧真相如核弹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a0d83d1d16f430aaa261084635937aa11da321c.torrent)
 
 * [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
