@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PxFrdQ)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IYV14r)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [中共壓制言論釀成巨大災難武漢人開始醒來向中共發出強烈吼聲！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8161eb2e8363a1e30232cf34cc232b0d5baf0e29.torrent)
+
+磁力链接：magnet:?xt=urn:btih:8161eb2e8363a1e30232cf34cc232b0d5baf0e29
 
 * [【环球直击】2月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a1403af0f63e403fd48f427dac623e3a7a9c444.torrent)
 
@@ -573,10 +577,6 @@
 * [武漢P4實驗室不止一間！武漢病毒研究所的石正麗、周鵬合成病毒，這個國家在鼓勵科學家成魔（江峰漫談20200203第111期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a071cd39bf8bc81a35546926de0fb4f868d664da.torrent)
 
 磁力链接：magnet:?xt=urn:btih:a071cd39bf8bc81a35546926de0fb4f868d664da
-
-* [【禁闻】武汉医护：全市每天只让用2000个试剂盒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5d939e651d0f7dfb4603af7ff2512ed19b019ef.torrent)
-
-磁力链接：magnet:?xt=urn:btih:a5d939e651d0f7dfb4603af7ff2512ed19b019ef
 
 * [【禁闻】他们死了连个数据都算不上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbf00e4832d16de637162845e58cf79cd505485d.torrent)
 
