@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AquZkK)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IjbjI3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [獨家：一家家染病去世，2歲童向李克強呼救，李文亮離世引發輿論海嘯，官媒罕見與民同調，當局作秀折騰亡靈，救命藥被加價500倍，方艙醫院患者發視頻求救【新聞看點】（20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/477e150ff23071de85f703e0da106ba6cc394886.torrent)
+
+磁力链接：magnet:?xt=urn:btih:477e150ff23071de85f703e0da106ba6cc394886
 
 * [“墙国”实至名归李文亮“劝退”习近平？江峰做客自由亞洲電台（RFA）（江峰漫談特別節目20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d9898008005a1a1dc5114d6b489e362eb307dc.torrent)
 
@@ -585,10 +589,6 @@
 * [6人感染加州武漢肺炎病患一天內翻倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0294adcecc5c1bff0c27c304ec9362faea001806.torrent)
 
 磁力链接：magnet:?xt=urn:btih:0294adcecc5c1bff0c27c304ec9362faea001806
-
-* [洛杉磯前往舊金山灰狗巴士半夜槍擊一死五傷槍手被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7eff873cf015ca84b55bf8913ee691cb4f43ce58.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7eff873cf015ca84b55bf8913ee691cb4f43ce58
 
 * [紐約時代廣場各國民眾聚焦武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01e69e30e309403b9eefca05637706dbc48e4e50.torrent)
 
