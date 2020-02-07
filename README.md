@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w0RH21)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CIy6HW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [武漢全民測體溫工作逐戶逐人全面排查民眾擔心警方濫捕各類異見人士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fc12c435586b13ded53fd3bdee171c4f905ba5b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4fc12c435586b13ded53fd3bdee171c4f905ba5b
+
+* [武漢疫情失控扮髓一場人道災難中共6天抓325人封口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ac0ad1e5c7fba822b5be8317155eb77336136ef.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9ac0ad1e5c7fba822b5be8317155eb77336136ef
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
@@ -601,14 +609,6 @@
 * [【禁闻】共军接管医院防疫成军机民忧自生自灭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c587bd75de9f0e9ae2f45588f20ef08c9179142c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:c587bd75de9f0e9ae2f45588f20ef08c9179142c
-
-* [【微视频】各国撤侨数字推算出武汉感染人数.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57d82025836e74132c262f11ea60ac2d147b9b5e.torrent)
-
-磁力链接：magnet:?xt=urn:btih:57d82025836e74132c262f11ea60ac2d147b9b5e
-
-* [多個武漢病患家庭講述現實状况：父親整个肺全白了医生也累得可怜都穿纸尿裤上班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30233fbd5f8bcf85baff76e5ccff11a289ae8409.torrent)
-
-磁力链接：magnet:?xt=urn:btih:30233fbd5f8bcf85baff76e5ccff11a289ae8409
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
