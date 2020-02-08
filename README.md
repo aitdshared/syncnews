@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BcnN2x)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mx3dlf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【环球直击】2月8日完整版（2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d83094565faac158ea01251857c87594240dc8c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:0d83094565faac158ea01251857c87594240dc8c
 
 * [控疫慘烈！！！抓「四類」人，女子脖子被扭斷，深圳大逃港，不許賣治療發燒藥【爆料：xwkd2017@gmail.com】【新聞看點】（20200208）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3470e03cd2bf03b1d2e4ce40bbe89e5c6650884.torrent)
 
@@ -609,10 +613,6 @@
 * [杭州也下封城令！“杭三封”与武汉的异同，遗漏的视角；习近平神隐，真正的挑战所在（20200204第694期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412ba33c5f4713be4875e02ae414980191980834.torrent)
 
 磁力链接：magnet:?xt=urn:btih:412ba33c5f4713be4875e02ae414980191980834
-
-* [疫区笼罩恐怖警察上街抓人進室內打砸街上查手機还有公安提枪上膛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcfa1eb6d3210b8154f22fbd8b18f0e1a4c1df7.torrent)
-
-磁力链接：magnet:?xt=urn:btih:ddcfa1eb6d3210b8154f22fbd8b18f0e1a4c1df7
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
