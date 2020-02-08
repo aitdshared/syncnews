@@ -18,7 +18,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CUzozy)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XZirGk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -613,18 +613,6 @@
 * [《石濤聚焦》「清華法學家許章潤再檄文“疫癘猖獗憤怒的人民不再恐懼“」痛斥習傯“無恥之尤”列九大罪狀以「此生最後一文」之語相拚「武昌再起義辛亥再革命」皆因封城而起（0401）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63a4dc407f84060984c2c0c6ea9870f0346dc24a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:63a4dc407f84060984c2c0c6ea9870f0346dc24a
-
-* [武漢市民楊陽：我與母被確診只想為母要個床位父親因肺炎去世未算在官方數據中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/378749d0b16cb7fad29d77256f0d77b7a6fb5603.torrent)
-
-磁力链接：magnet:?xt=urn:btih:378749d0b16cb7fad29d77256f0d77b7a6fb5603
-
-* [湖北民眾：物質不足住不上醫院政府應急水平低一幕幕家破人亡的人間慘劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03d1764addee4fbcdc36d84dd8064566d48b6b9d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:03d1764addee4fbcdc36d84dd8064566d48b6b9d
-
-* [杭州繼溫州後封城疫情延燒下一個上海或許也不妙了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93f3df6cd15e9b218fef75251348e7fb0f593652.torrent)
-
-磁力链接：magnet:?xt=urn:btih:93f3df6cd15e9b218fef75251348e7fb0f593652
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
