@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bw6Kz2)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EFt3Wm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【全球新闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b0b23e06a41199dc4f81e89c268560dcc42336c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7b0b23e06a41199dc4f81e89c268560dcc42336c
+
+* [【Jason快評】中共控制疫情的套路如何？未來這周的關鍵點在哪裏？熱點互動02072020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62568d2c7ee7fbd68d3eb2bc69fce91cc0e1b8e8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:62568d2c7ee7fbd68d3eb2bc69fce91cc0e1b8e8
 
 * [【禁闻】大疫中病毒与警察谁更可怕？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58518abfb2b4b120c10430e2d481bab5e0241dd4.torrent)
 
@@ -601,14 +609,6 @@
 * [香港出現第一起死亡病例9千醫護人員罷工要求港府全面關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bfceda7e4ca52333bea295038fb7da99cbb0069.torrent)
 
 磁力链接：magnet:?xt=urn:btih:9bfceda7e4ca52333bea295038fb7da99cbb0069
-
-* [泰國再確診六人成爲中國境外感染最多的國家澳門賭場韓國現代停業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d69f40564794cd44313b2147239f12f22efa60bf.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d69f40564794cd44313b2147239f12f22efa60bf
-
-* [《石濤.News》「在劫難逃天滅中共：生與滅」最新即時：杭州封城警察持槍牽狗香港出現第一位離世與隨街倒地者醫護人員罷工爆光醫院屍體候診家屬病人同處一室澳門關閉賭場北京空如鬼城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc994bf924f8e3907aa96657b4bba21fc36af31c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:bc994bf924f8e3907aa96657b4bba21fc36af31c
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
