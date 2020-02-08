@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QmC4Fz)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mNLgFj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【禁闻】记者手记：疫情漩涡中的武汉市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba9aa607cb71b74044d5e8428a929c5628c720f0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:ba9aa607cb71b74044d5e8428a929c5628c720f0
+
+* [【禁闻】湖北两殡仪馆日火化新冠死者341人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac.torrent)
+
+磁力链接：magnet:?xt=urn:btih:6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac
 
 * [【禁闻】武汉疫情吹哨人去世民吁放开言论管制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cadebedd2b2c2ad44b4abbe455b9fcca4e9d4491.torrent)
 
@@ -601,14 +609,6 @@
 * [【环球直击】2月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca1303019f0f49e0a7e486b906fb09083ecff4d.torrent)
 
 磁力链接：magnet:?xt=urn:btih:6ca1303019f0f49e0a7e486b906fb09083ecff4d
-
-* [陈秋实探访方舱医院隔离环境医生担心交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4458e4a601a2eb00d90201be9b6bec0e8f72da86.torrent)
-
-磁力链接：magnet:?xt=urn:btih:4458e4a601a2eb00d90201be9b6bec0e8f72da86
-
-* [【解讀】2020中國經濟很悲觀？失業、債務、房市三大風暴一次引爆？∣總體經濟學家吳嘉隆（2）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7162c4deba6aa9c5cd3459ccbadef4e8c281a972.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7162c4deba6aa9c5cd3459ccbadef4e8c281a972
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
