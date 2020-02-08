@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M8iRJM)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DJvF1c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [美軍擊斃基地組織也門分支頭目該組織曾多次向美國部隊發動襲擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/291afacdf193017048ca1993f2e7ad761faa7ff8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:291afacdf193017048ca1993f2e7ad761faa7ff8
+
+* [川普彭斯全國早餐會祈禱：保障宗教自由將支持全世界被迫害的信仰團體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d805561931662fbd40f9770981d63a7a34544d18.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d805561931662fbd40f9770981d63a7a34544d18
 
 * [美國CDC發布新冠肺炎你要知道的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf499ba0ef299d2490f45542bc8beaee0dceb846.torrent)
 
@@ -594,29 +602,13 @@
 
 磁力链接：magnet:?xt=urn:btih:a071cd39bf8bc81a35546926de0fb4f868d664da
 
-* [【禁闻】他们死了连个数据都算不上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbf00e4832d16de637162845e58cf79cd505485d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:fbf00e4832d16de637162845e58cf79cd505485d
-
 * [【中国禁闻】2月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbb36f9cd6f585bcbe5fa2df3225e0cfb89036b6.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cbb36f9cd6f585bcbe5fa2df3225e0cfb89036b6
 
-* [6人感染加州武漢肺炎病患一天內翻倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0294adcecc5c1bff0c27c304ec9362faea001806.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0294adcecc5c1bff0c27c304ec9362faea001806
-
-* [法國六例感染冠狀病毒法國現狀盤點已從武漢撤離200位僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c9e5013f28d7f2765374528c2117b6cc5d8efc6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3c9e5013f28d7f2765374528c2117b6cc5d8efc6
-
 * [武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c9006d9be1dd8fa329a2381013d9f426bce247b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:0c9006d9be1dd8fa329a2381013d9f426bce247b
-
-* [【禁闻】武汉肺炎冲击底层农民工该何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/644d1847a4320a676923c879e62cba07c97875a3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:644d1847a4320a676923c879e62cba07c97875a3
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
