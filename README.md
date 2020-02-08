@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZFjyMP)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kD0adJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [武漢官員透露紅十字會高價售賣捐贈物資肺炎真實死亡人數驚人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cee82689307ebcd0e7b10c5e63cc12a0429d75b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3cee82689307ebcd0e7b10c5e63cc12a0429d75b
+
+* [美國和日本公民在武漢首傳死例美援中1億美金相關醫療物資已經送達中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0743be403ae49f290b91169fd65e2e5aa25cce12.torrent)
+
+磁力链接：magnet:?xt=urn:btih:0743be403ae49f290b91169fd65e2e5aa25cce12
+
+* [廣州封城人心惶惶市民：共產黨封言論很厲害心裡真是很反共了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc8c8a5752b1778484dc8e1ab17a7edeae0590c3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:cc8c8a5752b1778484dc8e1ab17a7edeae0590c3
+
+* [一線大城深圳重慶相繼封城企業復工遇困難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b2bb51cedf8a7e2500736b38c4cb36b43d22068.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4b2bb51cedf8a7e2500736b38c4cb36b43d22068
 
 * [北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b.torrent)
 
@@ -601,10 +617,6 @@
 * [武漢市民楊陽：我與母被確診只想為母要個床位父親因肺炎去世未算在官方數據中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/378749d0b16cb7fad29d77256f0d77b7a6fb5603.torrent)
 
 磁力链接：magnet:?xt=urn:btih:378749d0b16cb7fad29d77256f0d77b7a6fb5603
-
-* [《石濤聚焦》「網傳：3日內軍人接管武漢」所有人不得進出中老年人外出搶購米麵［醋艾草板藍根等再成國民希望］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7938e576e545bab5752eab7d9517ca691c46383.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b7938e576e545bab5752eab7d9517ca691c46383
 
 * [湖北民眾：物質不足住不上醫院政府應急水平低一幕幕家破人亡的人間慘劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03d1764addee4fbcdc36d84dd8064566d48b6b9d.torrent)
 
