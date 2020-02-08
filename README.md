@@ -18,13 +18,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/B58h7r)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sbUjfH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【禁闻】大疫中病毒与警察谁更可怕？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58518abfb2b4b120c10430e2d481bab5e0241dd4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:58518abfb2b4b120c10430e2d481bab5e0241dd4
+
+* [【禁闻】2月7日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5481e14204a659d08127e2c363dc111b1ca4f52.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f5481e14204a659d08127e2c363dc111b1ca4f52
+
+* [【禁闻】2月7日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d53952756f0d09f3049ac2c03792e5548af0cfc2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d53952756f0d09f3049ac2c03792e5548af0cfc2
 
 * [【禁闻】记者手记：疫情漩涡中的武汉市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba9aa607cb71b74044d5e8428a929c5628c720f0.torrent)
 
@@ -597,18 +609,6 @@
 * [《石濤.News》「在劫難逃天滅中共：生與滅」最新即時：杭州封城警察持槍牽狗香港出現第一位離世與隨街倒地者醫護人員罷工爆光醫院屍體候診家屬病人同處一室澳門關閉賭場北京空如鬼城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc994bf924f8e3907aa96657b4bba21fc36af31c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:bc994bf924f8e3907aa96657b4bba21fc36af31c
-
-* [美國CDC尚不清楚病毒傳播程度建議自我防護三要三不要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6760e6e1cb594530fd52ad994b466aecf8a0c30e.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6760e6e1cb594530fd52ad994b466aecf8a0c30e
-
-* [中国人民有救了？美国新药在北京投入临床试验！华大妈反美却泄密。某国领导人牛，不戴口罩访武汉？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e8c780b60888db90c8b5b6904b225b51601e903.torrent)
-
-磁力链接：magnet:?xt=urn:btih:2e8c780b60888db90c8b5b6904b225b51601e903
-
-* [【环球直击】2月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca1303019f0f49e0a7e486b906fb09083ecff4d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6ca1303019f0f49e0a7e486b906fb09083ecff4d
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
