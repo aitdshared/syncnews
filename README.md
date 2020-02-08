@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/keoa4D)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BcnN2x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [控疫慘烈！！！抓「四類」人，女子脖子被扭斷，深圳大逃港，不許賣治療發燒藥【爆料：xwkd2017@gmail.com】【新聞看點】（20200208）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3470e03cd2bf03b1d2e4ce40bbe89e5c6650884.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b3470e03cd2bf03b1d2e4ce40bbe89e5c6650884
+
+* [《石濤聚焦》「驚爆：僅武漢已死最少6萬」台媒：一個殯儀館每天焚燒最多316馬來西亞-中國報：漢口殯儀館每日燒576武漢最少8個殯儀館封城至今17天按留城900萬計算為0.67%同比全國？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/999d6b55081ea6169ede8606375b5ef648927618.torrent)
+
+磁力链接：magnet:?xt=urn:btih:999d6b55081ea6169ede8606375b5ef648927618
 
 * [《石濤聚焦》「病毒源自古羅馬：蛇的毒液與男人的體液」天滅中共-生與死習近平向川普表態：有信心打贏這場「人民戰爭」中共國人死習思想光輝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23329649b7b6e1a11b54fb8d36cb3e819b837f5f.torrent)
 
@@ -605,14 +613,6 @@
 * [疫区笼罩恐怖警察上街抓人進室內打砸街上查手機还有公安提枪上膛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcfa1eb6d3210b8154f22fbd8b18f0e1a4c1df7.torrent)
 
 磁力链接：magnet:?xt=urn:btih:ddcfa1eb6d3210b8154f22fbd8b18f0e1a4c1df7
-
-* [武汉一家小医院：每天都有死亡急诊科快成为停尸房.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e608b71fa6577a9aaba5389e83e66776f99a37b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:2e608b71fa6577a9aaba5389e83e66776f99a37b
-
-* [《石濤聚焦》「」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/748b8ed0071790d4e29bce3a75c919fa0c010c7f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:748b8ed0071790d4e29bce3a75c919fa0c010c7f
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
