@@ -18,13 +18,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zSQESM)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QTiwLw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [美國CDC發布新冠肺炎你要知道的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf499ba0ef299d2490f45542bc8beaee0dceb846.torrent)
+
+磁力链接：magnet:?xt=urn:btih:cf499ba0ef299d2490f45542bc8beaee0dceb846
+
+* [中共再次升級封城規模廣州深圳天津封城直逼京滬中國有至少80個城市進入封城狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe50e743846a9de8206e56360ac3bd78b8401c08.torrent)
+
+磁力链接：magnet:?xt=urn:btih:fe50e743846a9de8206e56360ac3bd78b8401c08
+
+* [紐約排除4例疑似武漢肺炎剩下1例等結果不過因流感住院的人數呈上升.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b90036ae5fa41e79c53c688e92e4007468149e6.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3b90036ae5fa41e79c53c688e92e4007468149e6
 
 * [修德避瘟疫.mp3](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d67624bae0380c966ce14ca16f7cf82767b7ded.torrent)
 
@@ -597,10 +609,6 @@
 * [法國六例感染冠狀病毒法國現狀盤點已從武漢撤離200位僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c9e5013f28d7f2765374528c2117b6cc5d8efc6.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3c9e5013f28d7f2765374528c2117b6cc5d8efc6
-
-* [新冠肺炎繼續蔓延重創大陸經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32fc1057c385dec2b8060b2bd302f24e7150c87a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:32fc1057c385dec2b8060b2bd302f24e7150c87a
 
 * [武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c9006d9be1dd8fa329a2381013d9f426bce247b.torrent)
 
