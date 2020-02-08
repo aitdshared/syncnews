@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HIDlN7)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ywo6zc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b
 
 * [湖北高官各自表现，北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034bba291a15feca67da66c5fcb9f575cfbffbb3.torrent)
 
@@ -605,10 +609,6 @@
 * [湖北民眾：物質不足住不上醫院政府應急水平低一幕幕家破人亡的人間慘劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03d1764addee4fbcdc36d84dd8064566d48b6b9d.torrent)
 
 磁力链接：magnet:?xt=urn:btih:03d1764addee4fbcdc36d84dd8064566d48b6b9d
-
-* [武漢受訪人：我喘不過氣來醫院不收家裡沒法隔離媽媽也開始不舒服了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fbbd278699889a9b8430fe59482f14827889d01.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7fbbd278699889a9b8430fe59482f14827889d01
 
 * [杭州繼溫州後封城疫情延燒下一個上海或許也不妙了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93f3df6cd15e9b218fef75251348e7fb0f593652.torrent)
 
