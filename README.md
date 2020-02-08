@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DJvF1c)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3BPsra)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [李文亮离世、陈秋实失联；怎么躲开房间里的大象，真男儿在哪（20200207第696期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/210ee795987583af06f82cc7d320bef76ea7717f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:210ee795987583af06f82cc7d320bef76ea7717f
 
 * [美軍擊斃基地組織也門分支頭目該組織曾多次向美國部隊發動襲擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/291afacdf193017048ca1993f2e7ad761faa7ff8.torrent)
 
@@ -605,10 +609,6 @@
 * [【中国禁闻】2月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbb36f9cd6f585bcbe5fa2df3225e0cfb89036b6.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cbb36f9cd6f585bcbe5fa2df3225e0cfb89036b6
-
-* [武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人(政论天下第101集20200203)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c9006d9be1dd8fa329a2381013d9f426bce247b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0c9006d9be1dd8fa329a2381013d9f426bce247b
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
