@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FO1ysz)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZrTeOm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [《石濤.News》「俄羅斯火星男孩2016年準確預測：武漢病毒-非典2.0」2020年在一個大陸上第一次大災難降臨因為那是一個沒有信仰的國度中國已經誕生偉大的靈神國一直注視著（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ddcff2aecf58cc1539cb1bd085eadde732380fe.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7ddcff2aecf58cc1539cb1bd085eadde732380fe
 
 * [【中国禁闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7806b4b48b142a3b9bfa3e28b5cc1c39165a4765.torrent)
 
@@ -609,10 +613,6 @@
 * [2020總統大選兩黨愛荷華州初選結果推遲公佈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2eb30dc1e25ed31dbc43e0b07237cbec8f7a7f61.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2eb30dc1e25ed31dbc43e0b07237cbec8f7a7f61
-
-* [香港出現第一起死亡病例9千醫護人員罷工要求港府全面關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bfceda7e4ca52333bea295038fb7da99cbb0069.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9bfceda7e4ca52333bea295038fb7da99cbb0069
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
