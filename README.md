@@ -18,7 +18,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZFqJ4P)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PseFwY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -593,10 +593,6 @@
 * [6人感染加州武漢肺炎病患一天內翻倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0294adcecc5c1bff0c27c304ec9362faea001806.torrent)
 
 磁力链接：magnet:?xt=urn:btih:0294adcecc5c1bff0c27c304ec9362faea001806
-
-* [紐約時代廣場各國民眾聚焦武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01e69e30e309403b9eefca05637706dbc48e4e50.torrent)
-
-磁力链接：magnet:?xt=urn:btih:01e69e30e309403b9eefca05637706dbc48e4e50
 
 * [法國六例感染冠狀病毒法國現狀盤點已從武漢撤離200位僑民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c9e5013f28d7f2765374528c2117b6cc5d8efc6.torrent)
 
