@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mR9Cx0)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HIDlN7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [湖北高官各自表现，北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034bba291a15feca67da66c5fcb9f575cfbffbb3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:034bba291a15feca67da66c5fcb9f575cfbffbb3
 
 * [💥2萬人漏檢！協和醫院內部消息：此前武漢肺炎確診方法不對；新病毒會騙，患者以為痊癒過後復發？三瘟疫並行，探究物資為何緊；陳秋實遭強制隔離；哈爾濱百警封小區新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/427687b319b3812a484b7b674007c86c0c982206.torrent)
 
@@ -609,10 +613,6 @@
 * [杭州繼溫州後封城疫情延燒下一個上海或許也不妙了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93f3df6cd15e9b218fef75251348e7fb0f593652.torrent)
 
 磁力链接：magnet:?xt=urn:btih:93f3df6cd15e9b218fef75251348e7fb0f593652
-
-* [美國官員證實確診11例撤僑行動繼續五個軍事設施協助安置隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/536223f5cd983c97b8bb5613a25da7196627fb5d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:536223f5cd983c97b8bb5613a25da7196627fb5d
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
