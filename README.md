@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/134g4)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/142ln)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [武漢瘟疫，天譴，救命的辦法 - 20200208 第76期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fb96f19655515b90a4a21ac41698e0b40859422.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4fb96f19655515b90a4a21ac41698e0b40859422
 
 * [【專訪】歐洲病毒學專家：新冠病毒有很強人工干預痕跡，似在實驗室產生；病毒有很強傳播力和毒性；中共必須透明，讓全球專家參與抗疫熱點互動02082020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ef90f284af44ef24ffe2eacb04b2e30abf664df.torrent)
 
@@ -601,10 +605,6 @@
 * [疫情恐懼蔓延海外紐約法拉盛也是一「罩」難求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e757a968eed1b58b099901cdbe502c8561b0952e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e757a968eed1b58b099901cdbe502c8561b0952e
-
-* [賴清德訪華府受邀出席全美祈禱早餐會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67f151b706e4c6cce5d5d3bfa6e61234fc4b1320.torrent)
-
-磁力链接：magnet:?xt=urn:btih:67f151b706e4c6cce5d5d3bfa6e61234fc4b1320
 
 * [繼湖北省多個城市先後封城後更多省市不斷進入「封城」模式.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65dcd68acb101da619182b27e8131a3f1fc085a2.torrent)
 
