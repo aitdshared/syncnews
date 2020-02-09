@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/14jxo)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/14kx9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【新闻周刊】第718期（202028）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a09b2ac5ba10be0fe33c86b2f44f694f0e1f206e.torrent)
+
+磁力链接：magnet:?xt=urn:btih:a09b2ac5ba10be0fe33c86b2f44f694f0e1f206e
+
+* [白宫突然调查武漢肺炎源头！陈秋实遭隔离！李文亮去世党国如临大敌！云南抓5医生！（老北京茶館第242集20200209）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21074a634887370ee7c5e65c0e2f774f5fb9ff2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d21074a634887370ee7c5e65c0e2f774f5fb9ff2
 
 * [面对武汉肺炎，如何自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1f10546db79f3c9518f68d5a305843a0cb2c9b0.torrent)
 
@@ -601,10 +609,6 @@
 * [【禁闻】中共下武汉疫情封口令最高判十五年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23682c61c46c20987a89024b0507c86b890efbe2.torrent)
 
 磁力链接：magnet:?xt=urn:btih:23682c61c46c20987a89024b0507c86b890efbe2
-
-* [《石濤.News》「最新：掩蓋下的數字-確診2.4萬亡500」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b12b0de20ebd29d81f28bbeb0925b7b7fe0233d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7b12b0de20ebd29d81f28bbeb0925b7b7fe0233d
 
 * [《石濤聚焦》「BBC：習近平失蹤七天全球關注」“親自指揮親自部署”之後人沒了「如為推卸責任給總理表面瘟疫不可戰勝」只能刷心眼兒「天滅中共之時不賴我習傯」（0402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79c5b56ac31dea98a84f38c8f6711b75c153fdb.torrent)
 
