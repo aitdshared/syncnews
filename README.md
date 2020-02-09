@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mx3dlf)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/130zk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [今年中国经济受到的影响可能有多大？（政论天下第107集20200208）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6aa61259848e87306dcd98cf7e1889b0216f63a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:e6aa61259848e87306dcd98cf7e1889b0216f63a
 
 * [【环球直击】2月8日完整版（2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d83094565faac158ea01251857c87594240dc8c.torrent)
 
@@ -609,10 +613,6 @@
 * [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
 磁力链接：magnet:?xt=urn:btih:ec745034ad8d6e56863059415d515a87c62cb7da
-
-* [杭州也下封城令！“杭三封”与武汉的异同，遗漏的视角；习近平神隐，真正的挑战所在（20200204第694期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412ba33c5f4713be4875e02ae414980191980834.torrent)
-
-磁力链接：magnet:?xt=urn:btih:412ba33c5f4713be4875e02ae414980191980834
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
