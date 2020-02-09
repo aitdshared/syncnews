@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/14w93)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/161m9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [一周经济回顾（2020年2月8日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdb743d421b7dfdf056bcbe310e4c08a8d804dab.torrent)
+
+磁力链接：magnet:?xt=urn:btih:fdb743d421b7dfdf056bcbe310e4c08a8d804dab
 
 * [武漢肺炎與電影《大明劫》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86eb56d608166c9bfab089fc78bb125b92d748b8.torrent)
 
@@ -605,10 +609,6 @@
 * [【禁闻】武汉医护人员对话流出显疫情严峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7b7175810b1080d59612fe6181a271cbfd98fc7.torrent)
 
 磁力链接：magnet:?xt=urn:btih:c7b7175810b1080d59612fe6181a271cbfd98fc7
-
-* [【禁闻】应对中共威胁美两党智库提出近百倡议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1565ad8e2c565a46cb542c43c87bb0cecfa23ee.torrent)
-
-磁力链接：magnet:?xt=urn:btih:f1565ad8e2c565a46cb542c43c87bb0cecfa23ee
 
 * [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
