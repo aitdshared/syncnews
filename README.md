@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/142ln)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/14ijq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [新冠肺炎之「死因不可描述」；吹哨人為何叫不醒「中國夢」；疫情失控，我們至少應得到一個教訓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074ea6faafb3bb5a092e3fae48379a516d77e015.torrent)
+
+磁力链接：magnet:?xt=urn:btih:074ea6faafb3bb5a092e3fae48379a516d77e015
 
 * [武漢瘟疫，天譴，救命的辦法 - 20200208 第76期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fb96f19655515b90a4a21ac41698e0b40859422.torrent)
 
@@ -605,10 +609,6 @@
 * [疫情恐懼蔓延海外紐約法拉盛也是一「罩」難求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e757a968eed1b58b099901cdbe502c8561b0952e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e757a968eed1b58b099901cdbe502c8561b0952e
-
-* [繼湖北省多個城市先後封城後更多省市不斷進入「封城」模式.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65dcd68acb101da619182b27e8131a3f1fc085a2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:65dcd68acb101da619182b27e8131a3f1fc085a2
 
 * [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
