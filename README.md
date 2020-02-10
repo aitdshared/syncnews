@@ -18,13 +18,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1hwjz)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1ifa1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【微视频】中共制造肺炎拐点恐酿疑似感染劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074863522080036e963645754cd8274aa0fbaf4f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:074863522080036e963645754cd8274aa0fbaf4f
+
+* [【环球直击】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3fe6ffc87407df96b132938d5e5a94925ff5a4c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f3fe6ffc87407df96b132938d5e5a94925ff5a4c
+
+* [武漢某間醫院工作人員：第一線醫護倒下好幾批壓力巨大都寫好了遺書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92b7d8bdbe723259af56d2c0bfb67999f2defb85.torrent)
+
+磁力链接：magnet:?xt=urn:btih:92b7d8bdbe723259af56d2c0bfb67999f2defb85
 
 * [港澳居民學生禁來台477接觸者解除檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4dc87f42d3d19d0b614b5d4e3332fffdb908f9ac.torrent)
 
@@ -585,18 +597,6 @@
 * [高度警惕！新冠肺炎新增2種疑似傳染途徑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8483ad9825abbb0fa25f409e62db0adb86c949ab.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8483ad9825abbb0fa25f409e62db0adb86c949ab
-
-* [弹劾川普失败,议长佩洛西当众撕掉川普的国情咨文讲稿,美国为何如此分裂(政论天下第103集20200205)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d26ef62d3fed75ee4a6327faea08b8a8c1072c6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3d26ef62d3fed75ee4a6327faea08b8a8c1072c6
-
-* [【禁闻】美无偿开放肺炎新药中科院抢注专利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4d4e79a3e2986566950ee27fa0bf8c0a91be436.torrent)
-
-磁力链接：magnet:?xt=urn:btih:e4d4e79a3e2986566950ee27fa0bf8c0a91be436
-
-* [美药企抗冠状病毒药在中国被抢注，要点探究；华春莹批美不帮助，大家失焦了（2020020第695期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cdabd0a0f36c14a056cf3081529e478eaacb53a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9cdabd0a0f36c14a056cf3081529e478eaacb53a
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
