@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1f0rv)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1gu9j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [国际媒体纷纷质问：习近平在哪？他亲自躲藏。党内外对他日益不满.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c12c76a76815dcb187d3e5eca152fb94edf1471.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2c12c76a76815dcb187d3e5eca152fb94edf1471
 
 * [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
 
@@ -589,10 +593,6 @@
 * [美議員籲抵制中共惡意影響破網絡封鎖對武漢疫表示擔憂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6812e2b41a657d647687be0e642500a314bf304b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:6812e2b41a657d647687be0e642500a314bf304b
-
-* [美國積極救助中國疫區美企捐贈名列第一中方聲稱美國沒有提供任何實質性幫助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1b878a2f17a1937e8a7cce4dfa201c6497f62f7.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d1b878a2f17a1937e8a7cce4dfa201c6497f62f7
 
 * [日本政府證實：公主號確診十例三千多人將在郵輪上至少隔離14天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/534eeabd5bb688bed94bdb80db40f663b561f8eb.torrent)
 
