@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/161m9)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1bm1x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【严真点评】外交部大实话：“吹哨人”李文亮之死，震撼了中国体系，治好了亿万国人的眼睛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfebcd19dd053ee261e236283de06e9278a1e4af.torrent)
+
+磁力链接：magnet:?xt=urn:btih:bfebcd19dd053ee261e236283de06e9278a1e4af
 
 * [一周经济回顾（2020年2月8日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdb743d421b7dfdf056bcbe310e4c08a8d804dab.torrent)
 
@@ -605,10 +609,6 @@
 * [杭州、南京、郑州、哈尔滨等发封闭小区禁令，武汉突建方舱医院，新增万余床位透露了什么？政治局开会，十二分钟报道无一常委露面（政论天下第102集20200204）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd363c67ceae48debbb5e4e817001cdb8eb295b7.torrent)
 
 磁力链接：magnet:?xt=urn:btih:dd363c67ceae48debbb5e4e817001cdb8eb295b7
-
-* [【禁闻】武汉医护人员对话流出显疫情严峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7b7175810b1080d59612fe6181a271cbfd98fc7.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c7b7175810b1080d59612fe6181a271cbfd98fc7
 
 * [病毒被人工操作？外國專家有新說！疫情飆升，7常委隱身，自行隔離是計？一線醫生急了！武漢肺炎四大懸疑【新聞看點】（20200204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec745034ad8d6e56863059415d515a87c62cb7da.torrent)
 
