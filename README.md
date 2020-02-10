@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1ddfp)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1dfxj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【环球直击】2月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c00d7224b5b43e50f2c62db1df22d10ca0da9b9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4c00d7224b5b43e50f2c62db1df22d10ca0da9b9
+
+* [一个修行人对疫情的反思和避难之道(哲思心语第7集20200209)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946ca5d2036b6661969727fe62e430bd8cd00302.torrent)
+
+磁力链接：magnet:?xt=urn:btih:946ca5d2036b6661969727fe62e430bd8cd00302
+
+* [【中国禁闻】2月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/539ec93205d114c65ae84f4ddc11649ec2ed86c6.torrent)
+
+磁力链接：magnet:?xt=urn:btih:539ec93205d114c65ae84f4ddc11649ec2ed86c6
+
+* [江峰《約在春天相見》MV：獻給與魔鬼頑強抗爭的大陸民眾（20200209）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f8d34fbe7e2b513d918a55f3b8ad033c3766598.torrent)
+
+磁力链接：magnet:?xt=urn:btih:1f8d34fbe7e2b513d918a55f3b8ad033c3766598
 
 * [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」聖人不傷生不為己所為‘洗耳不聞亡國音’-亡富貴之榮遠愛慾是非之境真乃仁杰也（中集-1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34806d16357ac5ffe89b6a4f9020f728381a414c.torrent)
 
