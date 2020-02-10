@@ -18,13 +18,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1hbpk)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1hwjt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [港澳居民學生禁來台477接觸者解除檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4dc87f42d3d19d0b614b5d4e3332fffdb908f9ac.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4dc87f42d3d19d0b614b5d4e3332fffdb908f9ac
+
+* [北京上海封城大陆已封鎖80多座城市疫情失控程度超乎外界想像.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0216aea453217882ff275744c19470371272225e.torrent)
+
+磁力链接：magnet:?xt=urn:btih:0216aea453217882ff275744c19470371272225e
+
+* [哨聲吹醒華人紐約華人悼念李文亮眾人齊吹口哨希望「哨聲覺醒中國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38df4970b3b710c461f2807bbf143b455ea0a089.torrent)
+
+磁力链接：magnet:?xt=urn:btih:38df4970b3b710c461f2807bbf143b455ea0a089
+
+* [大批返工潮湧入上海封城疫情告急市民擔心上海或成為第二個武漢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aab0e1b4479f404f10a407a0754c5f62ce5a3c9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9aab0e1b4479f404f10a407a0754c5f62ce5a3c9
+
+* [美將公佈2021財年預算含應對中俄威脅資金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7178f615feff6b38d619dfb87b491817891a14a0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7178f615feff6b38d619dfb87b491817891a14a0
+
+* [幫中共走私高端芯片英國華裔面臨20年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cc45401409b9a8056627673d85a7da98e93faca.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9cc45401409b9a8056627673d85a7da98e93faca
 
 * [【自救】在中國持有「資產」的民眾,該如何避險自保？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/951eea8b5560eec298f4336939973ab97a5f5819.torrent)
 
@@ -573,30 +597,6 @@
 * [美药企抗冠状病毒药在中国被抢注，要点探究；华春莹批美不帮助，大家失焦了（2020020第695期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cdabd0a0f36c14a056cf3081529e478eaacb53a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:9cdabd0a0f36c14a056cf3081529e478eaacb53a
-
-* [【环球直击】2月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d44b44724924c7ec87325c90e38f54b06ce6ea3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9d44b44724924c7ec87325c90e38f54b06ce6ea3
-
-* [武汉女在政府門前怒吼：母亲在屋里隔离政府不管就是等死千万不要信政府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26d78c670c54516d9299e65b409f218d5c6d79bc.torrent)
-
-磁力链接：magnet:?xt=urn:btih:26d78c670c54516d9299e65b409f218d5c6d79bc
-
-* [武漢男子崩潰？提菜刀上街警察多處抓人和圍捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2ed798f80931af14cee4985ee8add29a1d69115.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c2ed798f80931af14cee4985ee8add29a1d69115
-
-* [獨家：醫療內部資料曝光！發燒就地焚燒！習被喊下台，川普5談中國，出生30小時確診染病，1人確診4000人隔離，爆料：xwkd2017@gmail.com【新聞看點】（20200205）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b85a2d53be01416b83b5f07bb1fcc4e7c5f47905.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b85a2d53be01416b83b5f07bb1fcc4e7c5f47905
-
-* [川普第三次國情咨文：讚美國復興提到美中合作以及抗擊新型冠狀病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af7cacf5ef6f0d45a1d64c46202a044630d5bb63.torrent)
-
-磁力链接：magnet:?xt=urn:btih:af7cacf5ef6f0d45a1d64c46202a044630d5bb63
-
-* [川普國情諮文演講羅冠聰受邀參加顯示對香港的支持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e61129c69d8ad55876e371108e6724481eed7bf.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7e61129c69d8ad55876e371108e6724481eed7bf
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
