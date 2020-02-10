@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1ei5e)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1f0rv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
 
 * [【禁闻】疫情十万火急美国专家为何难进中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b51c295b97e521b5e8775a669dbbfae39ae99a9.torrent)
 
@@ -593,10 +597,6 @@
 * [日本政府證實：公主號確診十例三千多人將在郵輪上至少隔離14天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/534eeabd5bb688bed94bdb80db40f663b561f8eb.torrent)
 
 磁力链接：magnet:?xt=urn:btih:534eeabd5bb688bed94bdb80db40f663b561f8eb
-
-* [武漢趕建「方艙醫院」網批：死亡集中營.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b1b8957e1477c77adbf845f2d5e1e640b79f7d2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3b1b8957e1477c77adbf845f2d5e1e640b79f7d2
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
