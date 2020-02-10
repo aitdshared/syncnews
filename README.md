@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1dbzf)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1ddcr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」聖人不傷生不為己所為‘洗耳不聞亡國音’-亡富貴之榮遠愛慾是非之境真乃仁杰也（中集-1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34806d16357ac5ffe89b6a4f9020f728381a414c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:34806d16357ac5ffe89b6a4f9020f728381a414c
+
+* [教授们怒了，要求人大召开紧急会议！副总理口气：高层斗争势均力敌。习近平再次避开某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cb2665a26c411eb5117fb5d1c98a9492e8cb212.torrent)
+
+磁力链接：magnet:?xt=urn:btih:5cb2665a26c411eb5117fb5d1c98a9492e8cb212
 
 * [【严真点评】外交部大实话：“吹哨人”李文亮之死，震撼了中国体系，治好了亿万国人的眼睛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfebcd19dd053ee261e236283de06e9278a1e4af.torrent)
 
