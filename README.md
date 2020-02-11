@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [武漢百步亭疫情失控被掩蓋絕望的居民求救並揭露當局掩蓋疫情真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/801b2a14b31fbb795dccfcc30b603187a766ac0b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:801b2a14b31fbb795dccfcc30b603187a766ac0b
+
 * [擔憂武漢肺炎奧斯卡人權獎籲結束中共暴政.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f566caf0f0ff455bfa8206c012d0d4a4c3d33ad2.torrent)
 
 磁力链接：magnet:?xt=urn:btih:f566caf0f0ff455bfa8206c012d0d4a4c3d33ad2
@@ -601,14 +605,6 @@
 * [习近平终于露面！不准那人去那个城市。华尔街日报重提亚洲病夫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76e24083d26d43dc3e0941d35ae9aa95894380fe.torrent)
 
 磁力链接：magnet:?xt=urn:btih:76e24083d26d43dc3e0941d35ae9aa95894380fe
-
-* [做为一名法轮功修炼者，谈谈我对中国目前困境的看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9ce8bc176fee5db9670bf96b9519e5648bbb860.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c9ce8bc176fee5db9670bf96b9519e5648bbb860
-
-* [👉武漢易治，武漢周邊疫情加劇將很崩潰！擔心湖北天氣倒春寒🌨️梅雨致長江洪汛助病毒擴散；關注「次生災難」；能治武漢肺炎，奇藥瑞德西韋很貴嗎？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ae434baa0f3841d9380dcd6633e11ff96a1344c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:8ae434baa0f3841d9380dcd6633e11ff96a1344c
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
