@@ -598,10 +598,6 @@
 
 磁力链接：magnet:?xt=urn:btih:9ab7214d7bbfd29b12e806bbd5e5f1336372a22c
 
-* [【环球直击】2月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18f6a1b4fdf56207cc1e8c9aff0522b071751a4b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:18f6a1b4fdf56207cc1e8c9aff0522b071751a4b
-
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666
