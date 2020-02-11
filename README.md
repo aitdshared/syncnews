@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【蕭茗訪談】武漢肺炎如何演變成了政治表演？中國人民如何應對危機？中共高層的底線是什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9
+
+* [詭異！大陸網站突然指控石正麗修改病毒，川普出手調查病毒來源，醫院驚現3具兒童屍體，權威專家的疑惑，崔永元的不一樣思考（20200211）武漢肺炎【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6006356451563dcf2d56a0c74f87651ce482c1f7.torrent)
+
+磁力链接：magnet:?xt=urn:btih:6006356451563dcf2d56a0c74f87651ce482c1f7
+
 * [《石濤聚焦》「湯姆漢克斯的“但丁密碼”另類再世」WHO配合習傯共黨國際調查團大多是「外行」華郵：世衛協助習總欺騙全球［促疫情為全球性危機］總幹事賊喊捉賊「武漢病毒非常可能全球大爆發」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e27f808084d644152b5a16561603d378edd79b9.torrent)
 
 磁力链接：magnet:?xt=urn:btih:5e27f808084d644152b5a16561603d378edd79b9
@@ -593,10 +601,6 @@
 * [川普白宮記者會慶勝利：贏了通俄門調查贏了彈劾案並向家人表達愧疚和感謝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d22b73f637e7e63a5d358346f368db63e7895bd4.torrent)
 
 磁力链接：magnet:?xt=urn:btih:d22b73f637e7e63a5d358346f368db63e7895bd4
-
-* [【禁闻】武汉方舱医院开启网友曝光条件恶劣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ab7214d7bbfd29b12e806bbd5e5f1336372a22c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9ab7214d7bbfd29b12e806bbd5e5f1336372a22c
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
