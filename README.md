@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [日本郵輪累計確診135人全球疫情持續擴散世衛期待各國專家共同獻策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbbb857581abc472fab7315e96001b0eb75362f1.torrent)
+
+磁力链接：magnet:?xt=urn:btih:cbbb857581abc472fab7315e96001b0eb75362f1
+
 * [美國專家﹕中共將疫情問題政治化信息不透明導致國際社會更難應對疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd8b0e68025541687db1e838b06fc6ac1707d413.torrent)
 
 磁力链接：magnet:?xt=urn:btih:bd8b0e68025541687db1e838b06fc6ac1707d413
@@ -597,10 +601,6 @@
 * [👉武漢易治，武漢周邊疫情加劇將很崩潰！擔心湖北天氣倒春寒🌨️梅雨致長江洪汛助病毒擴散；關注「次生災難」；能治武漢肺炎，奇藥瑞德西韋很貴嗎？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ae434baa0f3841d9380dcd6633e11ff96a1344c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8ae434baa0f3841d9380dcd6633e11ff96a1344c
-
-* [【全球新闻】2月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9e02d9a3dee726eb8e6a479c6d85954e641981.torrent)
-
-磁力链接：magnet:?xt=urn:btih:dc9e02d9a3dee726eb8e6a479c6d85954e641981
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
