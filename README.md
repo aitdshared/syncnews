@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤聚焦》「依波拉病毒發現者：武漢病毒-非典2.0比伊波拉病毒更危險」2月底或3月才到高峰傳播力更強大量死亡疫情結束前疫苗「不太可能」問世「無症狀的傳播方式令病毒更具威脅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a97f401878398c44c194f56d5a0b8e04f3e8350.torrent)
+
+磁力链接：magnet:?xt=urn:btih:8a97f401878398c44c194f56d5a0b8e04f3e8350
+
 * [最長潛伏期24天！鍾南山論文揭新冠病毒新況；巧合嗎？官方1月底曾刪一例「潛伏23天」的通報；全球防疫或存漏洞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33c0d3fb7a0f8017234fa918b6a6b28ff9624753.torrent)
 
 磁力链接：magnet:?xt=urn:btih:33c0d3fb7a0f8017234fa918b6a6b28ff9624753
