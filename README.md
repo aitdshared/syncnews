@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤.News》「驚爆：3個幼童被裝一個裝屍袋」裝屍者無保護他人熟視無睹川普顧問納瓦羅驚嘆［崔天侃不否認病毒源自武漢P4研究所］WHO配合習近平拒絕所有美國專家（1102）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3359a8634190c12478676ddd1df8939a28b4279.torrent)
+
+磁力链接：magnet:?xt=urn:btih:c3359a8634190c12478676ddd1df8939a28b4279
+
 * [大瘟疫蔓延絕境求生有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61615e071e701d86d99327025a4af400bff13c8c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:61615e071e701d86d99327025a4af400bff13c8c
@@ -597,10 +601,6 @@
 * [軍管湖北，北京清算負責人，美國藥物被武漢病毒所搶註專利，P4實驗室病毒動物賣給誰？石正麗不敢「公開對質」，方艙醫院千人共用一廁，病患情緒激動，15秒染病【新聞看點】（20200206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38b1ceceeb5b05b7f953596d7fd73e3cc7ab6c39.torrent)
 
 磁力链接：magnet:?xt=urn:btih:38b1ceceeb5b05b7f953596d7fd73e3cc7ab6c39
-
-* [《石濤聚焦》「‘瑞德西韋’CEO救人是關鍵專利就瞎扯啦」2016年已在中共國申請3年未批「武漢病毒所之為利菁英人類垃圾之絕品中共品質光輝」該藥網傳很有效醫師不認同（0602）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3dbd5f0bb039486686797e77d54d604aeb454dcf.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3dbd5f0bb039486686797e77d54d604aeb454dcf
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
