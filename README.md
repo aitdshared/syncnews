@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】病毒疑云白宫要求调查中共军方介入.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/123d259adba86a3e42da93942bc7e946785830f8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:123d259adba86a3e42da93942bc7e946785830f8
+
 * [紐約華人狂掃口罩醫生診所口罩緊缺告急.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9feb82315d08034d654d1a5237c5ca3dcdd67ecf.torrent)
 
 磁力链接：magnet:?xt=urn:btih:9feb82315d08034d654d1a5237c5ca3dcdd67ecf
