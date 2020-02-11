@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e.torrent)
+
+磁力链接：magnet:?xt=urn:btih:e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e
+
+* [【全球疫情直擊】美首批撤僑人員新冠病毒已全陰性鑽石公主號郵輪再增66確診病例哨聲吹醒華人紐約悼念李文亮2月10日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7ade938919dfbbd450b78f9243695a00f324195.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b7ade938919dfbbd450b78f9243695a00f324195
+
+* [方斌与陈秋实被抓;北京上海封闭式管理,疫情拐点何时方至对武汉疫情的分析(政论天下第108集20200210)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4f930b916a6d885cfc99ba2631e8c4f0671cdb4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d4f930b916a6d885cfc99ba2631e8c4f0671cdb4
+
 * [武漢百步亭疫情失控被掩蓋絕望的居民求救並揭露當局掩蓋疫情真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/801b2a14b31fbb795dccfcc30b603187a766ac0b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:801b2a14b31fbb795dccfcc30b603187a766ac0b
