@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [陳秋實上週調查武漢「方艙醫院」後已失蹤五天網民憂變成第二個李文亮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/261303eed2c200eb8bf1ae30f93fd3e42ab9d319.torrent)
+
+磁力链接：magnet:?xt=urn:btih:261303eed2c200eb8bf1ae30f93fd3e42ab9d319
+
 * [【禁闻】2月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b51d82528742c28dbc61fee0cc30b8c3382c6d8a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:b51d82528742c28dbc61fee0cc30b8c3382c6d8a
@@ -597,10 +601,6 @@
 * [南京杭州封城，武漢疫情下一個攻陷上海；廣東香港不封城原來黨組織有任務，美航停飛，香港會撤僑麼（江峰漫談20200206第113期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da371f309396f66842e66d086057e848689441f4.torrent)
 
 磁力链接：magnet:?xt=urn:btih:da371f309396f66842e66d086057e848689441f4
-
-* [【解讀】武漢將遭軍管、病患破十萬？機密文件相關視頻流出！新證據再揭中共隱匿疫情；中共對台灣「木馬屠城」？300記者入湖北輿論維穩全面升級｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48d63c923f5a4ccef8e7c00ff22026120f0bf3ee.torrent)
-
-磁力链接：magnet:?xt=urn:btih:48d63c923f5a4ccef8e7c00ff22026120f0bf3ee
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
