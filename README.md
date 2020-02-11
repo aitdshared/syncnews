@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [紐約華人狂掃口罩醫生診所口罩緊缺告急.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9feb82315d08034d654d1a5237c5ca3dcdd67ecf.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9feb82315d08034d654d1a5237c5ca3dcdd67ecf
+
+* [盜取個人及商業機密美國起訴四名中共軍方駭客竊取美企1.5億客戶資料及商業機密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/715a02a91e152c48c7e6d5ea7aa2ef1a6b47a602.torrent)
+
+磁力链接：magnet:?xt=urn:btih:715a02a91e152c48c7e6d5ea7aa2ef1a6b47a602
+
+* [京滬淪陷老百姓都在恐慌中度日世衛：新冠疫情或將在海外爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7d7b416a42942e10086f7e6351a96f02a2ce7d6.torrent)
+
+磁力链接：magnet:?xt=urn:btih:e7d7b416a42942e10086f7e6351a96f02a2ce7d6
+
 * [《石濤聚焦》「習傯下令：封城北京上海」深信劉伯溫十愁之語「四愁各省起狼煙」封城同日巡時北京頒布「軍紀13條」地方割據在封城之下已成事實（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf.torrent)
 
 磁力链接：magnet:?xt=urn:btih:493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf
