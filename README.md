@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [擔憂武漢肺炎奧斯卡人權獎籲結束中共暴政.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f566caf0f0ff455bfa8206c012d0d4a4c3d33ad2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f566caf0f0ff455bfa8206c012d0d4a4c3d33ad2
+
+* [【全球新闻】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b0881d169e3fc4c2b8be235afbdd9c7c3e7899c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:6b0881d169e3fc4c2b8be235afbdd9c7c3e7899c
+
+* [习近平勉强亮相，但不是武汉！七常委撤离中南海？军队惊传遭拖垮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9207ad5c0520ca972436902edf54e38c3d25d450.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9207ad5c0520ca972436902edf54e38c3d25d450
+
 * [日本郵輪累計確診135人全球疫情持續擴散世衛期待各國專家共同獻策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbbb857581abc472fab7315e96001b0eb75362f1.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cbbb857581abc472fab7315e96001b0eb75362f1
@@ -589,10 +601,6 @@
 * [习近平终于露面！不准那人去那个城市。华尔街日报重提亚洲病夫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76e24083d26d43dc3e0941d35ae9aa95894380fe.torrent)
 
 磁力链接：magnet:?xt=urn:btih:76e24083d26d43dc3e0941d35ae9aa95894380fe
-
-* [【环球直击】2月6日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03015598a9bc62f45554c08f6ce15d1517ddce2a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:03015598a9bc62f45554c08f6ce15d1517ddce2a
 
 * [做为一名法轮功修炼者，谈谈我对中国目前困境的看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9ce8bc176fee5db9670bf96b9519e5648bbb860.torrent)
 
