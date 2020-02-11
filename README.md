@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】记者手记：新冠肺炎确诊者未被收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19962a5b7686ba42ea1335d3a989f291f9c8052a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:19962a5b7686ba42ea1335d3a989f291f9c8052a
+
 * [《石濤聚焦》「美媒：習近平正失去‘天命’」其自信開始崩裂「黨媒公開嘲諷‘習總應去武漢’下發‘軍紀13條世衛專家小組入境」三條線同時棄守（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccac98faeb11d9dade43a3a4ad833faa577f8851.torrent)
 
 磁力链接：magnet:?xt=urn:btih:ccac98faeb11d9dade43a3a4ad833faa577f8851
