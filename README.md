@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [美國專家﹕中共將疫情問題政治化信息不透明導致國際社會更難應對疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd8b0e68025541687db1e838b06fc6ac1707d413.torrent)
+
+磁力链接：magnet:?xt=urn:btih:bd8b0e68025541687db1e838b06fc6ac1707d413
+
 * [陳秋實上週調查武漢「方艙醫院」後已失蹤五天網民憂變成第二個李文亮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/261303eed2c200eb8bf1ae30f93fd3e42ab9d319.torrent)
 
 磁力链接：magnet:?xt=urn:btih:261303eed2c200eb8bf1ae30f93fd3e42ab9d319
@@ -597,10 +601,6 @@
 * [【全球新闻】2月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9e02d9a3dee726eb8e6a479c6d85954e641981.torrent)
 
 磁力链接：magnet:?xt=urn:btih:dc9e02d9a3dee726eb8e6a479c6d85954e641981
-
-* [南京杭州封城，武漢疫情下一個攻陷上海；廣東香港不封城原來黨組織有任務，美航停飛，香港會撤僑麼（江峰漫談20200206第113期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da371f309396f66842e66d086057e848689441f4.torrent)
-
-磁力链接：magnet:?xt=urn:btih:da371f309396f66842e66d086057e848689441f4
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
