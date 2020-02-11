@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [京沪启动封闭式管理，第二波冲击困扰中共；不变的英雄（20200210第697期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21252a86fd791440bef8665690fa86e2e9d04cc0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:21252a86fd791440bef8665690fa86e2e9d04cc0
+
 * [《石濤聚焦》「依波拉病毒發現者：武漢病毒-非典2.0比伊波拉病毒更危險」2月底或3月才到高峰傳播力更強大量死亡疫情結束前疫苗「不太可能」問世「無症狀的傳播方式令病毒更具威脅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a97f401878398c44c194f56d5a0b8e04f3e8350.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8a97f401878398c44c194f56d5a0b8e04f3e8350
