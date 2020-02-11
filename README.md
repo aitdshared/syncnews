@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】2月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b51d82528742c28dbc61fee0cc30b8c3382c6d8a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b51d82528742c28dbc61fee0cc30b8c3382c6d8a
+
+* [【禁闻】2月10日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a42fdbbea5e68e2a7e7e6d1f5348276404b6f7e2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:a42fdbbea5e68e2a7e7e6d1f5348276404b6f7e2
+
 * [【禁闻】逾亿个资失窃美起诉4名中共军方黑客.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/752f4be276b243feadc0de4fb93d55d278d6a4ae.torrent)
 
 磁力链接：magnet:?xt=urn:btih:752f4be276b243feadc0de4fb93d55d278d6a4ae
@@ -593,50 +601,6 @@
 * [【解讀】武漢將遭軍管、病患破十萬？機密文件相關視頻流出！新證據再揭中共隱匿疫情；中共對台灣「木馬屠城」？300記者入湖北輿論維穩全面升級｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48d63c923f5a4ccef8e7c00ff22026120f0bf3ee.torrent)
 
 磁力链接：magnet:?xt=urn:btih:48d63c923f5a4ccef8e7c00ff22026120f0bf3ee
-
-* [【禁闻】2月5日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5bcd6f4c48cef565ef4e6070587e691766e64fde.torrent)
-
-磁力链接：magnet:?xt=urn:btih:5bcd6f4c48cef565ef4e6070587e691766e64fde
-
-* [【禁闻】2月5日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9a792a26d50b94ea0924c3dd26e5ef81baebb65.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c9a792a26d50b94ea0924c3dd26e5ef81baebb65
-
-* [【中国禁闻】2月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff8483390362dfc18808dc75d4c145dce9d22ea3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:ff8483390362dfc18808dc75d4c145dce9d22ea3
-
-* [《石濤聚焦》「最新數字不真實6位數以上是肯定」寧波老者15秒擦肩攜帶者即染病武漢病毒研究所把美國援助治療藥物在中國篡改日期的掩蓋方式註冊專利「真正高級動物非人類屬性的菁英表現」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f70ae40f9de3548681b1bc320bded28bf7085c7.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0f70ae40f9de3548681b1bc320bded28bf7085c7
-
-* [封城蔓延多達36城尚未明確「封城」的北上廣等大城市也接近空城狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb7d78086bf026a0a32d64b48ccfa0a06fed72ca.torrent)
-
-磁力链接：magnet:?xt=urn:btih:eb7d78086bf026a0a32d64b48ccfa0a06fed72ca
-
-* [【禁闻】报告：中共军医承认活摘法轮功学员器官.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acc563a0c2f174eb5057cc5277d7034669fdb198.torrent)
-
-磁力链接：magnet:?xt=urn:btih:acc563a0c2f174eb5057cc5277d7034669fdb198
-
-* [【禁闻】武汉医护感染情况首曝光协和262例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a1ae277595f39af3ca64b730cb81d3a24641a7c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6a1ae277595f39af3ca64b730cb81d3a24641a7c
-
-* [美參議院投票川普無罪長達5個月的總統彈劾案落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3469437bf4dc7cf4bb08d4c4d76564df7815b14a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3469437bf4dc7cf4bb08d4c4d76564df7815b14a
-
-* [《石濤.News》「川普彈劾案鬧劇結束川普勝在與神同行」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9518d7231ee7d0309dccb58a5ee7c08eaa4c0b3f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9518d7231ee7d0309dccb58a5ee7c08eaa4c0b3f
-
-* [「世界夢號」1800人郵輪从港驶台現30名乘客發燒而返航港醫護籲全面封關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad6b2e5b9f82ee1092ac64712b94384797835d74.torrent)
-
-磁力链接：magnet:?xt=urn:btih:ad6b2e5b9f82ee1092ac64712b94384797835d74
-
-* [川普國情咨文專家兼顧政績和選戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28cbd73766b9f8d68eef8ff70f60f22b21bb917c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:28cbd73766b9f8d68eef8ff70f60f22b21bb917c
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
