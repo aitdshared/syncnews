@@ -26,6 +26,42 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [大瘟疫蔓延絕境求生有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61615e071e701d86d99327025a4af400bff13c8c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:61615e071e701d86d99327025a4af400bff13c8c
+
+* [疫情拐点没来！武漢方斌被抓！潜伏期变24天！北京封城上海紧跟？五毛反美遭拘留电视认罪！（老北京茶館第243集20200210）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364c70b84ea20700286fc57c485385c4053b984e.torrent)
+
+磁力链接：magnet:?xt=urn:btih:364c70b84ea20700286fc57c485385c4053b984e
+
+* [港府遲遲不封關港社區傳出群聚感染疫情逾百名住戶撤離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fb2cd967923b2722f2c01723376c3a6159e2933.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9fb2cd967923b2722f2c01723376c3a6159e2933
+
+* [北上廣深封城，政治經濟危機全面爆發；習近平的藏身之處揭秘（江峰漫談20200211第115期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b97c4b4897d88b3b1dad2a8d0e79d27825485ab.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3b97c4b4897d88b3b1dad2a8d0e79d27825485ab
+
+* [【禁闻】官方不可信湖北殡仪馆：日烧百具尸体.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4892da9f274dc37a55bd1f9c4911525d1414bd4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:a4892da9f274dc37a55bd1f9c4911525d1414bd4
+
+* [【解讀】工廠趕工製造百萬屍袋？美國流感比武漢肺炎更嚴重？北京上海封城企業竟然復工；呼籲全民反抗暴政方斌被抓(2020.02.11)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f97d2d38deb55322d48280f3e891c34d571b02db.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f97d2d38deb55322d48280f3e891c34d571b02db
+
+* [【中国禁闻】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4aff4246d1f7536669db1e904064a2aaf29f5316.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4aff4246d1f7536669db1e904064a2aaf29f5316
+
+* [北京上海“淪陷”；從封城到封口，疫情危機變政治危機？生化武器專家坐鎮武漢P4實驗室，說明什麼？唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68ea5b5600310ad24911e03e6126d7fa5a497d06.torrent)
+
+磁力链接：magnet:?xt=urn:btih:68ea5b5600310ad24911e03e6126d7fa5a497d06
+
+* [武漢方斌被抓近日方斌發視頻號召「全民反抗還政於民」網民呼籲國際關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd76408281c6b0ea7e537d50f5d014200c77b232.torrent)
+
+磁力链接：magnet:?xt=urn:btih:bd76408281c6b0ea7e537d50f5d014200c77b232
+
 * [【环球直击】2月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e
@@ -565,58 +601,6 @@
 * [《石濤聚焦》「‘瑞德西韋’CEO救人是關鍵專利就瞎扯啦」2016年已在中共國申請3年未批「武漢病毒所之為利菁英人類垃圾之絕品中共品質光輝」該藥網傳很有效醫師不認同（0602）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3dbd5f0bb039486686797e77d54d604aeb454dcf.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3dbd5f0bb039486686797e77d54d604aeb454dcf
-
-* [《石濤聚焦》「香港名醫袁國勇感染者將達140萬」同理推斷大陸感染者應達2.8億伊博拉病毒最低死亡率25%「瑞德西韋」本用於伊博拉同比推理「武漢肺炎-非典2.0死亡率25%7000萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b6c6d2bf266e6956c5e903a77a8ab2b601d5fc2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0b6c6d2bf266e6956c5e903a77a8ab2b601d5fc2
-
-* [《石濤.News》「武漢肺炎最早8個造謠者之一李文亮今早離世34歲」習近平“親自指揮親自部署”下1月2日央視火力猛攻「8個造謠者」1月3日李文亮被迫簽「訓誡書-悔過書」同日習傯開始向美國匯報疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3942845cb6ef4bf96f3e484a99468b7d4997df3e.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3942845cb6ef4bf96f3e484a99468b7d4997df3e
-
-* [疫情告急寧波封城強制外來人員住進帳篷軍隊看守並封鎖信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1120c80a4c905602b21b6ca4de546585ec5d9e2b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:1120c80a4c905602b21b6ca4de546585ec5d9e2b
-
-* [武漢老人向外界救：被隔离者無人救治未隔離感染者得不到隔離救治與家人交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80bdb9d8bb3be92adefd016e2623a51b85c8394d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:80bdb9d8bb3be92adefd016e2623a51b85c8394d
-
-* [防控武漢疫情公安部把維護政治安全放首位至少34個城市採取不同程度的「封城」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd9af7bf61b089739e48123d0d7331cbe77af0f2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:cd9af7bf61b089739e48123d0d7331cbe77af0f2
-
-* [【蕭茗訪談】苏莱曼尼之死令中共进退两难伊朗正處於一場革命的邊緣嗎？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9cff405e19b7c491bbc4259491f3c490c01e7d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6b9cff405e19b7c491bbc4259491f3c490c01e7d
-
-* [《石濤.News》「武漢肺炎最早8個造謠者之一今早離世34歲」國內喧騰人日報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e6ff54a6cc4bddf4915a0b9952c187a271bf709.torrent)
-
-磁力链接：magnet:?xt=urn:btih:4e6ff54a6cc4bddf4915a0b9952c187a271bf709
-
-* [北京：將減半750億美元美國進口商品關稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21dcfce946091a614b42d0f06d6e0d308560e56.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d21dcfce946091a614b42d0f06d6e0d308560e56
-
-* [譴責中共蓬佩奧：宗教自由是社會基石.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9f1440655e9e346b05d522769b9577df50a4655.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c9f1440655e9e346b05d522769b9577df50a4655
-
-* [美國威斯康辛州確診首例撤僑專機陸續抵美CDC宣布發放檢測套件.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e88285ddd22cde7e0ed673f362c67000ec72687.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3e88285ddd22cde7e0ed673f362c67000ec72687
-
-* [日本遊輪又新增10人感染加拿大巴西跟進撤僑沙特頒中國旅行禁令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c14cc88a110a9c411ea5ea345cc0f1db3b3992fa.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c14cc88a110a9c411ea5ea345cc0f1db3b3992fa
-
-* [美國會首次武漢肺炎聽證議員置疑中共隱瞞疫情並拒絕與國際社會合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11a50cf0c9b196504da9bc35e7d16600ec5134f0.torrent)
-
-磁力链接：magnet:?xt=urn:btih:11a50cf0c9b196504da9bc35e7d16600ec5134f0
-
-* [习近平终于露面！不准那人去那个城市。华尔街日报重提亚洲病夫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76e24083d26d43dc3e0941d35ae9aa95894380fe.torrent)
-
-磁力链接：magnet:?xt=urn:btih:76e24083d26d43dc3e0941d35ae9aa95894380fe
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
