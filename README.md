@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤聚焦》「湯姆漢克斯的“但丁密碼”另類再世」WHO配合習傯共黨國際調查團大多是「外行」華郵：世衛協助習總欺騙全球［促疫情為全球性危機］總幹事賊喊捉賊「武漢病毒非常可能全球大爆發」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e27f808084d644152b5a16561603d378edd79b9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:5e27f808084d644152b5a16561603d378edd79b9
+
 * [《石濤.News》「驚爆：3個幼童被裝一個裝屍袋」裝屍者無保護他人熟視無睹川普顧問納瓦羅驚嘆［崔天侃不否認病毒源自武漢P4研究所］WHO配合習近平拒絕所有美國專家（1102）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3359a8634190c12478676ddd1df8939a28b4279.torrent)
 
 磁力链接：magnet:?xt=urn:btih:c3359a8634190c12478676ddd1df8939a28b4279
@@ -597,10 +601,6 @@
 * [【环球直击】2月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18f6a1b4fdf56207cc1e8c9aff0522b071751a4b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:18f6a1b4fdf56207cc1e8c9aff0522b071751a4b
-
-* [軍管湖北，北京清算負責人，美國藥物被武漢病毒所搶註專利，P4實驗室病毒動物賣給誰？石正麗不敢「公開對質」，方艙醫院千人共用一廁，病患情緒激動，15秒染病【新聞看點】（20200206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38b1ceceeb5b05b7f953596d7fd73e3cc7ab6c39.torrent)
-
-磁力链接：magnet:?xt=urn:btih:38b1ceceeb5b05b7f953596d7fd73e3cc7ab6c39
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
