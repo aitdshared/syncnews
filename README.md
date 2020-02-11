@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月11日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6f6658ee1d01b5db1a1941e1cfac2867a291a4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9f6f6658ee1d01b5db1a1941e1cfac2867a291a4
+
 * [【蕭茗訪談】武漢肺炎如何演變成了政治表演？中國人民如何應對危機？中共高層的底線是什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9.torrent)
 
 磁力链接：magnet:?xt=urn:btih:772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9
@@ -597,10 +601,6 @@
 * [「吹哨人」李文亮去世悲劇隱喻封口難防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db8ca9f201139a877b272534542264083285a6c1.torrent)
 
 磁力链接：magnet:?xt=urn:btih:db8ca9f201139a877b272534542264083285a6c1
-
-* [川普白宮記者會慶勝利：贏了通俄門調查贏了彈劾案並向家人表達愧疚和感謝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d22b73f637e7e63a5d358346f368db63e7895bd4.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d22b73f637e7e63a5d358346f368db63e7895bd4
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
