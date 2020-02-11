@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】逾亿个资失窃美起诉4名中共军方黑客.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/752f4be276b243feadc0de4fb93d55d278d6a4ae.torrent)
+
+磁力链接：magnet:?xt=urn:btih:752f4be276b243feadc0de4fb93d55d278d6a4ae
+
 * [【禁闻】病毒疑云白宫要求调查中共军方介入.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/123d259adba86a3e42da93942bc7e946785830f8.torrent)
 
 磁力链接：magnet:?xt=urn:btih:123d259adba86a3e42da93942bc7e946785830f8
@@ -593,10 +597,6 @@
 * [【禁闻】2月5日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5bcd6f4c48cef565ef4e6070587e691766e64fde.torrent)
 
 磁力链接：magnet:?xt=urn:btih:5bcd6f4c48cef565ef4e6070587e691766e64fde
-
-* [【微视频】中共用“武汉肺炎”抵消中美贸易协定.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d92be6cf14a68943fb0c8181d5827a1d84f7d88.torrent)
-
-磁力链接：magnet:?xt=urn:btih:9d92be6cf14a68943fb0c8181d5827a1d84f7d88
 
 * [【禁闻】2月5日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9a792a26d50b94ea0924c3dd26e5ef81baebb65.torrent)
 
