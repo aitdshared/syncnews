@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤聚焦》「習傯下令：封城北京上海」深信劉伯溫十愁之語「四愁各省起狼煙」封城同日巡時北京頒布「軍紀13條」地方割據在封城之下已成事實（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf.torrent)
+
+磁力链接：magnet:?xt=urn:btih:493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf
+
 * [京沪启动封闭式管理，第二波冲击困扰中共；不变的英雄（20200210第697期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21252a86fd791440bef8665690fa86e2e9d04cc0.torrent)
 
 磁力链接：magnet:?xt=urn:btih:21252a86fd791440bef8665690fa86e2e9d04cc0
