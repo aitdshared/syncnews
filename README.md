@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [最長潛伏期24天！鍾南山論文揭新冠病毒新況；巧合嗎？官方1月底曾刪一例「潛伏23天」的通報；全球防疫或存漏洞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33c0d3fb7a0f8017234fa918b6a6b28ff9624753.torrent)
+
+磁力链接：magnet:?xt=urn:btih:33c0d3fb7a0f8017234fa918b6a6b28ff9624753
+
+* [強行封村釀命案，瘟疫逼近中南海，各地違「抗疫令」開工，控疫難上加難，搶功避責習「失天命」，「神話破滅」爆料：xwkd2017@gmail.com【新聞看點】（2020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d939dde888bcc8f688184136ab687cb84bf15bc0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d939dde888bcc8f688184136ab687cb84bf15bc0
+
 * [【禁闻】记者手记：新冠肺炎确诊者未被收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19962a5b7686ba42ea1335d3a989f291f9c8052a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:19962a5b7686ba42ea1335d3a989f291f9c8052a
