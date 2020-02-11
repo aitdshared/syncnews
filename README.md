@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/1ifa1)
+## [【三退入口】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](from=要以alan开头)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
+
+* [《石濤聚焦》「美媒：習近平正失去‘天命’」其自信開始崩裂「黨媒公開嘲諷‘習總應去武漢’下發‘軍紀13條世衛專家小組入境」三條線同時棄守（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccac98faeb11d9dade43a3a4ad833faa577f8851.torrent)
+
+磁力链接：magnet:?xt=urn:btih:ccac98faeb11d9dade43a3a4ad833faa577f8851
 
 * [【微视频】中共制造肺炎拐点恐酿疑似感染劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074863522080036e963645754cd8274aa0fbaf4f.torrent)
 
@@ -593,10 +597,6 @@
 * [川普國情咨文專家兼顧政績和選戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28cbd73766b9f8d68eef8ff70f60f22b21bb917c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:28cbd73766b9f8d68eef8ff70f60f22b21bb917c
-
-* [高度警惕！新冠肺炎新增2種疑似傳染途徑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8483ad9825abbb0fa25f409e62db0adb86c949ab.torrent)
-
-磁力链接：magnet:?xt=urn:btih:8483ad9825abbb0fa25f409e62db0adb86c949ab
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
