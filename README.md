@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王帥文武百官齋戒三日不得回宮沐浴更衣鑾輿禮聘子牙「五鳳鳴兮真主現垂竿釣兮知我稀」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502883725b0746c6070746e59d0061de85f1a35.torrent)
+
+磁力链接：magnet:?xt=urn:btih:1502883725b0746c6070746e59d0061de85f1a35
+
 * [蓬佩奧在全美州长协会2020年冬季会议上講話：你們當中有多少人與中共建立了聯繫？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eeaf67d3ef9f90071d82628a9f207ad89da876f.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3eeaf67d3ef9f90071d82628a9f207ad89da876f
@@ -597,10 +601,6 @@
 * [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王乃人中圣者却不及修不成的姜子牙善恶因果皆造化只因人间走一遭（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cffab843b9a86fe99eae1ec7dd43c8cadb161050.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cffab843b9a86fe99eae1ec7dd43c8cadb161050
-
-* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d06a6998918941fcfb52dd73e071d2de59cd97d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6d06a6998918941fcfb52dd73e071d2de59cd97d
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
