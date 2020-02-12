@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [蓬佩奧在全美州长协会2020年冬季会议上講話：你們當中有多少人與中共建立了聯繫？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eeaf67d3ef9f90071d82628a9f207ad89da876f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3eeaf67d3ef9f90071d82628a9f207ad89da876f
+
+* [美撤僑中現首例武漢肺炎病患曾被誤診出院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3736d9ecd8c4af26f8cc548f1bafb85e9209f7c7.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3736d9ecd8c4af26f8cc548f1bafb85e9209f7c7
+
 * [习近平强令复工的政治和经济考量，从秦始皇那里可以找到答案。（政论天下第109集20200211）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daab26a5b31d15fe8b0f9050406a4c6a7db3eb64.torrent)
 
 磁力链接：magnet:?xt=urn:btih:daab26a5b31d15fe8b0f9050406a4c6a7db3eb64
@@ -593,14 +601,6 @@
 * [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d06a6998918941fcfb52dd73e071d2de59cd97d.torrent)
 
 磁力链接：magnet:?xt=urn:btih:6d06a6998918941fcfb52dd73e071d2de59cd97d
-
-* [【禁闻】李文亮去世网友：死于两种病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187f98ee9ab0113dcac6b4e69598ca09d81399e7.torrent)
-
-磁力链接：magnet:?xt=urn:btih:187f98ee9ab0113dcac6b4e69598ca09d81399e7
-
-* [【禁闻】武汉千余医护感染在岗医生写遗嘱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fb0e7923b446e68e7994d0329a74ecb4128e475.torrent)
-
-磁力链接：magnet:?xt=urn:btih:5fb0e7923b446e68e7994d0329a74ecb4128e475
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
