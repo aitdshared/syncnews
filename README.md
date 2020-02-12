@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [广东紧急立法：政府可征用私人财产抗疫！饿兽出笼怎么防？（20200211第698期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51e39c24950030ddc3bb7a3e770dd5f2637306d5.torrent)
+
+磁力链接：magnet:?xt=urn:btih:51e39c24950030ddc3bb7a3e770dd5f2637306d5
+
 * [【环球直击】2月11日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6f6658ee1d01b5db1a1941e1cfac2867a291a4.torrent)
 
 磁力链接：magnet:?xt=urn:btih:9f6f6658ee1d01b5db1a1941e1cfac2867a291a4
@@ -597,10 +601,6 @@
 * [大陸出現一場史無前例的「封城」世衛：或尚未到達疫情高峯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2134f4ea83fff411f43e9d5798f5491d9d6ff59f.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2134f4ea83fff411f43e9d5798f5491d9d6ff59f
-
-* [「吹哨人」李文亮去世悲劇隱喻封口難防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db8ca9f201139a877b272534542264083285a6c1.torrent)
-
-磁力链接：magnet:?xt=urn:btih:db8ca9f201139a877b272534542264083285a6c1
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
