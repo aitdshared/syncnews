@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【微视频】中共斗肺炎阶段性受挫二月底经济大限.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6d6e4a952a66e07da8afc18f640736db48e660.torrent)
+
+磁力链接：magnet:?xt=urn:btih:cc6d6e4a952a66e07da8afc18f640736db48e660
+
 * [超市成為高危感染區員工頻感染武漢市民被困在家中只能吃醬菜充飢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc97441778b32810789827e93beaed807f0ca591.torrent)
 
 磁力链接：magnet:?xt=urn:btih:dc97441778b32810789827e93beaed807f0ca591
