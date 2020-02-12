@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [武漢市礄口區任女士介紹就醫現狀：這病不死也得被拖死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3164be2f05d8a410343092b94ffb62fcc76c42e0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3164be2f05d8a410343092b94ffb62fcc76c42e0
+
 * [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王帥文武百官齋戒三日不得回宮沐浴更衣鑾輿禮聘子牙「五鳳鳴兮真主現垂竿釣兮知我稀」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502883725b0746c6070746e59d0061de85f1a35.torrent)
 
 磁力链接：magnet:?xt=urn:btih:1502883725b0746c6070746e59d0061de85f1a35
@@ -597,10 +601,6 @@
 * [【禁闻】2月6日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68931b767931dff8adb2eec7aafaf19c425f201e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:68931b767931dff8adb2eec7aafaf19c425f201e
-
-* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王乃人中圣者却不及修不成的姜子牙善恶因果皆造化只因人间走一遭（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cffab843b9a86fe99eae1ec7dd43c8cadb161050.torrent)
-
-磁力链接：magnet:?xt=urn:btih:cffab843b9a86fe99eae1ec7dd43c8cadb161050
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
