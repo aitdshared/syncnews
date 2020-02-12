@@ -26,6 +26,22 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [超市成為高危感染區員工頻感染武漢市民被困在家中只能吃醬菜充飢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc97441778b32810789827e93beaed807f0ca591.torrent)
+
+磁力链接：magnet:?xt=urn:btih:dc97441778b32810789827e93beaed807f0ca591
+
+* [美首批撤僑經過14天的隔離觀察無人感染週二陸續返家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/026b0118585d8e5374dc513c25c3eb5a4ec695cc.torrent)
+
+磁力链接：magnet:?xt=urn:btih:026b0118585d8e5374dc513c25c3eb5a4ec695cc
+
+* [撤銷陸配子女入境陳時中：國籍選擇要自己承擔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b09947fa6cfedde0590cd63863eebd944d3b46f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7b09947fa6cfedde0590cd63863eebd944d3b46f
+
+* [廣東成為第二大疫區廣州深圳徵用私人財產抗疫市民認為這是搶劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/988793fde4b7632f89c1d552e271c290b57471f9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:988793fde4b7632f89c1d552e271c290b57471f9
+
 * [【疫區百姓聲音】武漢某殯儀館人員：運屍袋等物品非常缺乏一直24小時運作一周都沒回家休息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c
@@ -581,22 +597,6 @@
 * [“墙国”实至名归李文亮“劝退”习近平？江峰做客自由亞洲電台（RFA）（江峰漫談特別節目20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d9898008005a1a1dc5114d6b489e362eb307dc.torrent)
 
 磁力链接：magnet:?xt=urn:btih:35d9898008005a1a1dc5114d6b489e362eb307dc
-
-* [李文亮与蒋彦永,英雄还是普通人(政论天下第105集20200207)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87a3d3800857408d6051d568da178c8141b7f81f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:87a3d3800857408d6051d568da178c8141b7f81f
-
-* [【环球直击】中共6天抓325人封口公主号武汉肺炎再添41例（2月7日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/780a9a82fa8b45b4d1018fd57c953a0c4a2fdbe4.torrent)
-
-磁力链接：magnet:?xt=urn:btih:780a9a82fa8b45b4d1018fd57c953a0c4a2fdbe4
-
-* [《石濤.News》「深圳廣州封城超70個」多省全封閉中共亡於十八子（李）李文亮已火化父母妻兒未見82萬賠償妻感染懷子武漢人高喊「言論自由」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16af845f7fd9675dad7c1c4b05b396250539f089.torrent)
-
-磁力链接：magnet:?xt=urn:btih:16af845f7fd9675dad7c1c4b05b396250539f089
-
-* [《石濤聚焦》「突發：白宮下令調查武漢病毒擴散源頭」習近平隨後與川普通話ABC新聞：病毒可能來自人工合成並故意被洩漏（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10fbce2b11e4d3759cf84db0cc1a849f641a13d1.torrent)
-
-磁力链接：magnet:?xt=urn:btih:10fbce2b11e4d3759cf84db0cc1a849f641a13d1
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
