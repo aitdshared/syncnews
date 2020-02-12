@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [习近平强令复工的政治和经济考量，从秦始皇那里可以找到答案。（政论天下第109集20200211）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daab26a5b31d15fe8b0f9050406a4c6a7db3eb64.torrent)
+
+磁力链接：magnet:?xt=urn:btih:daab26a5b31d15fe8b0f9050406a4c6a7db3eb64
+
 * [鍾南山改口疫情新拐點將在二月中旬或下旬出現國際質疑中國數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faddbc0dd08580d643b9542f6929d5ec64c8b3c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8faddbc0dd08580d643b9542f6929d5ec64c8b3c
@@ -593,10 +597,6 @@
 * [【禁闻】李文亮去世网友：死于两种病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187f98ee9ab0113dcac6b4e69598ca09d81399e7.torrent)
 
 磁力链接：magnet:?xt=urn:btih:187f98ee9ab0113dcac6b4e69598ca09d81399e7
-
-* [【禁闻】武汉台商包机出漏洞防疫被中共政治利用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c1df46fc1fcbd7b17080575cb8eb30e9f02d85a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6c1df46fc1fcbd7b17080575cb8eb30e9f02d85a
 
 * [【禁闻】武汉千余医护感染在岗医生写遗嘱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fb0e7923b446e68e7994d0329a74ecb4128e475.torrent)
 
