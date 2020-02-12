@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【疫區百姓聲音】武漢某殯儀館人員：運屍袋等物品非常缺乏一直24小時運作一周都沒回家休息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c
+
 * [【武漢百姓聲音】眼見老伴家中死去妻也染肺炎無法收治透過女兒在網路求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3
@@ -593,10 +597,6 @@
 * [《石濤聚焦》「突發：白宮下令調查武漢病毒擴散源頭」習近平隨後與川普通話ABC新聞：病毒可能來自人工合成並故意被洩漏（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10fbce2b11e4d3759cf84db0cc1a849f641a13d1.torrent)
 
 磁力链接：magnet:?xt=urn:btih:10fbce2b11e4d3759cf84db0cc1a849f641a13d1
-
-* [劉細良：冠狀病毒不及共產黨的病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e30b2dfb173249f12d9c761f3fbf515981026a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:79e30b2dfb173249f12d9c761f3fbf515981026a
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
