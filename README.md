@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [中共闢謠又成現實：武漢斷網；廣東緊急徵用私人財產開啟明火執仗程序；中央要求復工必將造成疫情局部突發（江峰漫谈20200212第116期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc21b69703bbf21be8ae2830acedd576cd82fc6.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2cc21b69703bbf21be8ae2830acedd576cd82fc6
+
 * [武漢肺炎病毒突变！潜伏期42天！方斌被抓后，习出来招手！武漢放弃百步亭？（老北京茶館第244集20200211）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d90305878b16aa695fea16a1a1017c02163e4014.torrent)
 
 磁力链接：magnet:?xt=urn:btih:d90305878b16aa695fea16a1a1017c02163e4014
@@ -597,10 +601,6 @@
 * [新冠肺炎疫情：零號病人是誰？病源到底是什麼？武漢病毒所搶先申請美國新藥專利，耍了個花招唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb10b874da7b9162cb238d2f20dd535633f6cb.torrent)
 
 磁力链接：magnet:?xt=urn:btih:bfbb10b874da7b9162cb238d2f20dd535633f6cb
-
-* [【中国禁闻】2月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d0ce02aa4997ddf3ac94d02590dcf14a48ac1a9.torrent)
-
-磁力链接：magnet:?xt=urn:btih:5d0ce02aa4997ddf3ac94d02590dcf14a48ac1a9
 
 * [【禁闻】2月6日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68931b767931dff8adb2eec7aafaf19c425f201e.torrent)
 
