@@ -26,6 +26,26 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [鍾南山改口疫情新拐點將在二月中旬或下旬出現國際質疑中國數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faddbc0dd08580d643b9542f6929d5ec64c8b3c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:8faddbc0dd08580d643b9542f6929d5ec64c8b3c
+
+* [廣州抗疫「可徵用私人財產」民間憂濫用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95c8325ed8ced5c8b001230090c29a9d41398e4a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:95c8325ed8ced5c8b001230090c29a9d41398e4a
+
+* [世衛命名新冠肺炎COVID19建議全球將該病毒視爲頭號公敵超過任何恐怖行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d1bb1648ec7e18621f38f5fbb00c576e3f72b69.torrent)
+
+磁力链接：magnet:?xt=urn:btih:9d1bb1648ec7e18621f38f5fbb00c576e3f72b69
+
+* [氣溶膠傳染又關方艙？台專家：武漢醫療系統崩潰進入失控狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c53d66b33d01b627e5863fc3a1971379cfe2facf.torrent)
+
+磁力链接：magnet:?xt=urn:btih:c53d66b33d01b627e5863fc3a1971379cfe2facf
+
+* [美國CDC﹕絕對相信中國的真實病例數遠高於官方公佈的數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106145cb8a0b556e675ed5fd8fac689559d1bdd3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:106145cb8a0b556e675ed5fd8fac689559d1bdd3
+
 * [广东紧急立法：政府可征用私人财产抗疫！饿兽出笼怎么防？（20200211第698期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51e39c24950030ddc3bb7a3e770dd5f2637306d5.torrent)
 
 磁力链接：magnet:?xt=urn:btih:51e39c24950030ddc3bb7a3e770dd5f2637306d5
@@ -581,26 +601,6 @@
 * [【禁闻】武汉千余医护感染在岗医生写遗嘱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fb0e7923b446e68e7994d0329a74ecb4128e475.torrent)
 
 磁力链接：magnet:?xt=urn:btih:5fb0e7923b446e68e7994d0329a74ecb4128e475
-
-* [美國抵聖地亞哥167名武漢撤僑4人出現疑似感染新冠病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28f6d34e787e444d7a4665ca6008a456b8ce238f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:28f6d34e787e444d7a4665ca6008a456b8ce238f
-
-* [武漢區被確診病人想要個床位社區主任：即使懷孕35週的婦女也無法生育.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09792eba8eb22b733e8f0b197b61cf11c069aab1.torrent)
-
-磁力链接：magnet:?xt=urn:btih:09792eba8eb22b733e8f0b197b61cf11c069aab1
-
-* [武漢方艙醫院：我們不接受重症病人更重要的是你進來了就不要想再出來了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4c34a089a8e8f072bb17d84c54cedcd4253ed9e.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c4c34a089a8e8f072bb17d84c54cedcd4253ed9e
-
-* [江西辽宁步湖北后尘，李文亮病逝，人道灾难可能令方舱医院失控。（政论天下第104集20200206）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0ff1943a25914b6e7c2ac6aa8a617c79a501594.torrent)
-
-磁力链接：magnet:?xt=urn:btih:f0ff1943a25914b6e7c2ac6aa8a617c79a501594
-
-* [大陸出現一場史無前例的「封城」世衛：或尚未到達疫情高峯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2134f4ea83fff411f43e9d5798f5491d9d6ff59f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:2134f4ea83fff411f43e9d5798f5491d9d6ff59f
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
