@@ -26,6 +26,22 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】疫情肆虐下复工恐爆发大规模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d1fd86037d3079bb559ba626772b42b5268101b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3d1fd86037d3079bb559ba626772b42b5268101b
+
+* [【禁闻】先遣专家组抵中WHO警告海外疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19cecc2c85fa37bec8af5b9986c0d37b92d7da7d.torrent)
+
+磁力链接：magnet:?xt=urn:btih:19cecc2c85fa37bec8af5b9986c0d37b92d7da7d
+
+* [【禁闻】2月11日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a78abbe0ba5d0619f9950a89de209d2144b10d02.torrent)
+
+磁力链接：magnet:?xt=urn:btih:a78abbe0ba5d0619f9950a89de209d2144b10d02
+
+* [【禁闻】2月11日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6317e45b1f230e1f71f6849820a692de368fc594.torrent)
+
+磁力链接：magnet:?xt=urn:btih:6317e45b1f230e1f71f6849820a692de368fc594
+
 * [中共闢謠又成現實：武漢斷網；廣東緊急徵用私人財產開啟明火執仗程序；中央要求復工必將造成疫情局部突發（江峰漫谈20200212第116期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc21b69703bbf21be8ae2830acedd576cd82fc6.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2cc21b69703bbf21be8ae2830acedd576cd82fc6
@@ -586,25 +602,13 @@
 
 磁力链接：magnet:?xt=urn:btih:7c3e4bf001cc0b839118329ead3ccda36eca4c20
 
-* [【全球新闻】2月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d594c4acf64684ee17a1f2ae23ceccfd1040f120.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d594c4acf64684ee17a1f2ae23ceccfd1040f120
-
 * [【禁闻】2月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e21d7b0cd55abdcea2230f934d559960566a2841.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e21d7b0cd55abdcea2230f934d559960566a2841
 
-* [武漢新冠狀病毒最早預告的“造謠者”李文亮醫生走了；中國速度打造的方艙醫院內情。武統台灣與武漢疫情的關係（江峰漫談20200207第114期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b728c681adc782151009d0a3e381ce0f4dd9f2d6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b728c681adc782151009d0a3e381ce0f4dd9f2d6
-
 * [新冠肺炎疫情：零號病人是誰？病源到底是什麼？武漢病毒所搶先申請美國新藥專利，耍了個花招唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb10b874da7b9162cb238d2f20dd535633f6cb.torrent)
 
 磁力链接：magnet:?xt=urn:btih:bfbb10b874da7b9162cb238d2f20dd535633f6cb
-
-* [【禁闻】2月6日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68931b767931dff8adb2eec7aafaf19c425f201e.torrent)
-
-磁力链接：magnet:?xt=urn:btih:68931b767931dff8adb2eec7aafaf19c425f201e
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
