@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [河南命案爆料：xwkd2017@gmail.com【新聞看點】（2020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2863c5ecba9cea326f60676744418ba1ec241b62.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2863c5ecba9cea326f60676744418ba1ec241b62
+
 * [【禁闻】疫情肆虐下复工恐爆发大规模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d1fd86037d3079bb559ba626772b42b5268101b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3d1fd86037d3079bb559ba626772b42b5268101b
@@ -601,14 +605,6 @@
 * [【解讀】哀！吹哨者李文亮醫生殉職；武漢肺炎帶給中國七大危機；方艙醫院救命或害命？（2020.2.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c3e4bf001cc0b839118329ead3ccda36eca4c20.torrent)
 
 磁力链接：magnet:?xt=urn:btih:7c3e4bf001cc0b839118329ead3ccda36eca4c20
-
-* [【禁闻】2月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e21d7b0cd55abdcea2230f934d559960566a2841.torrent)
-
-磁力链接：magnet:?xt=urn:btih:e21d7b0cd55abdcea2230f934d559960566a2841
-
-* [新冠肺炎疫情：零號病人是誰？病源到底是什麼？武漢病毒所搶先申請美國新藥專利，耍了個花招唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb10b874da7b9162cb238d2f20dd535633f6cb.torrent)
-
-磁力链接：magnet:?xt=urn:btih:bfbb10b874da7b9162cb238d2f20dd535633f6cb
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
