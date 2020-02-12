@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【武漢百姓聲音】眼見老伴家中死去妻也染肺炎無法收治透過女兒在網路求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3
+
 * [武漢彭先生：響應號召在家隔離母親發病9天打了許多電話根本沒有人來收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d6cdd4626a37783492e902118a3ac920c3ef80e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:1d6cdd4626a37783492e902118a3ac920c3ef80e
@@ -589,10 +593,6 @@
 * [《石濤聚焦》「突發：白宮下令調查武漢病毒擴散源頭」習近平隨後與川普通話ABC新聞：病毒可能來自人工合成並故意被洩漏（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10fbce2b11e4d3759cf84db0cc1a849f641a13d1.torrent)
 
 磁力链接：magnet:?xt=urn:btih:10fbce2b11e4d3759cf84db0cc1a849f641a13d1
-
-* [川習就疫情通話川普：美國全力支持願派專家受疫情影響外界對中方履約持懷疑態度.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e26efcf15ac95360fe28193af9ad0281d78feaa4.torrent)
-
-磁力链接：magnet:?xt=urn:btih:e26efcf15ac95360fe28193af9ad0281d78feaa4
 
 * [劉細良：冠狀病毒不及共產黨的病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e30b2dfb173249f12d9c761f3fbf515981026a.torrent)
 
