@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [武漢彭先生：響應號召在家隔離母親發病9天打了許多電話根本沒有人來收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d6cdd4626a37783492e902118a3ac920c3ef80e.torrent)
+
+磁力链接：magnet:?xt=urn:btih:1d6cdd4626a37783492e902118a3ac920c3ef80e
+
 * [【禁闻】蓬佩奥披露中共渗透美国内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb0f0f19551d8bbcd1d8371dceff8c0d1f49501.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fbb0f0f19551d8bbcd1d8371dceff8c0d1f49501
@@ -593,10 +597,6 @@
 * [劉細良：冠狀病毒不及共產黨的病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e30b2dfb173249f12d9c761f3fbf515981026a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:79e30b2dfb173249f12d9c761f3fbf515981026a
-
-* [(錄音)李文亮母亲泣不成声：好多陌生人打來電話要捐助我們.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f46c401623ec6abd5a42ba68d38e8856d7f20bde.torrent)
-
-磁力链接：magnet:?xt=urn:btih:f46c401623ec6abd5a42ba68d38e8856d7f20bde
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
