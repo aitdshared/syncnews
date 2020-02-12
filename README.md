@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [武漢肺炎病毒突变！潜伏期42天！方斌被抓后，习出来招手！武漢放弃百步亭？（老北京茶館第244集20200211）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d90305878b16aa695fea16a1a1017c02163e4014.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d90305878b16aa695fea16a1a1017c02163e4014
+
 * [武漢市礄口區任女士介紹就醫現狀：這病不死也得被拖死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3164be2f05d8a410343092b94ffb62fcc76c42e0.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3164be2f05d8a410343092b94ffb62fcc76c42e0
