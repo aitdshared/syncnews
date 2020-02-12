@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月12日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e8cc59c6fd4a173b6e5e4ca9c6eb3921f74ef5a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2e8cc59c6fd4a173b6e5e4ca9c6eb3921f74ef5a
+
 * [【微视频】中共斗肺炎阶段性受挫二月底经济大限.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6d6e4a952a66e07da8afc18f640736db48e660.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cc6d6e4a952a66e07da8afc18f640736db48e660
