@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】重症均已入院？武汉患者斥书记撒谎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6443b2c9da1f50eff5f66a3dfc6150effb755fa.torrent)
+
+磁力链接：magnet:?xt=urn:btih:a6443b2c9da1f50eff5f66a3dfc6150effb755fa
+
 * [河南命案爆料：xwkd2017@gmail.com【新聞看點】（2020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2863c5ecba9cea326f60676744418ba1ec241b62.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2863c5ecba9cea326f60676744418ba1ec241b62
@@ -601,10 +605,6 @@
 * [庚子年，我在武漢當醫生……武漢肺炎紀實之二：李文亮和他的同事，在死神身邊起舞的人（老北京茶館第241集20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/746efcbc2a8da14080afe07623262ea213c89dae.torrent)
 
 磁力链接：magnet:?xt=urn:btih:746efcbc2a8da14080afe07623262ea213c89dae
-
-* [【解讀】哀！吹哨者李文亮醫生殉職；武漢肺炎帶給中國七大危機；方艙醫院救命或害命？（2020.2.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c3e4bf001cc0b839118329ead3ccda36eca4c20.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7c3e4bf001cc0b839118329ead3ccda36eca4c20
 
 * [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
 
