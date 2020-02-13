@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月13日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075d26f6e0343d9578bb292e0e95f4dbe6af91a3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:075d26f6e0343d9578bb292e0e95f4dbe6af91a3
+
 * [湖北1天爆增1.5萬新病例，習喊「最吃勁」！全國首個「戰時管制令」啟動！武漢人驅車上海求救，上海建「火神山」，習近平掀追責風暴，武漢版「反送中」2.14啟動【新聞看點】（20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3032cb253acaf47ebcac4db4b123f9a15ce0bf14.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3032cb253acaf47ebcac4db4b123f9a15ce0bf14
@@ -601,14 +605,6 @@
 * [【新闻周刊】第718期（202028）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a09b2ac5ba10be0fe33c86b2f44f694f0e1f206e.torrent)
 
 磁力链接：magnet:?xt=urn:btih:a09b2ac5ba10be0fe33c86b2f44f694f0e1f206e
-
-* [白宫突然调查武漢肺炎源头！陈秋实遭隔离！李文亮去世党国如临大敌！云南抓5医生！（老北京茶館第242集20200209）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21074a634887370ee7c5e65c0e2f774f5fb9ff2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d21074a634887370ee7c5e65c0e2f774f5fb9ff2
-
-* [新冠肺炎之「死因不可描述」；吹哨人為何叫不醒「中國夢」；疫情失控，我們至少應得到一個教訓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074ea6faafb3bb5a092e3fae48379a516d77e015.torrent)
-
-磁力链接：magnet:?xt=urn:btih:074ea6faafb3bb5a092e3fae48379a516d77e015
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
