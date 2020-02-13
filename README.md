@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3545285c63acf87bc8b02b01823face42db308cd.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3545285c63acf87bc8b02b01823face42db308cd
+
 * [【环球直击】2月12日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e8cc59c6fd4a173b6e5e4ca9c6eb3921f74ef5a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2e8cc59c6fd4a173b6e5e4ca9c6eb3921f74ef5a
