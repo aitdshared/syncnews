@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【中国禁闻】2月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8c517a48959800334d6fffaa3c6f34ca6017295.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f8c517a48959800334d6fffaa3c6f34ca6017295
+
 * [两会如期召开,而且不戴口罩想“让领导先走”？(政论天下第110集20200212)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495aa354c9698c73981a142ce151613e3f481fa4.torrent)
 
 磁力链接：magnet:?xt=urn:btih:495aa354c9698c73981a142ce151613e3f481fa4
@@ -589,42 +593,6 @@
 * [【禁闻】大疫中病毒与警察谁更可怕？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58518abfb2b4b120c10430e2d481bab5e0241dd4.torrent)
 
 磁力链接：magnet:?xt=urn:btih:58518abfb2b4b120c10430e2d481bab5e0241dd4
-
-* [【禁闻】2月7日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5481e14204a659d08127e2c363dc111b1ca4f52.torrent)
-
-磁力链接：magnet:?xt=urn:btih:f5481e14204a659d08127e2c363dc111b1ca4f52
-
-* [【禁闻】2月7日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d53952756f0d09f3049ac2c03792e5548af0cfc2.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d53952756f0d09f3049ac2c03792e5548af0cfc2
-
-* [【禁闻】湖北两殡仪馆日火化新冠死者341人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac
-
-* [【禁闻】武汉疫情吹哨人去世民吁放开言论管制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cadebedd2b2c2ad44b4abbe455b9fcca4e9d4491.torrent)
-
-磁力链接：magnet:?xt=urn:btih:cadebedd2b2c2ad44b4abbe455b9fcca4e9d4491
-
-* [广州与深圳封城,北京复兴医院群聚性感染，两会是个重要的时间点;孙春兰亲自督阵,武汉开始地毯式排查,四个角度讨论该策略是否会奏效？(政论天下第105集20200207)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5611c88c639bfd60baad21a46648e502f20156b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d5611c88c639bfd60baad21a46648e502f20156b
-
-* [【禁闻】美国将持续追责侵犯人权者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbd5d5a0abd4dec9694275a3c2c759d8bc285ef6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:fbd5d5a0abd4dec9694275a3c2c759d8bc285ef6
-
-* [李文亮離開了吹哨聲還沒有停止武漢人民開始吶喊！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9f547b9cc9c5648c29124b77a4d12ebc6412f42.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b9f547b9cc9c5648c29124b77a4d12ebc6412f42
-
-* [李文亮离世、陈秋实失联；怎么躲开房间里的大象，真男儿在哪（20200207第696期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/210ee795987583af06f82cc7d320bef76ea7717f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:210ee795987583af06f82cc7d320bef76ea7717f
-
-* [川普彭斯全國早餐會祈禱：保障宗教自由將支持全世界被迫害的信仰團體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d805561931662fbd40f9770981d63a7a34544d18.torrent)
-
-磁力链接：magnet:?xt=urn:btih:d805561931662fbd40f9770981d63a7a34544d18
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
