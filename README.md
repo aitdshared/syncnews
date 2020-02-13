@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤.News》「武昌新起義辛亥再革命」湖北-武漢三大奇文：武漢市長‘盡責’習總負全責湖北武漢似‘奧斯維辛集中營’中央似納粹「習總憤怒掩真相斬鄂官妄圖續‘天命’」應勇陳一新倒霉血戰病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3e9644b67610bce8ce629d493a3545a26582540.torrent)
+
+磁力链接：magnet:?xt=urn:btih:e3e9644b67610bce8ce629d493a3545a26582540
+
 * [上海封城後狀況如何？上海網民爆料：上海新增確診三千多例門店被紛紛封閉學校將推遲至五月開學.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1434b953181418ecdc4e140f9d98abaec4ffb54.torrent)
 
 磁力链接：magnet:?xt=urn:btih:b1434b953181418ecdc4e140f9d98abaec4ffb54
@@ -589,10 +593,6 @@
 * [北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b
-
-* [湖北高官各自表现，北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034bba291a15feca67da66c5fcb9f575cfbffbb3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:034bba291a15feca67da66c5fcb9f575cfbffbb3
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
