@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [现金撑不过三个月！挽救中国中小企业，急如救疫（20200212第699期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b65e378fb83d0b2d08f6cb0faa123680cdca74b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:8b65e378fb83d0b2d08f6cb0faa123680cdca74b
+
 * [【禁闻】记者手记：床位仍缺武汉患者声声呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b79ca824a0c4d1f26182636501a675f33e2321.torrent)
 
 磁力链接：magnet:?xt=urn:btih:51b79ca824a0c4d1f26182636501a675f33e2321
