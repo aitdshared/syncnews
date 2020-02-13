@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [日本郵輪再添44確診安倍晉三宣布投入153億日元防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c194347221acb188e4316ff4eff8d4033045b101.torrent)
+
+磁力链接：magnet:?xt=urn:btih:c194347221acb188e4316ff4eff8d4033045b101
+
+* [專家指香港已進入瘟疫時代籲全民自救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04a83d5ec5331c7ef29e7dc10baca9bcbfa3656f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:04a83d5ec5331c7ef29e7dc10baca9bcbfa3656f
+
 * [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
 磁力链接：magnet:?xt=urn:btih:519ec372726ef406cf3f0d7e8c3b8525c8cb47f8
@@ -597,14 +605,6 @@
 * [武漢瘟疫，天譴，救命的辦法 - 20200208 第76期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fb96f19655515b90a4a21ac41698e0b40859422.torrent)
 
 磁力链接：magnet:?xt=urn:btih:4fb96f19655515b90a4a21ac41698e0b40859422
-
-* [【專訪】歐洲病毒學專家：新冠病毒有很強人工干預痕跡，似在實驗室產生；病毒有很強傳播力和毒性；中共必須透明，讓全球專家參與抗疫熱點互動02082020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ef90f284af44ef24ffe2eacb04b2e30abf664df.torrent)
-
-磁力链接：magnet:?xt=urn:btih:1ef90f284af44ef24ffe2eacb04b2e30abf664df
-
-* [今年中国经济受到的影响可能有多大？（政论天下第107集20200208）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6aa61259848e87306dcd98cf7e1889b0216f63a.torrent)
-
-磁力链接：magnet:?xt=urn:btih:e6aa61259848e87306dcd98cf7e1889b0216f63a
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
