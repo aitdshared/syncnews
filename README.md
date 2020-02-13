@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】死亡人数知多少多地殡葬队赶赴武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/933169b3ac3d4c8d3be6abbc86149d449e90e758.torrent)
+
+磁力链接：magnet:?xt=urn:btih:933169b3ac3d4c8d3be6abbc86149d449e90e758
+
+* [【禁闻】限制多复工难专家：GDP或负增长5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fdf5335e449c60f963545df88e2a06b30b29cb8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:5fdf5335e449c60f963545df88e2a06b30b29cb8
+
 * [湖北十堰戰時管制中共渲染疫情已緩解專家：疫情才剛剛開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ea773d70ea4064c67a0e9121ff87c849f7a5358.torrent)
 
 磁力链接：magnet:?xt=urn:btih:1ea773d70ea4064c67a0e9121ff87c849f7a5358
