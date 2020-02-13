@@ -26,6 +26,30 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [湖北十堰戰時管制中共渲染疫情已緩解專家：疫情才剛剛開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ea773d70ea4064c67a0e9121ff87c849f7a5358.torrent)
+
+磁力链接：magnet:?xt=urn:btih:1ea773d70ea4064c67a0e9121ff87c849f7a5358
+
+* [世界最長連儂牆落地南加傳遞民主自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aaf9b1a28facf631f3a248ad1064d53128b42b1d.torrent)
+
+磁力链接：magnet:?xt=urn:btih:aaf9b1a28facf631f3a248ad1064d53128b42b1d
+
+* [白宮高官中共各種惡意行動並沒有因為新冠疫情而有所減緩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80ebfca663f5e19408922ee41801441c18b5e89f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:80ebfca663f5e19408922ee41801441c18b5e89f
+
+* [中共活摘罪惡繼續新年期間迫害未減.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d8f2648276e763ddaa8e1df7c05aff753587581.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2d8f2648276e763ddaa8e1df7c05aff753587581
+
+* [新罕布什爾州初選桑德斯險勝楊安澤退出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33ba31f5895e2788ae28bf2bc74224a49d4840b8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:33ba31f5895e2788ae28bf2bc74224a49d4840b8
+
+* [中共三军起疫！真男儿戴错口罩！蔡英文喊话习：别绕台了，快隔离去！李文亮同事集体崩溃！（老北京茶館第245集20200212）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/484d3411d6dab5dbd6767b502d8be610effc95dc.torrent)
+
+磁力链接：magnet:?xt=urn:btih:484d3411d6dab5dbd6767b502d8be610effc95dc
+
 * [武漢肺炎絕望百態：扔錢、跳樓、上吊、陽台逃生墜落⋯2秒鐘感染，染病即等死，武漢城區烏鴉成群，出入對「暗號」，當局急復工，百姓成賭資，中共防民變【新聞看點李沐陽】（20200212）鍾南山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f530c52ff90f926c90ec16b7b3b880e1d3447e82.torrent)
 
 磁力链接：magnet:?xt=urn:btih:f530c52ff90f926c90ec16b7b3b880e1d3447e82
