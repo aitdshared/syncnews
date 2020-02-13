@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【环球直击】2月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12e863578738a923d5e9569bbed0e94892690fb3.torrent)
+
+磁力链接：magnet:?xt=urn:btih:12e863578738a923d5e9569bbed0e94892690fb3
+
 * [七常委隐蔽开会，习主席全然不知民间疾苦。庚子巨变！历史与预言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee94a86b4faaf7d67ca42fc8dee3554d52a97d02.torrent)
 
 磁力链接：magnet:?xt=urn:btih:ee94a86b4faaf7d67ca42fc8dee3554d52a97d02
@@ -589,10 +593,6 @@
 * [💥2萬人漏檢！協和醫院內部消息：此前武漢肺炎確診方法不對；新病毒會騙，患者以為痊癒過後復發？三瘟疫並行，探究物資為何緊；陳秋實遭強制隔離；哈爾濱百警封小區新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/427687b319b3812a484b7b674007c86c0c982206.torrent)
 
 磁力链接：magnet:?xt=urn:btih:427687b319b3812a484b7b674007c86c0c982206
-
-* [《石濤.News》「俄羅斯火星男孩2016年準確預測：武漢病毒-非典2.0」2020年在一個大陸上第一次大災難降臨因為那是一個沒有信仰的國度中國已經誕生偉大的靈神國一直注視著（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ddcff2aecf58cc1539cb1bd085eadde732380fe.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7ddcff2aecf58cc1539cb1bd085eadde732380fe
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
