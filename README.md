@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [台院士賴明詔：陸人民很痛苦查病毒源頭很重要中共打壓民間討論是不公平的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88d37866d935b925866e9e95fe889a533219fe89.torrent)
+
+磁力链接：magnet:?xt=urn:btih:88d37866d935b925866e9e95fe889a533219fe89
+
+* [《石濤聚焦》「武漢病毒被命名：非典SARS2.0」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9b3f94b6b36b6fb89ed990fab3a1bfdf6bcf7d7.torrent)
+
+磁力链接：magnet:?xt=urn:btih:c9b3f94b6b36b6fb89ed990fab3a1bfdf6bcf7d7
+
 * [日撤僑包機民眾被隔離了2週後回家公主號郵輪乘客被確診219人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ed3496bebf59451d2ee2698ccfa32da2002fb28.torrent)
 
 磁力链接：magnet:?xt=urn:btih:5ed3496bebf59451d2ee2698ccfa32da2002fb28
@@ -585,18 +593,6 @@
 * [《石濤聚焦》「驚爆：僅武漢已死最少6萬」台媒：一個殯儀館每天焚燒最多316馬來西亞-中國報：漢口殯儀館每日燒576武漢最少8個殯儀館封城至今17天按留城900萬計算為0.67%同比全國？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/999d6b55081ea6169ede8606375b5ef648927618.torrent)
 
 磁力链接：magnet:?xt=urn:btih:999d6b55081ea6169ede8606375b5ef648927618
-
-* [《石濤聚焦》「病毒源自古羅馬：蛇的毒液與男人的體液」天滅中共-生與死習近平向川普表態：有信心打贏這場「人民戰爭」中共國人死習思想光輝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23329649b7b6e1a11b54fb8d36cb3e819b837f5f.torrent)
-
-磁力链接：magnet:?xt=urn:btih:23329649b7b6e1a11b54fb8d36cb3e819b837f5f
-
-* [一線大城深圳重慶相繼封城企業復工遇困難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b2bb51cedf8a7e2500736b38c4cb36b43d22068.torrent)
-
-磁力链接：magnet:?xt=urn:btih:4b2bb51cedf8a7e2500736b38c4cb36b43d22068
-
-* [北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b268df0b69cdc5d2f7764cc2c8c2c86b763e7b2b
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
