@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [纯MV版：江峰《約在春天相見》（江峰时刻特别节目20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45e20d62ff8515ec90f4074e01e35c05a4c68949.torrent)
+
+磁力链接：magnet:?xt=urn:btih:45e20d62ff8515ec90f4074e01e35c05a4c68949
+
 * [【全球新闻】2月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddb9107a2faecc5fae3496b78d38c7afad839e87.torrent)
 
 磁力链接：magnet:?xt=urn:btih:ddb9107a2faecc5fae3496b78d38c7afad839e87
@@ -589,10 +593,6 @@
 * [【中国禁闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7806b4b48b142a3b9bfa3e28b5cc1c39165a4765.torrent)
 
 磁力链接：magnet:?xt=urn:btih:7806b4b48b142a3b9bfa3e28b5cc1c39165a4765
-
-* [【全球新闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b0b23e06a41199dc4f81e89c268560dcc42336c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7b0b23e06a41199dc4f81e89c268560dcc42336c
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
