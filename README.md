@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [湖北1天爆增1.5萬新病例，習喊「最吃勁」！全國首個「戰時管制令」啟動！武漢人驅車上海求救，上海建「火神山」，習近平掀追責風暴，武漢版「反送中」2.14啟動【新聞看點】（20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3032cb253acaf47ebcac4db4b123f9a15ce0bf14.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3032cb253acaf47ebcac4db4b123f9a15ce0bf14
+
+* [《石濤聚焦》「再派2600軍人進武漢接管2家醫院」一個武漢可拖垮全中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b674f816b690b0d21ec11735dcbc4deb74824b8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3b674f816b690b0d21ec11735dcbc4deb74824b8
+
 * [《石濤聚焦》「天命：大清滅亡108年之日習總向武漢非典2.0宣戰」北京疾控中心［大戰將至黨員衝在先6大安全意識」武漢病毒非典2.0已在北京擴散之意（1302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cbb0fa15ed57703c34e03601e7fe030fa9ba548.torrent)
 
 磁力链接：magnet:?xt=urn:btih:4cbb0fa15ed57703c34e03601e7fe030fa9ba548
@@ -597,10 +605,6 @@
 * [白宫突然调查武漢肺炎源头！陈秋实遭隔离！李文亮去世党国如临大敌！云南抓5医生！（老北京茶館第242集20200209）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d21074a634887370ee7c5e65c0e2f774f5fb9ff2.torrent)
 
 磁力链接：magnet:?xt=urn:btih:d21074a634887370ee7c5e65c0e2f774f5fb9ff2
-
-* [面对武汉肺炎，如何自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1f10546db79f3c9518f68d5a305843a0cb2c9b0.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c1f10546db79f3c9518f68d5a305843a0cb2c9b0
 
 * [新冠肺炎之「死因不可描述」；吹哨人為何叫不醒「中國夢」；疫情失控，我們至少應得到一個教訓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074ea6faafb3bb5a092e3fae48379a516d77e015.torrent)
 
