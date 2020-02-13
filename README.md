@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [两会如期召开,而且不戴口罩想“让领导先走”？(政论天下第110集20200212)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495aa354c9698c73981a142ce151613e3f481fa4.torrent)
+
+磁力链接：magnet:?xt=urn:btih:495aa354c9698c73981a142ce151613e3f481fa4
+
 * [【禁闻】纳瓦罗指中共必须对新冠病毒起源负责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae8312bfc728b88a39988f87e8564982cdb5a4b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:cae8312bfc728b88a39988f87e8564982cdb5a4b
@@ -594,10 +598,6 @@
 
 磁力链接：magnet:?xt=urn:btih:d53952756f0d09f3049ac2c03792e5548af0cfc2
 
-* [【禁闻】记者手记：疫情漩涡中的武汉市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba9aa607cb71b74044d5e8428a929c5628c720f0.torrent)
-
-磁力链接：magnet:?xt=urn:btih:ba9aa607cb71b74044d5e8428a929c5628c720f0
-
 * [【禁闻】湖北两殡仪馆日火化新冠死者341人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac.torrent)
 
 磁力链接：magnet:?xt=urn:btih:6a17403dad9d1e5cd80f61a7ea0200ef1b4e11ac
@@ -621,10 +621,6 @@
 * [李文亮离世、陈秋实失联；怎么躲开房间里的大象，真男儿在哪（20200207第696期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/210ee795987583af06f82cc7d320bef76ea7717f.torrent)
 
 磁力链接：magnet:?xt=urn:btih:210ee795987583af06f82cc7d320bef76ea7717f
-
-* [美軍擊斃基地組織也門分支頭目該組織曾多次向美國部隊發動襲擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/291afacdf193017048ca1993f2e7ad761faa7ff8.torrent)
-
-磁力链接：magnet:?xt=urn:btih:291afacdf193017048ca1993f2e7ad761faa7ff8
 
 * [川普彭斯全國早餐會祈禱：保障宗教自由將支持全世界被迫害的信仰團體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d805561931662fbd40f9770981d63a7a34544d18.torrent)
 
