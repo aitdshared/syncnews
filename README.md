@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
+
+磁力链接：magnet:?xt=urn:btih:519ec372726ef406cf3f0d7e8c3b8525c8cb47f8
+
+* [武漢人方斌被抓杳無音訊中國網民發起提議集體熄燈呼籲釋放方斌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e342393759c0e8fc359c55d57451e23e72ab07c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:1e342393759c0e8fc359c55d57451e23e72ab07c
+
+* [日本撤僑包機民眾被隔離了2週後回家公主號218人確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d7940ff44141683937d0ea5c12a2711b453c559.torrent)
+
+磁力链接：magnet:?xt=urn:btih:5d7940ff44141683937d0ea5c12a2711b453c559
+
 * [中國疫情影響美國經濟財長：不會超過今年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61d17054c35144751573032bbdda717ed9adfe20.torrent)
 
 磁力链接：magnet:?xt=urn:btih:61d17054c35144751573032bbdda717ed9adfe20
