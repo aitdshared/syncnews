@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [七常委隐蔽开会，习主席全然不知民间疾苦。庚子巨变！历史与预言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee94a86b4faaf7d67ca42fc8dee3554d52a97d02.torrent)
+
+磁力链接：magnet:?xt=urn:btih:ee94a86b4faaf7d67ca42fc8dee3554d52a97d02
+
 * [纯MV版：江峰《約在春天相見》（江峰时刻特别节目20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45e20d62ff8515ec90f4074e01e35c05a4c68949.torrent)
 
 磁力链接：magnet:?xt=urn:btih:45e20d62ff8515ec90f4074e01e35c05a4c68949
@@ -589,10 +593,6 @@
 * [《石濤.News》「俄羅斯火星男孩2016年準確預測：武漢病毒-非典2.0」2020年在一個大陸上第一次大災難降臨因為那是一個沒有信仰的國度中國已經誕生偉大的靈神國一直注視著（0702）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ddcff2aecf58cc1539cb1bd085eadde732380fe.torrent)
 
 磁力链接：magnet:?xt=urn:btih:7ddcff2aecf58cc1539cb1bd085eadde732380fe
-
-* [【中国禁闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7806b4b48b142a3b9bfa3e28b5cc1c39165a4765.torrent)
-
-磁力链接：magnet:?xt=urn:btih:7806b4b48b142a3b9bfa3e28b5cc1c39165a4765
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
