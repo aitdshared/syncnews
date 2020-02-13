@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [武漢肺炎絕望百態：扔錢、跳樓、上吊、陽台逃生墜落⋯2秒鐘感染，染病即等死，武漢城區烏鴉成群，出入對「暗號」，當局急復工，百姓成賭資，中共防民變【新聞看點李沐陽】（20200212）鍾南山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f530c52ff90f926c90ec16b7b3b880e1d3447e82.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f530c52ff90f926c90ec16b7b3b880e1d3447e82
+
 * [现金撑不过三个月！挽救中国中小企业，急如救疫（20200212第699期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b65e378fb83d0b2d08f6cb0faa123680cdca74b.torrent)
 
 磁力链接：magnet:?xt=urn:btih:8b65e378fb83d0b2d08f6cb0faa123680cdca74b
