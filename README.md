@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【全球新闻】2月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddb9107a2faecc5fae3496b78d38c7afad839e87.torrent)
+
+磁力链接：magnet:?xt=urn:btih:ddb9107a2faecc5fae3496b78d38c7afad839e87
+
 * [新冠肺炎疫情如何影響中國經濟？過8成中小企業撐不過3個月；是否復工，地方及企業不聽中央謝田程曉農熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4196a03f3d81200a49f0a993b08bf8b38eb046ab.torrent)
 
 磁力链接：magnet:?xt=urn:btih:4196a03f3d81200a49f0a993b08bf8b38eb046ab
@@ -589,10 +593,6 @@
 * [【全球新闻】2月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b0b23e06a41199dc4f81e89c268560dcc42336c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:7b0b23e06a41199dc4f81e89c268560dcc42336c
-
-* [【Jason快評】中共控制疫情的套路如何？未來這周的關鍵點在哪裏？熱點互動02072020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62568d2c7ee7fbd68d3eb2bc69fce91cc0e1b8e8.torrent)
-
-磁力链接：magnet:?xt=urn:btih:62568d2c7ee7fbd68d3eb2bc69fce91cc0e1b8e8
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
