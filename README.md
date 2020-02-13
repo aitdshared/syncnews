@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [上海封城後狀況如何？上海網民爆料：上海新增確診三千多例門店被紛紛封閉學校將推遲至五月開學.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1434b953181418ecdc4e140f9d98abaec4ffb54.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b1434b953181418ecdc4e140f9d98abaec4ffb54
+
 * [【环球直击】2月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12e863578738a923d5e9569bbed0e94892690fb3.torrent)
 
 磁力链接：magnet:?xt=urn:btih:12e863578738a923d5e9569bbed0e94892690fb3
@@ -589,10 +593,6 @@
 * [湖北高官各自表现，北京浮现两个中央！特别人士高喊换帅。习近平急忙找特朗普站台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034bba291a15feca67da66c5fcb9f575cfbffbb3.torrent)
 
 磁力链接：magnet:?xt=urn:btih:034bba291a15feca67da66c5fcb9f575cfbffbb3
-
-* [💥2萬人漏檢！協和醫院內部消息：此前武漢肺炎確診方法不對；新病毒會騙，患者以為痊癒過後復發？三瘟疫並行，探究物資為何緊；陳秋實遭強制隔離；哈爾濱百警封小區新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/427687b319b3812a484b7b674007c86c0c982206.torrent)
-
-磁力链接：magnet:?xt=urn:btih:427687b319b3812a484b7b674007c86c0c982206
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
