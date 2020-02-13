@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】记者手记：床位仍缺武汉患者声声呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b79ca824a0c4d1f26182636501a675f33e2321.torrent)
+
+磁力链接：magnet:?xt=urn:btih:51b79ca824a0c4d1f26182636501a675f33e2321
+
+* [现金撑不过三个月！挽救中国中小企业急如救疫（20200212第699期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c0ad4546d38d52ef07a584ed604e91c1bfd6902.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4c0ad4546d38d52ef07a584ed604e91c1bfd6902
+
 * [【环球直击】2月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3545285c63acf87bc8b02b01823face42db308cd.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3545285c63acf87bc8b02b01823face42db308cd
