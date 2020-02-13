@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】纳瓦罗指中共必须对新冠病毒起源负责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae8312bfc728b88a39988f87e8564982cdb5a4b.torrent)
+
+磁力链接：magnet:?xt=urn:btih:cae8312bfc728b88a39988f87e8564982cdb5a4b
+
 * [【禁闻】死亡人数知多少多地殡葬队赶赴武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/933169b3ac3d4c8d3be6abbc86149d449e90e758.torrent)
 
 磁力链接：magnet:?xt=urn:btih:933169b3ac3d4c8d3be6abbc86149d449e90e758
@@ -625,38 +629,6 @@
 * [川普彭斯全國早餐會祈禱：保障宗教自由將支持全世界被迫害的信仰團體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d805561931662fbd40f9770981d63a7a34544d18.torrent)
 
 磁力链接：magnet:?xt=urn:btih:d805561931662fbd40f9770981d63a7a34544d18
-
-* [美國CDC發布新冠肺炎你要知道的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf499ba0ef299d2490f45542bc8beaee0dceb846.torrent)
-
-磁力链接：magnet:?xt=urn:btih:cf499ba0ef299d2490f45542bc8beaee0dceb846
-
-* [中共再次升級封城規模廣州深圳天津封城直逼京滬中國有至少80個城市進入封城狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe50e743846a9de8206e56360ac3bd78b8401c08.torrent)
-
-磁力链接：magnet:?xt=urn:btih:fe50e743846a9de8206e56360ac3bd78b8401c08
-
-* [紐約排除4例疑似武漢肺炎剩下1例等結果不過因流感住院的人數呈上升.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b90036ae5fa41e79c53c688e92e4007468149e6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3b90036ae5fa41e79c53c688e92e4007468149e6
-
-* [修德避瘟疫.mp3](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d67624bae0380c966ce14ca16f7cf82767b7ded.torrent)
-
-磁力链接：magnet:?xt=urn:btih:8d67624bae0380c966ce14ca16f7cf82767b7ded
-
-* [中共壓制言論釀成巨大災難武漢人開始醒來向中共發出強烈吼聲！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8161eb2e8363a1e30232cf34cc232b0d5baf0e29.torrent)
-
-磁力链接：magnet:?xt=urn:btih:8161eb2e8363a1e30232cf34cc232b0d5baf0e29
-
-* [【环球直击】2月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a1403af0f63e403fd48f427dac623e3a7a9c444.torrent)
-
-磁力链接：magnet:?xt=urn:btih:6a1403af0f63e403fd48f427dac623e3a7a9c444
-
-* [獨家：一家家染病去世，2歲童向李克強呼救，李文亮離世引發輿論海嘯，官媒罕見與民同調，當局作秀折騰亡靈，救命藥被加價500倍，方艙醫院患者發視頻求救【新聞看點】（20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/477e150ff23071de85f703e0da106ba6cc394886.torrent)
-
-磁力链接：magnet:?xt=urn:btih:477e150ff23071de85f703e0da106ba6cc394886
-
-* [“墙国”实至名归李文亮“劝退”习近平？江峰做客自由亞洲電台（RFA）（江峰漫談特別節目20200207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d9898008005a1a1dc5114d6b489e362eb307dc.torrent)
-
-磁力链接：magnet:?xt=urn:btih:35d9898008005a1a1dc5114d6b489e362eb307dc
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
