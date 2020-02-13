@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [中國疫情影響美國經濟財長：不會超過今年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61d17054c35144751573032bbdda717ed9adfe20.torrent)
+
+磁力链接：magnet:?xt=urn:btih:61d17054c35144751573032bbdda717ed9adfe20
+
+* [武漢一老人院集體發病沒人管疑似病例家屬向媒體求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59120d36fc3997a50d18a7d3a06a28e28c9c65c2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:59120d36fc3997a50d18a7d3a06a28e28c9c65c2
+
+* [疫情告急湖北十堰張灣區實行「戰時管理」所有樓棟一律全封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c166fb85ae50a1d7966d3f0fa16a91836d6d7778.torrent)
+
+磁力链接：magnet:?xt=urn:btih:c166fb85ae50a1d7966d3f0fa16a91836d6d7778
+
 * [台院士賴明詔：陸人民很痛苦查病毒源頭很重要中共打壓民間討論是不公平的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88d37866d935b925866e9e95fe889a533219fe89.torrent)
 
 磁力链接：magnet:?xt=urn:btih:88d37866d935b925866e9e95fe889a533219fe89
@@ -581,18 +593,6 @@
 * [今年中国经济受到的影响可能有多大？（政论天下第107集20200208）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6aa61259848e87306dcd98cf7e1889b0216f63a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e6aa61259848e87306dcd98cf7e1889b0216f63a
-
-* [【环球直击】2月8日完整版（2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d83094565faac158ea01251857c87594240dc8c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0d83094565faac158ea01251857c87594240dc8c
-
-* [控疫慘烈！！！抓「四類」人，女子脖子被扭斷，深圳大逃港，不許賣治療發燒藥【爆料：xwkd2017@gmail.com】【新聞看點】（20200208）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3470e03cd2bf03b1d2e4ce40bbe89e5c6650884.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b3470e03cd2bf03b1d2e4ce40bbe89e5c6650884
-
-* [《石濤聚焦》「驚爆：僅武漢已死最少6萬」台媒：一個殯儀館每天焚燒最多316馬來西亞-中國報：漢口殯儀館每日燒576武漢最少8個殯儀館封城至今17天按留城900萬計算為0.67%同比全國？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/999d6b55081ea6169ede8606375b5ef648927618.torrent)
-
-磁力链接：magnet:?xt=urn:btih:999d6b55081ea6169ede8606375b5ef648927618
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
