@@ -26,6 +26,22 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [日撤僑包機民眾被隔離了2週後回家公主號郵輪乘客被確診219人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ed3496bebf59451d2ee2698ccfa32da2002fb28.torrent)
+
+磁力链接：magnet:?xt=urn:btih:5ed3496bebf59451d2ee2698ccfa32da2002fb28
+
+* [武漢殯葬員工勞累崩潰多省殯葬隊赴武漢收屍中共隱瞞真實死亡數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f6269b1b71961aae1fe60ec70e45bf000da86f.torrent)
+
+磁力链接：magnet:?xt=urn:btih:f6f6269b1b71961aae1fe60ec70e45bf000da86f
+
+* [疾控權威：復工人口流動增疫情惡化風險疫情將可能出現高峰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ec9fbf1bb69dcd100e1665806b2dbf2c8cc67e2.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3ec9fbf1bb69dcd100e1665806b2dbf2c8cc67e2
+
+* [台灣第二例痊癒患者自白：為社會安全願被隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/689d420f788eff39d097ea9a7935ea4bb5e3c0cd.torrent)
+
+磁力链接：magnet:?xt=urn:btih:689d420f788eff39d097ea9a7935ea4bb5e3c0cd
+
 * [《石濤.News》「武昌新起義辛亥再革命」湖北-武漢三大奇文：武漢市長‘盡責’習總負全責湖北武漢似‘奧斯維辛集中營’中央似納粹「習總憤怒掩真相斬鄂官妄圖續‘天命’」應勇陳一新倒霉血戰病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3e9644b67610bce8ce629d493a3545a26582540.torrent)
 
 磁力链接：magnet:?xt=urn:btih:e3e9644b67610bce8ce629d493a3545a26582540
@@ -573,18 +589,6 @@
 * [《石濤聚焦》「病毒源自古羅馬：蛇的毒液與男人的體液」天滅中共-生與死習近平向川普表態：有信心打贏這場「人民戰爭」中共國人死習思想光輝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23329649b7b6e1a11b54fb8d36cb3e819b837f5f.torrent)
 
 磁力链接：magnet:?xt=urn:btih:23329649b7b6e1a11b54fb8d36cb3e819b837f5f
-
-* [武漢官員透露紅十字會高價售賣捐贈物資肺炎真實死亡人數驚人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cee82689307ebcd0e7b10c5e63cc12a0429d75b.torrent)
-
-磁力链接：magnet:?xt=urn:btih:3cee82689307ebcd0e7b10c5e63cc12a0429d75b
-
-* [美國和日本公民在武漢首傳死例美援中1億美金相關醫療物資已經送達中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0743be403ae49f290b91169fd65e2e5aa25cce12.torrent)
-
-磁力链接：magnet:?xt=urn:btih:0743be403ae49f290b91169fd65e2e5aa25cce12
-
-* [廣州封城人心惶惶市民：共產黨封言論很厲害心裡真是很反共了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc8c8a5752b1778484dc8e1ab17a7edeae0590c3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:cc8c8a5752b1778484dc8e1ab17a7edeae0590c3
 
 * [一線大城深圳重慶相繼封城企業復工遇困難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b2bb51cedf8a7e2500736b38c4cb36b43d22068.torrent)
 
