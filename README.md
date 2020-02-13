@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [《石濤聚焦》「天命：大清滅亡108年之日習總向武漢非典2.0宣戰」北京疾控中心［大戰將至黨員衝在先6大安全意識」武漢病毒非典2.0已在北京擴散之意（1302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cbb0fa15ed57703c34e03601e7fe030fa9ba548.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4cbb0fa15ed57703c34e03601e7fe030fa9ba548
+
 * [日本郵輪再添44確診安倍晉三宣布投入153億日元防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c194347221acb188e4316ff4eff8d4033045b101.torrent)
 
 磁力链接：magnet:?xt=urn:btih:c194347221acb188e4316ff4eff8d4033045b101
@@ -601,10 +605,6 @@
 * [新冠肺炎之「死因不可描述」；吹哨人為何叫不醒「中國夢」；疫情失控，我們至少應得到一個教訓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074ea6faafb3bb5a092e3fae48379a516d77e015.torrent)
 
 磁力链接：magnet:?xt=urn:btih:074ea6faafb3bb5a092e3fae48379a516d77e015
-
-* [武漢瘟疫，天譴，救命的辦法 - 20200208 第76期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fb96f19655515b90a4a21ac41698e0b40859422.torrent)
-
-磁力链接：magnet:?xt=urn:btih:4fb96f19655515b90a4a21ac41698e0b40859422
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
