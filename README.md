@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [替罪羊出笼？武汉病毒所石正丽难脱罪，党补关键一刀！武汉肺炎来历揭晓，真凶隐匿！（老北京茶館第246集20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e71ff7cf3a48f73fdbe6a13fabe106d6ce68414.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2e71ff7cf3a48f73fdbe6a13fabe106d6ce68414
+
 * [【禁闻】取消优惠中共被美踢出“发展中国家”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23fbb1839eb99960a8b33496bca5fe3ebffe0880.torrent)
 
 磁力链接：magnet:?xt=urn:btih:23fbb1839eb99960a8b33496bca5fe3ebffe0880
@@ -589,10 +593,6 @@
 * [【禁闻】专家：肺炎疫情全方位打击中国经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c822255abff6e0d6442ce411d3d73675482a1f24.torrent)
 
 磁力链接：magnet:?xt=urn:btih:c822255abff6e0d6442ce411d3d73675482a1f24
-
-* [【禁闻】美国FBI宣示：对中共渗透“零容忍”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56a56f320d000ff304e80919af5d570ba7f8bdb3.torrent)
-
-磁力链接：magnet:?xt=urn:btih:56a56f320d000ff304e80919af5d570ba7f8bdb3
 
 * [【禁闻】2月9日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1437399cadd1a7fa99566e06dc50962ac3877817.torrent)
 
