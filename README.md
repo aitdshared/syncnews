@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2l52n)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2l9zs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【解讀】病毒引爆官場大地震，疫情為何狂飆？共機恐嚇台灣，內情不單純？中共「擺拍」打雞血，隱瞞疫情人民怨(2020.02.14)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be7f31f35032f80db8eb1111a697997c9380eb2e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:be7f31f35032f80db8eb1111a697997c9380eb2e
 
 * [【全球疫情直擊】武漢肺炎病毒源頭確定多省殯葬隊赴武漢收屍撤僑專機僑民感染美確診第15例專家：香港進入瘟疫時代紐約市長華社吃點心安撫民心2月14日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c4c9949d17ea80899130cb4fb7cd51c9edf5a32.torrent)
 
