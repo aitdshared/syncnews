@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】多地殡葬队驰援武汉死亡人数存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b71f5dc7ade15fcf243402829bd3cf1dd6912c.torrent)
+
+磁力链接：magnet:?xt=urn:btih:51b71f5dc7ade15fcf243402829bd3cf1dd6912c
+
 * [《石濤聚焦》「重慶強悍出現‘第四代病毒感染」武昌殯儀館急聘搬屍員「4小時4000元夜班男女不限」首條要求：不怕鬼！（1302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8e4c2f55c7256e9a0ed1f4e9ea4e9985dc5330.torrent)
 
 磁力链接：magnet:?xt=urn:btih:6e8e4c2f55c7256e9a0ed1f4e9ea4e9985dc5330
@@ -601,10 +605,6 @@
 * [一周经济回顾（2020年2月8日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdb743d421b7dfdf056bcbe310e4c08a8d804dab.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fdb743d421b7dfdf056bcbe310e4c08a8d804dab
-
-* [武漢肺炎與電影《大明劫》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86eb56d608166c9bfab089fc78bb125b92d748b8.torrent)
-
-磁力链接：magnet:?xt=urn:btih:86eb56d608166c9bfab089fc78bb125b92d748b8
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
