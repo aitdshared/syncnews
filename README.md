@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2l9zs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2nw8v)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [习近平绝不反思，习家军趁乱夺权！华尔街日报痛批谭同志。忽然一声巨响，出了什么事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b1a8e536bb4d73fd40790bd107e180090a9a526.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0b1a8e536bb4d73fd40790bd107e180090a9a526
 
 * [【解讀】病毒引爆官場大地震，疫情為何狂飆？共機恐嚇台灣，內情不單純？中共「擺拍」打雞血，隱瞞疫情人民怨(2020.02.14)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be7f31f35032f80db8eb1111a697997c9380eb2e.torrent)
 
