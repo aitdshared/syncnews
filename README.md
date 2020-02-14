@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】2月13日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d44b5105bc68dac64024b048d46e4f42c80861e0.torrent)
+
+磁力链接：magnet:?xt=urn:btih:d44b5105bc68dac64024b048d46e4f42c80861e0
+
 * [【禁闻】湖北两县实施“战时管制”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495691a901e002b14db51d61509ed643f417940a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:495691a901e002b14db51d61509ed643f417940a
@@ -589,10 +593,6 @@
 * [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
-
-* [【禁闻】专家：肺炎疫情全方位打击中国经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c822255abff6e0d6442ce411d3d73675482a1f24.torrent)
-
-磁力链接：magnet:?xt=urn:btih:c822255abff6e0d6442ce411d3d73675482a1f24
 
 * [【禁闻】2月9日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1437399cadd1a7fa99566e06dc50962ac3877817.torrent)
 
