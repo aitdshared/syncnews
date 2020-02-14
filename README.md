@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】取消优惠中共被美踢出“发展中国家”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23fbb1839eb99960a8b33496bca5fe3ebffe0880.torrent)
+
+磁力链接：magnet:?xt=urn:btih:23fbb1839eb99960a8b33496bca5fe3ebffe0880
+
 * [FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集20200213)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3633bc2922654aaae0a60fb9cc46c2121e1071.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fe3633bc2922654aaae0a60fb9cc46c2121e1071
@@ -581,10 +585,6 @@
 * [【禁闻】设路障生口角警察拔抢指向村民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa5cfe65324771ed5ec6e9cf730f4552dc3fb9a6.torrent)
 
 磁力链接：magnet:?xt=urn:btih:aa5cfe65324771ed5ec6e9cf730f4552dc3fb9a6
-
-* [韩国经济雪上加霜，前路茫茫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b23578a0f5d4943f8f0b78abadcda845aaac497d.torrent)
-
-磁力链接：magnet:?xt=urn:btih:b23578a0f5d4943f8f0b78abadcda845aaac497d
 
 * [【禁闻】专家：肺炎疫情全方位打击中国经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c822255abff6e0d6442ce411d3d73675482a1f24.torrent)
 
