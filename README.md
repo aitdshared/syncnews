@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2od72)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ofdw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [美國CDC主管認為中國疫情完全失控暗示中共拒絕美方援助是出於政治原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e01f8ac9ffa18f7f5dce53435434a45653d992a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9e01f8ac9ffa18f7f5dce53435434a45653d992a
 
 * [【环球直击】2月14日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b4760b93adef82465fa608eb868d3ae795d0f12.torrent)
 
@@ -621,10 +625,6 @@
 * [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
-
-* [一个修行人对疫情的反思和避难之道(哲思心语第7集20200209)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946ca5d2036b6661969727fe62e430bd8cd00302.torrent)
-
-磁力链接 magnet:?xt=urn:btih:946ca5d2036b6661969727fe62e430bd8cd00302
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
