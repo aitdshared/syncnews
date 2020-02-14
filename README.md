@@ -26,6 +26,22 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [不要問喪鐘爲誰而鳴武漢情人節8點熄燈一起高喊：釋放方斌釋放陳秋實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ba8451e87c92b5c017b12290585c2cb014661c9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:3ba8451e87c92b5c017b12290585c2cb014661c9
+
+* [中國進入封省模式白宮質疑中共掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e80aef51a190157e3852617262b6fd719b92542.torrent)
+
+磁力链接：magnet:?xt=urn:btih:0e80aef51a190157e3852617262b6fd719b92542
+
+* [保經濟冒險復工或難復產最深層衝擊或在全球供應鏈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98972d228b6cb524c72304e09a0c6938845ab87a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:98972d228b6cb524c72304e09a0c6938845ab87a
+
+* [盜竊商業秘密美國檢方指控華為新罪行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bba2b010fd68daedd894ee2742aee3784629735.torrent)
+
+磁力链接：magnet:?xt=urn:btih:4bba2b010fd68daedd894ee2742aee3784629735
+
 * [蓬佩奧指中共滲透直接點名「孔子學院」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5279541d49d04dd5b507851dd101c7f36f58af9.torrent)
 
 磁力链接：magnet:?xt=urn:btih:b5279541d49d04dd5b507851dd101c7f36f58af9
@@ -589,18 +605,6 @@
 * [一个修行人对疫情的反思和避难之道(哲思心语第7集20200209)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946ca5d2036b6661969727fe62e430bd8cd00302.torrent)
 
 磁力链接：magnet:?xt=urn:btih:946ca5d2036b6661969727fe62e430bd8cd00302
-
-* [【中国禁闻】2月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/539ec93205d114c65ae84f4ddc11649ec2ed86c6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:539ec93205d114c65ae84f4ddc11649ec2ed86c6
-
-* [江峰《約在春天相見》MV：獻給與魔鬼頑強抗爭的大陸民眾（20200209）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f8d34fbe7e2b513d918a55f3b8ad033c3766598.torrent)
-
-磁力链接：magnet:?xt=urn:btih:1f8d34fbe7e2b513d918a55f3b8ad033c3766598
-
-* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」聖人不傷生不為己所為‘洗耳不聞亡國音’-亡富貴之榮遠愛慾是非之境真乃仁杰也（中集-1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34806d16357ac5ffe89b6a4f9020f728381a414c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:34806d16357ac5ffe89b6a4f9020f728381a414c
 
 * [教授们怒了，要求人大召开紧急会议！副总理口气：高层斗争势均力敌。习近平再次避开某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cb2665a26c411eb5117fb5d1c98a9492e8cb212.torrent)
 
