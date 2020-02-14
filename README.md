@@ -18,13 +18,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ofgv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2oxkn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [新冠病毒國際傳播新加坡新增9起日本郵輪也繼續有新增越南封村1萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0
+
+* [醫生求救！武漢醫院缺乏防護物資大量醫護人員遭感染甚至死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73e159543bcb948313e09c25f312c85185bf0dea.torrent)
+
+磁力链接 magnet:?xt=urn:btih:73e159543bcb948313e09c25f312c85185bf0dea
+
+* [中國80多座城市進入「封閉式管理」不少人淪為城市「難民」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8425f194165848d9c0f170334f8069d482c0c111.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8425f194165848d9c0f170334f8069d482c0c111
+
+* [慕尼黑安全會議主題是中共野心使西方主導的自由世界秩序發生變化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9a35519fb6cc4b059c609720a4ff27fde3385dc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9a35519fb6cc4b059c609720a4ff27fde3385dc
+
+* [疫情四月結束？美專家﹕目前論斷為時過早氣溫轉暖未必能阻止病毒傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ebbc1ab036b9ff79dc298be1ca68a4951e770507.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ebbc1ab036b9ff79dc298be1ca68a4951e770507
+
+* [誤入中共統戰陷阱台灣女孩認清共產極權.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf04e1c80d4fffa2630aff2e676b49839605d44b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf04e1c80d4fffa2630aff2e676b49839605d44b
 
 * [美國CDC主管認為中國疫情完全失控暗示中共拒絕美方援助是出於政治原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e01f8ac9ffa18f7f5dce53435434a45653d992a.torrent)
 
@@ -601,30 +625,6 @@
 * [大批返工潮湧入上海封城疫情告急市民擔心上海或成為第二個武漢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aab0e1b4479f404f10a407a0754c5f62ce5a3c9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9aab0e1b4479f404f10a407a0754c5f62ce5a3c9
-
-* [美將公佈2021財年預算含應對中俄威脅資金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7178f615feff6b38d619dfb87b491817891a14a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7178f615feff6b38d619dfb87b491817891a14a0
-
-* [幫中共走私高端芯片英國華裔面臨20年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cc45401409b9a8056627673d85a7da98e93faca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cc45401409b9a8056627673d85a7da98e93faca
-
-* [【自救】在中國持有「資產」的民眾,該如何避險自保？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/951eea8b5560eec298f4336939973ab97a5f5819.torrent)
-
-磁力链接 magnet:?xt=urn:btih:951eea8b5560eec298f4336939973ab97a5f5819
-
-* [【环球直击】2月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea0eb00aa190a73fd0801d4ae4d103e9c373f993.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea0eb00aa190a73fd0801d4ae4d103e9c373f993
-
-* [国际媒体纷纷质问：习近平在哪？他亲自躲藏。党内外对他日益不满.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c12c76a76815dcb187d3e5eca152fb94edf1471.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2c12c76a76815dcb187d3e5eca152fb94edf1471
-
-* [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
