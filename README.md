@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2q7v9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2q988)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [「習明澤」發文揭內鬥，習近平也是棋子？疫情發展的3種可能，大疫之下北京4大怪異動作。武漢肺炎患者令人心憂，疫情何時見頂？亞臨床康復仍攜帶病毒！【新聞看點李沐陽】（2020214).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efe05e24b1ac9b7572be208dbb64398bc7173e34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:efe05e24b1ac9b7572be208dbb64398bc7173e34
 
 * [《石濤.News》「網易：習總-崇禎2.0亡於‘定於一尊’」今夜武漢有人推倒巨大龍牌斷路吶喊在深圳社區撕破夜空（1402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69e4496c273b1a8a453bc8feba01e89c2c625ac8.torrent)
 
