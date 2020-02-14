@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集20200213)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3633bc2922654aaae0a60fb9cc46c2121e1071.torrent)
+
+磁力链接：magnet:?xt=urn:btih:fe3633bc2922654aaae0a60fb9cc46c2121e1071
+
+* [美國CDC連續宣佈加州德州各添一例武漢肺炎全美共15例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d70757835b25df116e013e6214d52dcdd6d62b5.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7d70757835b25df116e013e6214d52dcdd6d62b5
+
 * [不要問喪鐘爲誰而鳴武漢情人節8點熄燈一起高喊：釋放方斌釋放陳秋實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ba8451e87c92b5c017b12290585c2cb014661c9.torrent)
 
 磁力链接：magnet:?xt=urn:btih:3ba8451e87c92b5c017b12290585c2cb014661c9
@@ -594,21 +602,9 @@
 
 磁力链接：magnet:?xt=urn:btih:f96a6776eb5fc95e854e8548be631ae94384f6dd
 
-* [【时事小品】特效药.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63aaa8fccad095fb150c641e6f6cbd18bf1e169c.torrent)
-
-磁力链接：magnet:?xt=urn:btih:63aaa8fccad095fb150c641e6f6cbd18bf1e169c
-
-* [【环球直击】2月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c00d7224b5b43e50f2c62db1df22d10ca0da9b9.torrent)
-
-磁力链接：magnet:?xt=urn:btih:4c00d7224b5b43e50f2c62db1df22d10ca0da9b9
-
 * [一个修行人对疫情的反思和避难之道(哲思心语第7集20200209)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946ca5d2036b6661969727fe62e430bd8cd00302.torrent)
 
 磁力链接：magnet:?xt=urn:btih:946ca5d2036b6661969727fe62e430bd8cd00302
-
-* [教授们怒了，要求人大召开紧急会议！副总理口气：高层斗争势均力敌。习近平再次避开某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cb2665a26c411eb5117fb5d1c98a9492e8cb212.torrent)
-
-磁力链接：magnet:?xt=urn:btih:5cb2665a26c411eb5117fb5d1c98a9492e8cb212
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
