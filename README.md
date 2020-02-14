@@ -26,6 +26,10 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [宣布戰時狀態！北京疾控中心稱“大戰來臨”，竟然與習近平的“疫情積極變化”結論相背？原來是為了這個原因（江峰漫談20200214第117期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f80256650dc1daf91bdc4d374c68826d44258a5.torrent)
+
+磁力链接：magnet:?xt=urn:btih:7f80256650dc1daf91bdc4d374c68826d44258a5
+
 * [【中国禁闻】2月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29b6aad5844b5b21caea3e4784fae25b134508ae.torrent)
 
 磁力链接：magnet:?xt=urn:btih:29b6aad5844b5b21caea3e4784fae25b134508ae
@@ -597,10 +601,6 @@
 * [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
-
-* [【禁闻】2月9日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f96a6776eb5fc95e854e8548be631ae94384f6dd.torrent)
-
-磁力链接：magnet:?xt=urn:btih:f96a6776eb5fc95e854e8548be631ae94384f6dd
 
 * [一个修行人对疫情的反思和避难之道(哲思心语第7集20200209)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946ca5d2036b6661969727fe62e430bd8cd00302.torrent)
 
