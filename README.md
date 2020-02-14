@@ -26,6 +26,18 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [【禁闻】湖北两县实施“战时管制”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495691a901e002b14db51d61509ed643f417940a.torrent)
+
+磁力链接：magnet:?xt=urn:btih:495691a901e002b14db51d61509ed643f417940a
+
+* [【禁闻】2月13日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d432de556c2f9153124d0ae6c246e803b4906bf.torrent)
+
+磁力链接：magnet:?xt=urn:btih:2d432de556c2f9153124d0ae6c246e803b4906bf
+
+* [【禁闻】濒死伯曼儿视频“认错”网路炸锅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54634f6d46cb8ef34a3e1634599273ebce3aca03.torrent)
+
+磁力链接：magnet:?xt=urn:btih:54634f6d46cb8ef34a3e1634599273ebce3aca03
+
 * [替罪羊出笼？武汉病毒所石正丽难脱罪，党补关键一刀！武汉肺炎来历揭晓，真凶隐匿！（老北京茶館第246集20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e71ff7cf3a48f73fdbe6a13fabe106d6ce68414.torrent)
 
 磁力链接：magnet:?xt=urn:btih:2e71ff7cf3a48f73fdbe6a13fabe106d6ce68414
@@ -577,18 +589,6 @@
 * [【解讀】武漢肺炎真實火化人數驚人；中國經濟房市陷危機資產避險來不及？∣總體經濟學家吳嘉隆（3）(2020.02.10)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a.torrent)
 
 磁力链接：magnet:?xt=urn:btih:fbb8f0dc99e8b2f8ed51f8c6dffa195a5b65a09a
-
-* [【禁闻】疫情十万火急美国专家为何难进中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b51c295b97e521b5e8775a669dbbfae39ae99a9.torrent)
-
-磁力链接：magnet:?xt=urn:btih:1b51c295b97e521b5e8775a669dbbfae39ae99a9
-
-* [【禁闻】李文亮事件舆情汹涌民间发起“全民真话日”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a571d0545f01ff032527c4776128048136129b22.torrent)
-
-磁力链接：magnet:?xt=urn:btih:a571d0545f01ff032527c4776128048136129b22
-
-* [【禁闻】设路障生口角警察拔抢指向村民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa5cfe65324771ed5ec6e9cf730f4552dc3fb9a6.torrent)
-
-磁力链接：magnet:?xt=urn:btih:aa5cfe65324771ed5ec6e9cf730f4552dc3fb9a6
 
 * [【禁闻】专家：肺炎疫情全方位打击中国经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c822255abff6e0d6442ce411d3d73675482a1f24.torrent)
 
