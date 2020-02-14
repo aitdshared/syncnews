@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2p6dt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2q7v9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [《石濤.News》「網易：習總-崇禎2.0亡於‘定於一尊’」今夜武漢有人推倒巨大龍牌斷路吶喊在深圳社區撕破夜空（1402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69e4496c273b1a8a453bc8feba01e89c2c625ac8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:69e4496c273b1a8a453bc8feba01e89c2c625ac8
 
 * [【百姓視頻發聲】大陸最大問題是精神瘟疫中國專家的謊言民眾吶喊！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21f1eea4a1a34f85aed0ce29b0ba4387a16a070f.torrent)
 
@@ -613,10 +617,6 @@
 * [武漢某間醫院工作人員：第一線醫護倒下好幾批壓力巨大都寫好了遺書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92b7d8bdbe723259af56d2c0bfb67999f2defb85.torrent)
 
 磁力链接 magnet:?xt=urn:btih:92b7d8bdbe723259af56d2c0bfb67999f2defb85
-
-* [北京上海封城大陆已封鎖80多座城市疫情失控程度超乎外界想像.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0216aea453217882ff275744c19470371272225e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0216aea453217882ff275744c19470371272225e
 
 * [哨聲吹醒華人紐約華人悼念李文亮眾人齊吹口哨希望「哨聲覺醒中國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38df4970b3b710c461f2807bbf143b455ea0a089.torrent)
 
