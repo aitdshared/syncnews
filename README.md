@@ -26,6 +26,14 @@
 ## 如需手动下载视频，请关注以下新闻将时刻更新
 
 
+* [蓬佩奧指中共滲透直接點名「孔子學院」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5279541d49d04dd5b507851dd101c7f36f58af9.torrent)
+
+磁力链接：magnet:?xt=urn:btih:b5279541d49d04dd5b507851dd101c7f36f58af9
+
+* [美國參院疫情聽證會重點關切疫情對美國醫藥供應鏈的影響.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/235e61133eaacf7e3dc3d9636c8f0f2d5049e5ae.torrent)
+
+磁力链接：magnet:?xt=urn:btih:235e61133eaacf7e3dc3d9636c8f0f2d5049e5ae
+
 * [【禁闻】多地殡葬队驰援武汉死亡人数存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b71f5dc7ade15fcf243402829bd3cf1dd6912c.torrent)
 
 磁力链接：magnet:?xt=urn:btih:51b71f5dc7ade15fcf243402829bd3cf1dd6912c
@@ -597,14 +605,6 @@
 * [教授们怒了，要求人大召开紧急会议！副总理口气：高层斗争势均力敌。习近平再次避开某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cb2665a26c411eb5117fb5d1c98a9492e8cb212.torrent)
 
 磁力链接：magnet:?xt=urn:btih:5cb2665a26c411eb5117fb5d1c98a9492e8cb212
-
-* [【严真点评】外交部大实话：“吹哨人”李文亮之死，震撼了中国体系，治好了亿万国人的眼睛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfebcd19dd053ee261e236283de06e9278a1e4af.torrent)
-
-磁力链接：magnet:?xt=urn:btih:bfebcd19dd053ee261e236283de06e9278a1e4af
-
-* [一周经济回顾（2020年2月8日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdb743d421b7dfdf056bcbe310e4c08a8d804dab.torrent)
-
-磁力链接：magnet:?xt=urn:btih:fdb743d421b7dfdf056bcbe310e4c08a8d804dab
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
