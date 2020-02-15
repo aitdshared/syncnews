@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2srwa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2t99w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [湖北武漢施友玉感染武漢新型冠狀病毒急需床位入住方艙但被拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3dea1b0720dc52e4b15150e114df80e8c2db4aba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3dea1b0720dc52e4b15150e114df80e8c2db4aba
+
+* [武漢護士董女士父親拍了CT片肺都白了，但街道和醫院推搪，現在仍在家隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55383162abed2f9e280313676a88811b738e75f0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55383162abed2f9e280313676a88811b738e75f0
 
 * [【禁闻】2月14日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1593a34f3756a8594d011eff295dbf2ca11bbd97.torrent)
 
@@ -602,17 +610,9 @@
 
 磁力链接 magnet:?xt=urn:btih:261303eed2c200eb8bf1ae30f93fd3e42ab9d319
 
-* [【禁闻】2月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b51d82528742c28dbc61fee0cc30b8c3382c6d8a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b51d82528742c28dbc61fee0cc30b8c3382c6d8a
-
 * [【禁闻】2月10日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a42fdbbea5e68e2a7e7e6d1f5348276404b6f7e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a42fdbbea5e68e2a7e7e6d1f5348276404b6f7e2
-
-* [【禁闻】逾亿个资失窃美起诉4名中共军方黑客.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/752f4be276b243feadc0de4fb93d55d278d6a4ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:752f4be276b243feadc0de4fb93d55d278d6a4ae
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
