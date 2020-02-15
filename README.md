@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2qh68)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2qz7j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [重磅！南開大學論文揭開神秘的人工基因剪輯細節！北京喊大仗來臨！情人節穿幫戲演砸了？（老北京茶館第247集20200214）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dcf534b75a046d5b73f1ec977c03399d177b117.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9dcf534b75a046d5b73f1ec977c03399d177b117
 
 * [美国专家仍被拒入中国；湖北官场瞬息大变；北京准备”大仗“；大事后面的门道（20200214第700期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89af7ccb11505af2684743b7b32fe5019601d30b.torrent)
 
