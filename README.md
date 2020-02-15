@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2y4fh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2yjgt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [习近平拒绝反省，江城电闪雷鸣！神秘工种三条件。日本沦为第二大传染国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/587f7e614eaaeb20c09ba7bc3435f874465de9b6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:587f7e614eaaeb20c09ba7bc3435f874465de9b6
 
 * [【武漢肺炎解讀】武漢進入戒嚴狀態？多少人感染病毒？日本疫情急速失控？殯儀館招人為何要「不怕鬼」？(2020.02.15)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c462060e9108137ce00710866b5a48159bf028b.torrent)
 
@@ -605,10 +609,6 @@
 * [武漢方斌被抓近日方斌發視頻號召「全民反抗還政於民」網民呼籲國際關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd76408281c6b0ea7e537d50f5d014200c77b232.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bd76408281c6b0ea7e537d50f5d014200c77b232
-
-* [【环球直击】2月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e9d6f8af9dc11bc428b19dc2eb2f10be7ad3d33e
 
 * [【全球疫情直擊】美首批撤僑人員新冠病毒已全陰性鑽石公主號郵輪再增66確診病例哨聲吹醒華人紐約悼念李文亮2月10日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7ade938919dfbbd450b78f9243695a00f324195.torrent)
 
