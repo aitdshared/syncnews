@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2roeq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ryty)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【禁闻】强行复工重庆现严重聚集性疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf1d6d85d28c508052fd0eea73bfe082c1980043.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf1d6d85d28c508052fd0eea73bfe082c1980043
 
 * [习中央已失去权威,中共各级地方政权还能撑多久社会维系需要这四项流动(政论天下第112集20200214)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/015be9f6565ea20c90a2d308734a851aacd45013.torrent)
 
@@ -621,30 +625,6 @@
 * [京滬淪陷老百姓都在恐慌中度日世衛：新冠疫情或將在海外爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7d7b416a42942e10086f7e6351a96f02a2ce7d6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e7d7b416a42942e10086f7e6351a96f02a2ce7d6
-
-* [《石濤聚焦》「習傯下令：封城北京上海」深信劉伯溫十愁之語「四愁各省起狼煙」封城同日巡時北京頒布「軍紀13條」地方割據在封城之下已成事實（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf
-
-* [【微视频】中共制造肺炎拐点恐酿疑似感染劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074863522080036e963645754cd8274aa0fbaf4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:074863522080036e963645754cd8274aa0fbaf4f
-
-* [【环球直击】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3fe6ffc87407df96b132938d5e5a94925ff5a4c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f3fe6ffc87407df96b132938d5e5a94925ff5a4c
-
-* [武漢某間醫院工作人員：第一線醫護倒下好幾批壓力巨大都寫好了遺書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92b7d8bdbe723259af56d2c0bfb67999f2defb85.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92b7d8bdbe723259af56d2c0bfb67999f2defb85
-
-* [哨聲吹醒華人紐約華人悼念李文亮眾人齊吹口哨希望「哨聲覺醒中國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38df4970b3b710c461f2807bbf143b455ea0a089.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38df4970b3b710c461f2807bbf143b455ea0a089
-
-* [大批返工潮湧入上海封城疫情告急市民擔心上海或成為第二個武漢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aab0e1b4479f404f10a407a0754c5f62ce5a3c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9aab0e1b4479f404f10a407a0754c5f62ce5a3c9
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
