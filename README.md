@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2yjil)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ylh1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [日本疫情擴大2020東京奧運恐受波及東京奧運聖火傳遞將按原定計劃舉行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cf0544a6cc0f5e699d8876c9e225ed7a432b48e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3cf0544a6cc0f5e699d8876c9e225ed7a432b48e
+
+* [新冠肺炎疫情防二代三代傳染湖北多地宣布「戰時管制」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d731cca69962ba059bab3fe80348ae7779bf6a4a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d731cca69962ba059bab3fe80348ae7779bf6a4a
 
 * [习近平拒绝反省，江城电闪雷鸣！神秘工种三条件。日本沦为第二大传染国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/587f7e614eaaeb20c09ba7bc3435f874465de9b6.torrent)
 
@@ -581,10 +589,6 @@
 * [疫情拐点没来！武漢方斌被抓！潜伏期变24天！北京封城上海紧跟？五毛反美遭拘留电视认罪！（老北京茶館第243集20200210）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364c70b84ea20700286fc57c485385c4053b984e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:364c70b84ea20700286fc57c485385c4053b984e
-
-* [港府遲遲不封關港社區傳出群聚感染疫情逾百名住戶撤離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fb2cd967923b2722f2c01723376c3a6159e2933.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9fb2cd967923b2722f2c01723376c3a6159e2933
 
 * [北上廣深封城，政治經濟危機全面爆發；習近平的藏身之處揭秘（江峰漫談20200211第115期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b97c4b4897d88b3b1dad2a8d0e79d27825485ab.torrent)
 
