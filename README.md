@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ywhk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2zsws)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [《石濤聚焦》「哈佛研究員華南理工大教授博導-蕭波濤：武漢市疾控中心洩新病毒」論文發表於全球學術社交網站ResearchGate現被刪除病毒源自蝙蝠實驗洩漏距海鮮城280米與協和醫院相伴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61eb9893885bf8aba98440a38ce30e580de98024.torrent)
+
+磁力链接 magnet:?xt=urn:btih:61eb9893885bf8aba98440a38ce30e580de98024
 
 * [《石濤聚焦》「世衛調查小組週末進中國-含2名美國專家」日本淪陷東京失控法國首現死亡全球近7萬亡過1.5千「按英國倫敦帝國學院計算：染病200萬死亡35萬」（1502）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6a93f1613fc7aa9a9ee22434e3693a1c17898d7.torrent)
 
