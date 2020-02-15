@@ -18,13 +18,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2r2ti)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2r7y4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [疫症陰霾下港情人節花價大跌三成.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/860c12960ebf868126e06a5c971681ab3a833574.torrent)
+
+磁力链接 magnet:?xt=urn:btih:860c12960ebf868126e06a5c971681ab3a833574
+
+* [美衆院議長佩洛西警告歐盟中共利用華爲5G進行陰險侵略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed8ef7bf415d885eb6cb21b5072ae5be9ee5e1c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ed8ef7bf415d885eb6cb21b5072ae5be9ee5e1c5
+
+* [爆兩新型傳播途徑預警新冠肺炎危機加劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7fd9628daaa425ccaf37acf6cf8f53118cdae4a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f7fd9628daaa425ccaf37acf6cf8f53118cdae4a
 
 * [【禁闻】唱红歌跳舞方舱医院能拯救肺炎病患吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48a6c9701c9b1718c37985aa2c68d126c1e5bfa9.torrent)
 
