@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2rd0k)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2roeq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [习中央已失去权威,中共各级地方政权还能撑多久社会维系需要这四项流动(政论天下第112集20200214)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/015be9f6565ea20c90a2d308734a851aacd45013.torrent)
+
+磁力链接 magnet:?xt=urn:btih:015be9f6565ea20c90a2d308734a851aacd45013
 
 * [《石濤聚焦》「彭博：世衛頂級顧問-全球將有40億人感染武漢病毒-非典2.0」50歲以上男人（中國）最易被著道美國疾控中心總監「疫情可能會持續全年」（1402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c3f51d3b5ef99be72b037455b0323239f18b7a8.torrent)
 
@@ -621,30 +625,6 @@
 * [《石濤聚焦》「習傯下令：封城北京上海」深信劉伯溫十愁之語「四愁各省起狼煙」封城同日巡時北京頒布「軍紀13條」地方割據在封城之下已成事實（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:493ee1e464447e54e03d6d896b8e3c6fc5b8e3bf
-
-* [京沪启动封闭式管理，第二波冲击困扰中共；不变的英雄（20200210第697期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21252a86fd791440bef8665690fa86e2e9d04cc0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21252a86fd791440bef8665690fa86e2e9d04cc0
-
-* [《石濤聚焦》「依波拉病毒發現者：武漢病毒-非典2.0比伊波拉病毒更危險」2月底或3月才到高峰傳播力更強大量死亡疫情結束前疫苗「不太可能」問世「無症狀的傳播方式令病毒更具威脅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a97f401878398c44c194f56d5a0b8e04f3e8350.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a97f401878398c44c194f56d5a0b8e04f3e8350
-
-* [最長潛伏期24天！鍾南山論文揭新冠病毒新況；巧合嗎？官方1月底曾刪一例「潛伏23天」的通報；全球防疫或存漏洞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33c0d3fb7a0f8017234fa918b6a6b28ff9624753.torrent)
-
-磁力链接 magnet:?xt=urn:btih:33c0d3fb7a0f8017234fa918b6a6b28ff9624753
-
-* [強行封村釀命案，瘟疫逼近中南海，各地違「抗疫令」開工，控疫難上加難，搶功避責習「失天命」，「神話破滅」爆料：xwkd2017@gmail.com【新聞看點】（2020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d939dde888bcc8f688184136ab687cb84bf15bc0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d939dde888bcc8f688184136ab687cb84bf15bc0
-
-* [【禁闻】记者手记：新冠肺炎确诊者未被收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19962a5b7686ba42ea1335d3a989f291f9c8052a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:19962a5b7686ba42ea1335d3a989f291f9c8052a
-
-* [《石濤聚焦》「美媒：習近平正失去‘天命’」其自信開始崩裂「黨媒公開嘲諷‘習總應去武漢’下發‘軍紀13條世衛專家小組入境」三條線同時棄守（1002）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccac98faeb11d9dade43a3a4ad833faa577f8851.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ccac98faeb11d9dade43a3a4ad833faa577f8851
 
 * [【微视频】中共制造肺炎拐点恐酿疑似感染劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/074863522080036e963645754cd8274aa0fbaf4f.torrent)
 
