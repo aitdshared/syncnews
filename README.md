@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2wbq6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2y4fh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【武漢肺炎解讀】武漢進入戒嚴狀態？多少人感染病毒？日本疫情急速失控？殯儀館招人為何要「不怕鬼」？(2020.02.15)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c462060e9108137ce00710866b5a48159bf028b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c462060e9108137ce00710866b5a48159bf028b
 
 * [父母被关隔离酒店奶奶去世女儿着急呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53567390b4b49ed6b45b58a5e15deb81c818279c.torrent)
 
@@ -609,10 +613,6 @@
 * [【全球疫情直擊】美首批撤僑人員新冠病毒已全陰性鑽石公主號郵輪再增66確診病例哨聲吹醒華人紐約悼念李文亮2月10日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7ade938919dfbbd450b78f9243695a00f324195.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b7ade938919dfbbd450b78f9243695a00f324195
-
-* [方斌与陈秋实被抓;北京上海封闭式管理,疫情拐点何时方至对武汉疫情的分析(政论天下第108集20200210)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4f930b916a6d885cfc99ba2631e8c4f0671cdb4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d4f930b916a6d885cfc99ba2631e8c4f0671cdb4
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
