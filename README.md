@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ymjg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2yp8c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [歐洲出現首例死亡案例治療新冠病毒藥物美國最快2月底測試、生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7133b2f7bf9ab1cbeb39a7f775653289300edd03.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7133b2f7bf9ab1cbeb39a7f775653289300edd03
 
 * [中華民國陸委會備好名單接滯留湖北的台灣人中共拖延拒提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9e7310bece8bf0441936d52818b0227d92e47b.torrent)
 
@@ -598,17 +602,9 @@
 
 磁力链接 magnet:?xt=urn:btih:c3359a8634190c12478676ddd1df8939a28b4279
 
-* [大瘟疫蔓延絕境求生有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61615e071e701d86d99327025a4af400bff13c8c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:61615e071e701d86d99327025a4af400bff13c8c
-
 * [北上廣深封城，政治經濟危機全面爆發；習近平的藏身之處揭秘（江峰漫談20200211第115期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b97c4b4897d88b3b1dad2a8d0e79d27825485ab.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3b97c4b4897d88b3b1dad2a8d0e79d27825485ab
-
-* [【禁闻】官方不可信湖北殡仪馆：日烧百具尸体.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4892da9f274dc37a55bd1f9c4911525d1414bd4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4892da9f274dc37a55bd1f9c4911525d1414bd4
 
 * [【解讀】工廠趕工製造百萬屍袋？美國流感比武漢肺炎更嚴重？北京上海封城企業竟然復工；呼籲全民反抗暴政方斌被抓(2020.02.11)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f97d2d38deb55322d48280f3e891c34d571b02db.torrent)
 
@@ -617,14 +613,6 @@
 * [【中国禁闻】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4aff4246d1f7536669db1e904064a2aaf29f5316.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4aff4246d1f7536669db1e904064a2aaf29f5316
-
-* [北京上海“淪陷”；從封城到封口，疫情危機變政治危機？生化武器專家坐鎮武漢P4實驗室，說明什麼？唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68ea5b5600310ad24911e03e6126d7fa5a497d06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:68ea5b5600310ad24911e03e6126d7fa5a497d06
-
-* [武漢方斌被抓近日方斌發視頻號召「全民反抗還政於民」網民呼籲國際關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd76408281c6b0ea7e537d50f5d014200c77b232.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bd76408281c6b0ea7e537d50f5d014200c77b232
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
