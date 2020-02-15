@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ylhs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2ymjg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [中華民國陸委會備好名單接滯留湖北的台灣人中共拖延拒提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9e7310bece8bf0441936d52818b0227d92e47b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b9e7310bece8bf0441936d52818b0227d92e47b
+
+* [劉達文：中共外援慷慨對武漢吝嗇根本不顧人民的死活.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106fccfb690a42cdd2ca6db5e22c533a7916e394.torrent)
+
+磁力链接 magnet:?xt=urn:btih:106fccfb690a42cdd2ca6db5e22c533a7916e394
+
+* [網絡戀情詐騙盛行全美受害者損失逾2億元.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87530af5929cfc5b01c8f1e56b8b0d9c03d8c815.torrent)
+
+磁力链接 magnet:?xt=urn:btih:87530af5929cfc5b01c8f1e56b8b0d9c03d8c815
+
+* [香港前立法會議員：加國政府對新冠病毒態度與零三年港府對「薩斯」態度雷同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0494ae0c2cd8958308472e3f4848fc882bc93cad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0494ae0c2cd8958308472e3f4848fc882bc93cad
 
 * [日本疫情擴大2020東京奧運恐受波及東京奧運聖火傳遞將按原定計劃舉行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cf0544a6cc0f5e699d8876c9e225ed7a432b48e.torrent)
 
@@ -585,10 +601,6 @@
 * [大瘟疫蔓延絕境求生有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61615e071e701d86d99327025a4af400bff13c8c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:61615e071e701d86d99327025a4af400bff13c8c
-
-* [疫情拐点没来！武漢方斌被抓！潜伏期变24天！北京封城上海紧跟？五毛反美遭拘留电视认罪！（老北京茶館第243集20200210）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364c70b84ea20700286fc57c485385c4053b984e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:364c70b84ea20700286fc57c485385c4053b984e
 
 * [北上廣深封城，政治經濟危機全面爆發；習近平的藏身之處揭秘（江峰漫談20200211第115期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b97c4b4897d88b3b1dad2a8d0e79d27825485ab.torrent)
 
