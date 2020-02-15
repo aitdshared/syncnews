@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2tkwe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2tmw7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [湖北實施「戰時管制」，為何從十堰，孝感開始？疫情失控誰之過？在系統的運轉中，個體都是螺絲釘橫河石山熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62b7c53d03d2c9b72c4312441114d8f775b26441.torrent)
+
+磁力链接 magnet:?xt=urn:btih:62b7c53d03d2c9b72c4312441114d8f775b26441
 
 * [【禁闻】中共开启毛式防疫模式红卫兵回来了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db7cf1a0b129564cd8311369ca3163b7f51b7304.torrent)
 
@@ -609,10 +613,6 @@
 * [习近平勉强亮相，但不是武汉！七常委撤离中南海？军队惊传遭拖垮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9207ad5c0520ca972436902edf54e38c3d25d450.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9207ad5c0520ca972436902edf54e38c3d25d450
-
-* [日本郵輪累計確診135人全球疫情持續擴散世衛期待各國專家共同獻策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbbb857581abc472fab7315e96001b0eb75362f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cbbb857581abc472fab7315e96001b0eb75362f1
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
