@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2yp8c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2yv52)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [《石濤.News》「習近平親自甩鍋」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daecd3be4c6cb4872411ced505598010a0e40db6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:daecd3be4c6cb4872411ced505598010a0e40db6
 
 * [歐洲出現首例死亡案例治療新冠病毒藥物美國最快2月底測試、生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7133b2f7bf9ab1cbeb39a7f775653289300edd03.torrent)
 
@@ -601,10 +605,6 @@
 * [《石濤.News》「驚爆：3個幼童被裝一個裝屍袋」裝屍者無保護他人熟視無睹川普顧問納瓦羅驚嘆［崔天侃不否認病毒源自武漢P4研究所］WHO配合習近平拒絕所有美國專家（1102）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3359a8634190c12478676ddd1df8939a28b4279.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c3359a8634190c12478676ddd1df8939a28b4279
-
-* [北上廣深封城，政治經濟危機全面爆發；習近平的藏身之處揭秘（江峰漫談20200211第115期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b97c4b4897d88b3b1dad2a8d0e79d27825485ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b97c4b4897d88b3b1dad2a8d0e79d27825485ab
 
 * [【解讀】工廠趕工製造百萬屍袋？美國流感比武漢肺炎更嚴重？北京上海封城企業竟然復工；呼籲全民反抗暴政方斌被抓(2020.02.11)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f97d2d38deb55322d48280f3e891c34d571b02db.torrent)
 
