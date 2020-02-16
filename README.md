@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32st9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32y62)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [習近平最新講話竟然是“甩鍋”宣言，中共威權掃地；科技部生物安全指導意見的弦外音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14c8684ae04f720b626747e27f38845d11e7b486.torrent)
+
+磁力链接 magnet:?xt=urn:btih:14c8684ae04f720b626747e27f38845d11e7b486
 
 * [【环球直击】2月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e119533b22d114529159fd1483ac7bbbb18dbc6.torrent)
 
@@ -609,10 +613,6 @@
 * [世衛命名新冠肺炎COVID19建議全球將該病毒視爲頭號公敵超過任何恐怖行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d1bb1648ec7e18621f38f5fbb00c576e3f72b69.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9d1bb1648ec7e18621f38f5fbb00c576e3f72b69
-
-* [氣溶膠傳染又關方艙？台專家：武漢醫療系統崩潰進入失控狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c53d66b33d01b627e5863fc3a1971379cfe2facf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c53d66b33d01b627e5863fc3a1971379cfe2facf
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
