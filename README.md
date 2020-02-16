@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32536)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/326vg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [习近平1月7日做了什么防控指示？中共在向北韩学习应对方法？（政论天下第113集20200215）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f42b24de570c1cbc6ca8209995147ae5c3d1629c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f42b24de570c1cbc6ca8209995147ae5c3d1629c
+
+* [【禁聞】记者手记：自行隔离难阻家族式感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da5a38e4ca28d221e67d9859aeb411ffe8b14cfe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:da5a38e4ca28d221e67d9859aeb411ffe8b14cfe
 
 * [【唐靖遠快評】高福被查與華南海鮮市場疫源地之謎；石正麗4篇論文隱藏什麼重要信息？大陸學者最新報告提病毒洩漏可能熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1740e485a1f159d10d53442d4d12bece4569205a.torrent)
 
@@ -605,10 +613,6 @@
 * [广东紧急立法：政府可征用私人财产抗疫！饿兽出笼怎么防？（20200211第698期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51e39c24950030ddc3bb7a3e770dd5f2637306d5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:51e39c24950030ddc3bb7a3e770dd5f2637306d5
-
-* [【环球直击】2月11日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6f6658ee1d01b5db1a1941e1cfac2867a291a4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f6f6658ee1d01b5db1a1941e1cfac2867a291a4
 
 * [【蕭茗訪談】武漢肺炎如何演變成了政治表演？中國人民如何應對危機？中共高層的底線是什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9.torrent)
 
