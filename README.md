@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UhraLP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LDDNfD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [习近平自曝内幕，舆论哗然！他的权位保卫战，官员人人自危.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7deb2ec0e77be851f41c32b897ecde717dce3a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c7deb2ec0e77be851f41c32b897ecde717dce3a9
+
+* [习近平自曝内幕，舆论哗然！他的权位保卫战，官员人人自危。天呈异象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/080e32fb1f1ffe737ebf624ebc1011df051f6daf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:080e32fb1f1ffe737ebf624ebc1011df051f6daf
 
 * [【严真点评】外交部大实话：武汉肺炎非洲失守会酿世界灾祸？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a107ce77c6ec9f6a416aba4d536e783947707218.torrent)
 
@@ -605,14 +613,6 @@
 * [武漢肺炎病毒突变！潜伏期42天！方斌被抓后，习出来招手！武漢放弃百步亭？（老北京茶館第244集20200211）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d90305878b16aa695fea16a1a1017c02163e4014.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d90305878b16aa695fea16a1a1017c02163e4014
-
-* [武漢市礄口區任女士介紹就醫現狀：這病不死也得被拖死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3164be2f05d8a410343092b94ffb62fcc76c42e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3164be2f05d8a410343092b94ffb62fcc76c42e0
-
-* [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王帥文武百官齋戒三日不得回宮沐浴更衣鑾輿禮聘子牙「五鳳鳴兮真主現垂竿釣兮知我稀」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502883725b0746c6070746e59d0061de85f1a35.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1502883725b0746c6070746e59d0061de85f1a35
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
