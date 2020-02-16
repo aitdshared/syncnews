@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/329s9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32gk7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [很多人问法轮功如何修炼？谈谈我修炼了二十多年的体悟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5fb6116700e0720911f7e3c5c3ca66b6a79b6d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c5fb6116700e0720911f7e3c5c3ca66b6a79b6d2
 
 * [地震冰雹雷打雪,天已發怒？習近平不打自招病毒來源？武漢6個「一律」習近平受挑戰？醫院「死人堆裏挖活人」,民眾已經絕望【新聞看點李沐陽】（20200215）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5de4d571fb38ddc133cd1f3eea8cec990218f70b.torrent)
 
@@ -609,10 +613,6 @@
 * [氣溶膠傳染又關方艙？台專家：武漢醫療系統崩潰進入失控狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c53d66b33d01b627e5863fc3a1971379cfe2facf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c53d66b33d01b627e5863fc3a1971379cfe2facf
-
-* [美國CDC﹕絕對相信中國的真實病例數遠高於官方公佈的數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106145cb8a0b556e675ed5fd8fac689559d1bdd3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:106145cb8a0b556e675ed5fd8fac689559d1bdd3
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
