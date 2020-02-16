@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32y62)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/34rrd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【新闻周刊】第719期（2020216）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8037a0d26328f7279a5e734015e67cfd5769485c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8037a0d26328f7279a5e734015e67cfd5769485c
 
 * [習近平最新講話竟然是“甩鍋”宣言，中共威權掃地；科技部生物安全指導意見的弦外音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14c8684ae04f720b626747e27f38845d11e7b486.torrent)
 
@@ -609,10 +613,6 @@
 * [鍾南山改口疫情新拐點將在二月中旬或下旬出現國際質疑中國數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faddbc0dd08580d643b9542f6929d5ec64c8b3c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8faddbc0dd08580d643b9542f6929d5ec64c8b3c
-
-* [世衛命名新冠肺炎COVID19建議全球將該病毒視爲頭號公敵超過任何恐怖行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d1bb1648ec7e18621f38f5fbb00c576e3f72b69.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d1bb1648ec7e18621f38f5fbb00c576e3f72b69
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
