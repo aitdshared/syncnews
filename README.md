@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/317qa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32536)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【唐靖遠快評】高福被查與華南海鮮市場疫源地之謎；石正麗4篇論文隱藏什麼重要信息？大陸學者最新報告提病毒洩漏可能熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1740e485a1f159d10d53442d4d12bece4569205a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1740e485a1f159d10d53442d4d12bece4569205a
 
 * [【百姓視頻發聲】釋放方斌還政於民結束專制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60ae33181109ea5891bb71a32e339a1c5a3e2b52.torrent)
 
@@ -609,10 +613,6 @@
 * [【蕭茗訪談】武漢肺炎如何演變成了政治表演？中國人民如何應對危機？中共高層的底線是什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:772a92e3e311ec1c36c0dcf7b0f5c88ef8f6e7a9
-
-* [詭異！大陸網站突然指控石正麗修改病毒，川普出手調查病毒來源，醫院驚現3具兒童屍體，權威專家的疑惑，崔永元的不一樣思考（20200211）武漢肺炎【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6006356451563dcf2d56a0c74f87651ce482c1f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6006356451563dcf2d56a0c74f87651ce482c1f7
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
