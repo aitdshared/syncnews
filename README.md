@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/35la5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yFSQVQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【严真点评】外交部大实话：武汉肺炎非洲失守会酿世界灾祸？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a107ce77c6ec9f6a416aba4d536e783947707218.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a107ce77c6ec9f6a416aba4d536e783947707218
 
 * [一周经济回顾（2020年2月16日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc5019f474932065a61ddce884fed8fca8f547c2.torrent)
 
@@ -609,10 +613,6 @@
 * [《濤哥侃封神》「封神演義第二十四回渭水文王聘子牙」文王帥文武百官齋戒三日不得回宮沐浴更衣鑾輿禮聘子牙「五鳳鳴兮真主現垂竿釣兮知我稀」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502883725b0746c6070746e59d0061de85f1a35.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1502883725b0746c6070746e59d0061de85f1a35
-
-* [蓬佩奧在全美州长协会2020年冬季会议上講話：你們當中有多少人與中共建立了聯繫？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eeaf67d3ef9f90071d82628a9f207ad89da876f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3eeaf67d3ef9f90071d82628a9f207ad89da876f
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
