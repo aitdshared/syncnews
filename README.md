@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/2zsws)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/30dbq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【环球直击】2月15日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd7e5e8db12c5067339fda81a1700256ee03ad4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8dd7e5e8db12c5067339fda81a1700256ee03ad4
 
 * [《石濤聚焦》「哈佛研究員華南理工大教授博導-蕭波濤：武漢市疾控中心洩新病毒」論文發表於全球學術社交網站ResearchGate現被刪除病毒源自蝙蝠實驗洩漏距海鮮城280米與協和醫院相伴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61eb9893885bf8aba98440a38ce30e580de98024.torrent)
 
@@ -609,18 +613,6 @@
 * [《石濤聚焦》「湯姆漢克斯的“但丁密碼”另類再世」WHO配合習傯共黨國際調查團大多是「外行」華郵：世衛協助習總欺騙全球［促疫情為全球性危機］總幹事賊喊捉賊「武漢病毒非常可能全球大爆發」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e27f808084d644152b5a16561603d378edd79b9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5e27f808084d644152b5a16561603d378edd79b9
-
-* [《石濤.News》「驚爆：3個幼童被裝一個裝屍袋」裝屍者無保護他人熟視無睹川普顧問納瓦羅驚嘆［崔天侃不否認病毒源自武漢P4研究所］WHO配合習近平拒絕所有美國專家（1102）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3359a8634190c12478676ddd1df8939a28b4279.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c3359a8634190c12478676ddd1df8939a28b4279
-
-* [【解讀】工廠趕工製造百萬屍袋？美國流感比武漢肺炎更嚴重？北京上海封城企業竟然復工；呼籲全民反抗暴政方斌被抓(2020.02.11)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f97d2d38deb55322d48280f3e891c34d571b02db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f97d2d38deb55322d48280f3e891c34d571b02db
-
-* [【中国禁闻】2月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4aff4246d1f7536669db1e904064a2aaf29f5316.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4aff4246d1f7536669db1e904064a2aaf29f5316
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
