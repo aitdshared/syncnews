@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32gk7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/32st9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【环球直击】2月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e119533b22d114529159fd1483ac7bbbb18dbc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9e119533b22d114529159fd1483ac7bbbb18dbc6
 
 * [很多人问法轮功如何修炼？谈谈我修炼了二十多年的体悟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5fb6116700e0720911f7e3c5c3ca66b6a79b6d2.torrent)
 
@@ -601,10 +605,6 @@
 * [鍾南山改口疫情新拐點將在二月中旬或下旬出現國際質疑中國數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faddbc0dd08580d643b9542f6929d5ec64c8b3c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8faddbc0dd08580d643b9542f6929d5ec64c8b3c
-
-* [廣州抗疫「可徵用私人財產」民間憂濫用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95c8325ed8ced5c8b001230090c29a9d41398e4a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:95c8325ed8ced5c8b001230090c29a9d41398e4a
 
 * [世衛命名新冠肺炎COVID19建議全球將該病毒視爲頭號公敵超過任何恐怖行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d1bb1648ec7e18621f38f5fbb00c576e3f72b69.torrent)
 
