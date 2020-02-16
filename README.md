@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/34rrp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3535d)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【时事小品】拐点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1abddb76cd1e40fd5b9d7838817dcaa9bc61f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b1abddb76cd1e40fd5b9d7838817dcaa9bc61f7
+
+* [【全球疫情直擊】誤信親共WHO日本疫情失控美軍方深度介入防堵武漢肺炎歐洲現首宗死亡中國運屍影片頻曝光高薪聘請運屍工糞便檢出活病毒疫情或染全球60%人口2月16日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa0d629d67a4707f15e4a26af53630770ad663f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fa0d629d67a4707f15e4a26af53630770ad663f4
 
 * [【新闻周刊】第719期（2020216）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8037a0d26328f7279a5e734015e67cfd5769485c.torrent)
 
@@ -605,14 +613,6 @@
 * [美撤僑中現首例武漢肺炎病患曾被誤診出院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3736d9ecd8c4af26f8cc548f1bafb85e9209f7c7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3736d9ecd8c4af26f8cc548f1bafb85e9209f7c7
-
-* [习近平强令复工的政治和经济考量，从秦始皇那里可以找到答案。（政论天下第109集20200211）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daab26a5b31d15fe8b0f9050406a4c6a7db3eb64.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daab26a5b31d15fe8b0f9050406a4c6a7db3eb64
-
-* [鍾南山改口疫情新拐點將在二月中旬或下旬出現國際質疑中國數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faddbc0dd08580d643b9542f6929d5ec64c8b3c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8faddbc0dd08580d643b9542f6929d5ec64c8b3c
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
