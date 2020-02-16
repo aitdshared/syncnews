@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/30dbq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/317qa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【百姓視頻發聲】釋放方斌還政於民結束專制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60ae33181109ea5891bb71a32e339a1c5a3e2b52.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60ae33181109ea5891bb71a32e339a1c5a3e2b52
 
 * [【环球直击】2月15日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd7e5e8db12c5067339fda81a1700256ee03ad4.torrent)
 
@@ -609,10 +613,6 @@
 * [詭異！大陸網站突然指控石正麗修改病毒，川普出手調查病毒來源，醫院驚現3具兒童屍體，權威專家的疑惑，崔永元的不一樣思考（20200211）武漢肺炎【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6006356451563dcf2d56a0c74f87651ce482c1f7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6006356451563dcf2d56a0c74f87651ce482c1f7
-
-* [《石濤聚焦》「湯姆漢克斯的“但丁密碼”另類再世」WHO配合習傯共黨國際調查團大多是「外行」華郵：世衛協助習總欺騙全球［促疫情為全球性危機］總幹事賊喊捉賊「武漢病毒非常可能全球大爆發」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e27f808084d644152b5a16561603d378edd79b9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e27f808084d644152b5a16561603d378edd79b9
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
