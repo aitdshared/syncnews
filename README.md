@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/wxdyhno)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/sma7uyc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [湖北除了封閉管理外各市縣又實行24小時最嚴封閉被認為新官上任「第一把火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e847e89c52255c2c82026888baa9e023f644148.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9e847e89c52255c2c82026888baa9e023f644148
+
+* [中共高層要求各企業「有序復工」許多城市復工現群聚性感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cded8aaeb123a4be86b8371c1073759d6c7b9bcc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cded8aaeb123a4be86b8371c1073759d6c7b9bcc
+
+* [上海將實施具爭議血漿療法日本專家警告中共當局延誤了應對病毒的最佳時機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52b577597e91d1935a20c0c4d7ddb2c535d947a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52b577597e91d1935a20c0c4d7ddb2c535d947a9
+
+* [停靠日本的鑽石公主號新增99確診病例美國開始從郵輪撤僑多國跟進.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03becf52d08e963e6c75702f1d660279514a939c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:03becf52d08e963e6c75702f1d660279514a939c
 
 * [日感染人數繼續增長口罩在日本各大商店均已售罄民眾未出現很大恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4000fa59c0f44fd257cb3617f75d1a458216148c.torrent)
 
@@ -598,25 +614,9 @@
 
 磁力链接 magnet:?xt=urn:btih:026b0118585d8e5374dc513c25c3eb5a4ec695cc
 
-* [撤銷陸配子女入境陳時中：國籍選擇要自己承擔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b09947fa6cfedde0590cd63863eebd944d3b46f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b09947fa6cfedde0590cd63863eebd944d3b46f
-
 * [廣東成為第二大疫區廣州深圳徵用私人財產抗疫市民認為這是搶劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/988793fde4b7632f89c1d552e271c290b57471f9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:988793fde4b7632f89c1d552e271c290b57471f9
-
-* [【疫區百姓聲音】武漢某殯儀館人員：運屍袋等物品非常缺乏一直24小時運作一周都沒回家休息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aa64133bba1125eccf0d18bc9dbd5ac8654e3f2c
-
-* [【武漢百姓聲音】眼見老伴家中死去妻也染肺炎無法收治透過女兒在網路求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8dd5e9f36fc70e2f4452ee3ecb5230813514f3c3
-
-* [武漢彭先生：響應號召在家隔離母親發病9天打了許多電話根本沒有人來收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d6cdd4626a37783492e902118a3ac920c3ef80e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1d6cdd4626a37783492e902118a3ac920c3ef80e
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
