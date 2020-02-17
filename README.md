@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/t2tsnyu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/tjsjb4x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [武汉大学喊滚蛋！华大妈暗示习下台。某常委抛出新理论。柬埔寨首相有福了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42a244b11d7c8c9e6c113756495bdf4d07a218b9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42a244b11d7c8c9e6c113756495bdf4d07a218b9
 
 * [【專訪】中共軍力能抗衡美國？中共新航母下水；面臨武統台灣訊息，台灣抵抗中共為何重要？∣國防研究院所長蘇紫雲（下）(2020.02.17)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/238fe8e20d6fe72c200a9f8c29f474566c67f24b.torrent)
 
@@ -605,10 +609,6 @@
 * [武漢彭先生：響應號召在家隔離母親發病9天打了許多電話根本沒有人來收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d6cdd4626a37783492e902118a3ac920c3ef80e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1d6cdd4626a37783492e902118a3ac920c3ef80e
-
-* [【全球疫情直擊】美返僑烏龍確診病患被誤診出院鍾南山改口疫情新拐點國際質疑中國數據鑽石公主號再增39例確認香港疑爆社區感染2月12日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452cb78a875c491ad4d952b6eb0376d57f62c863.torrent)
-
-磁力链接 magnet:?xt=urn:btih:452cb78a875c491ad4d952b6eb0376d57f62c863
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
