@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/sma7uyc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/snud862)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [慕尼黑會議最後一天佩洛西：選擇華為與否相當於「專制與民主的選擇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5da777ed488b95ce76f1dbf6a39b7bd3d6ab73f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5da777ed488b95ce76f1dbf6a39b7bd3d6ab73f2
 
 * [湖北除了封閉管理外各市縣又實行24小時最嚴封閉被認為新官上任「第一把火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e847e89c52255c2c82026888baa9e023f644148.torrent)
 
@@ -613,10 +617,6 @@
 * [美首批撤僑經過14天的隔離觀察無人感染週二陸續返家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/026b0118585d8e5374dc513c25c3eb5a4ec695cc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:026b0118585d8e5374dc513c25c3eb5a4ec695cc
-
-* [廣東成為第二大疫區廣州深圳徵用私人財產抗疫市民認為這是搶劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/988793fde4b7632f89c1d552e271c290b57471f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:988793fde4b7632f89c1d552e271c290b57471f9
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
