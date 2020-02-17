@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/yx85hvsk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/sq8xnoy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [中共應對疫情花大力撲滅民間的反對聲音多名維權人士被警察帶走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e21683ee65df2f9aaf5d1070a6601e63f40e664.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e21683ee65df2f9aaf5d1070a6601e63f40e664
 
 * [《石濤.News》「南京金燕：這是正與邪的較量習近平太不要臉」湖北導演常凱12天全家滅門震盪國內論壇原因與李文亮類比皆在「訃告中」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a335728fdd1c6cfbd8b1df803101f6d843b4cf1.torrent)
 
@@ -613,10 +617,6 @@
 * [【微视频】中共斗肺炎阶段性受挫二月底经济大限.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6d6e4a952a66e07da8afc18f640736db48e660.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cc6d6e4a952a66e07da8afc18f640736db48e660
-
-* [美首批撤僑經過14天的隔離觀察無人感染週二陸續返家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/026b0118585d8e5374dc513c25c3eb5a4ec695cc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:026b0118585d8e5374dc513c25c3eb5a4ec695cc
 
 * [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
