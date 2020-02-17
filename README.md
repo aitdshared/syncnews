@@ -18,13 +18,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3V2DC3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A1GuCg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [【禁闻】2月16日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0310737343e9fa4d7ca3875ceaa83934959a6e3d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0310737343e9fa4d7ca3875ceaa83934959a6e3d
+
+* [【禁闻】决战2020陈破空：习近平四大难题无解.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74fd4f035813ec75ae551bb97ab60b1c5c8d55f5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:74fd4f035813ec75ae551bb97ab60b1c5c8d55f5
 
 * [【禁闻】记者直击：隔离点缺救治武汉居民呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ee376005ef7f4ab3448e1947da0bf4dd34710f7.torrent)
 
@@ -590,14 +598,6 @@
 
 磁力链接 magnet:?xt=urn:btih:1d6cdd4626a37783492e902118a3ac920c3ef80e
 
-* [【禁闻】蓬佩奥披露中共渗透美国内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb0f0f19551d8bbcd1d8371dceff8c0d1f49501.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fbb0f0f19551d8bbcd1d8371dceff8c0d1f49501
-
-* [【禁闻】抢劫？广州深圳征用私人财产抗疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48cba677d158ed03bc01fa15e645c3213ba8fb4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:48cba677d158ed03bc01fa15e645c3213ba8fb4f
-
 * [【全球疫情直擊】美返僑烏龍確診病患被誤診出院鍾南山改口疫情新拐點國際質疑中國數據鑽石公主號再增39例確認香港疑爆社區感染2月12日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452cb78a875c491ad4d952b6eb0376d57f62c863.torrent)
 
 磁力链接 magnet:?xt=urn:btih:452cb78a875c491ad4d952b6eb0376d57f62c863
@@ -609,34 +609,6 @@
 * [✂️武漢局部斷網！只為一個原因；各地封閉，當局為何急令開路？武漢肺炎疫情夏天未必結束，世衛指新病毒比恐怖份子可怕；被封殺的重磅消息：手術台上的健康人新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1daa7c448282068a55ac4751682fdeb950e935.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9c1daa7c448282068a55ac4751682fdeb950e935
-
-* [【解讀】病毒潛伏期創紀錄疫情難控；廣東強徵民間私產疫情告急？中國疫情為何接踵而來？（2020.2.12）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c95822c3e7bf7a256802b478c3724812baada9b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c95822c3e7bf7a256802b478c3724812baada9b
-
-* [【禁闻】重症均已入院？武汉患者斥书记撒谎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6443b2c9da1f50eff5f66a3dfc6150effb755fa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a6443b2c9da1f50eff5f66a3dfc6150effb755fa
-
-* [河南命案爆料：xwkd2017@gmail.com【新聞看點】（2020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2863c5ecba9cea326f60676744418ba1ec241b62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2863c5ecba9cea326f60676744418ba1ec241b62
-
-* [【禁闻】疫情肆虐下复工恐爆发大规模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d1fd86037d3079bb559ba626772b42b5268101b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3d1fd86037d3079bb559ba626772b42b5268101b
-
-* [【禁闻】先遣专家组抵中WHO警告海外疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19cecc2c85fa37bec8af5b9986c0d37b92d7da7d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:19cecc2c85fa37bec8af5b9986c0d37b92d7da7d
-
-* [【禁闻】2月11日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a78abbe0ba5d0619f9950a89de209d2144b10d02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a78abbe0ba5d0619f9950a89de209d2144b10d02
-
-* [【禁闻】2月11日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6317e45b1f230e1f71f6849820a692de368fc594.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6317e45b1f230e1f71f6849820a692de368fc594
 
 * [中共闢謠又成現實：武漢斷網；廣東緊急徵用私人財產開啟明火執仗程序；中央要求復工必將造成疫情局部突發（江峰漫谈20200212第116期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc21b69703bbf21be8ae2830acedd576cd82fc6.torrent)
 
