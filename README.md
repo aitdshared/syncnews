@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VTRw1G)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qOXBtN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+* [華春瑩領銜造反？習近平發威整肅官場？導演和頂尖教授接連死亡，武漢女義士怒吼！（老北京茶館第248集20200216）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187b901d621913d56752c9cee3b50fcb05fbf122.torrent)
+
+磁力链接 magnet:?xt=urn:btih:187b901d621913d56752c9cee3b50fcb05fbf122
 
 * [里斯本地震：一場動搖人類信仰的地震（歷史上的今天20200216重新剪輯發佈）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/965991c99f50414e967b9777a18a2a968beff23b.torrent)
 
