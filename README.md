@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VmQUlj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2O6LRj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武昌醫院長也被「政治搶救」陸醫護處境危許多武漢醫護人員向外界求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8ed3021ef339f12d6265497fbde69590b3f4695.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8ed3021ef339f12d6265497fbde69590b3f4695
 
 下载BT种子 [洛杉磯民眾紀念李文亮醫生呼籲中共開放言論自由期望中國百姓儘快覺醒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/110d22c2a2ac24b269b2b1b40f06b4361f4c0486.torrent)
 
@@ -605,17 +609,9 @@
 
 磁力链接 magnet:?xt=urn:btih:61d17054c35144751573032bbdda717ed9adfe20
 
-下载BT种子 [武漢一老人院集體發病沒人管疑似病例家屬向媒體求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59120d36fc3997a50d18a7d3a06a28e28c9c65c2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:59120d36fc3997a50d18a7d3a06a28e28c9c65c2
-
 下载BT种子 [疫情告急湖北十堰張灣區實行「戰時管理」所有樓棟一律全封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c166fb85ae50a1d7966d3f0fa16a91836d6d7778.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c166fb85ae50a1d7966d3f0fa16a91836d6d7778
-
-下载BT种子 [疾控權威：復工人口流動增疫情惡化風險疫情將可能出現高峰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ec9fbf1bb69dcd100e1665806b2dbf2c8cc67e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3ec9fbf1bb69dcd100e1665806b2dbf2c8cc67e2
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
