@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/poQozL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u2WfUT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [各地宵禁封门，再谈“应收尽收”与“不惜一切代价”的道德困境（政论天下第114集20200217）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf4c34d8dcada30779c29242435f2b976401770d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf4c34d8dcada30779c29242435f2b976401770d
 
 下载BT种子 [【禁闻】美媒：中共吁各国开放边境连盟友也拒绝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cfdb932ff1e2f0ee4e6a4a6764c6df57922af98.torrent)
 
@@ -613,10 +617,6 @@
 下载BT种子 [【禁闻】限制多复工难专家：GDP或负增长5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fdf5335e449c60f963545df88e2a06b30b29cb8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5fdf5335e449c60f963545df88e2a06b30b29cb8
-
-下载BT种子 [中共三军起疫！真男儿戴错口罩！蔡英文喊话习：别绕台了，快隔离去！李文亮同事集体崩溃！（老北京茶館第245集20200212）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/484d3411d6dab5dbd6767b502d8be610effc95dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:484d3411d6dab5dbd6767b502d8be610effc95dc
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
