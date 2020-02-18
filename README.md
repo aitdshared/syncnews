@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/tnc9f6g)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/vdg7ra6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月17日完整版(2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56413afbabf47be0f0b634d45d6f5fc139e94bdd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:56413afbabf47be0f0b634d45d6f5fc139e94bdd
 
 下载BT种子 [习近平“自卫反击战”穿帮！两会推迟、倾轧升级山雨欲来，何时来？（20200217第701期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f31f76f857fb410eaf21d817729c29f114328bf8.torrent)
 
@@ -613,10 +617,6 @@
 下载BT种子 [现金撑不过三个月！挽救中国中小企业，急如救疫（20200212第699期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b65e378fb83d0b2d08f6cb0faa123680cdca74b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8b65e378fb83d0b2d08f6cb0faa123680cdca74b
-
-下载BT种子 [【禁闻】记者手记：床位仍缺武汉患者声声呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b79ca824a0c4d1f26182636501a675f33e2321.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51b79ca824a0c4d1f26182636501a675f33e2321
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
