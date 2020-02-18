@@ -18,13 +18,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S6imtm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Eni0P9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [破紀錄蝗災飛襲亞洲中國或面臨雙重蟲害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80f8aae990f121002a44919d43c7cd79c9adf9c0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:80f8aae990f121002a44919d43c7cd79c9adf9c0
+
+下载BT种子 [美國「總統日」川普發令啟動戴通納500川普坐騎開上賽道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3a50992f6213141a483fdbcf342226ac7534c18.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b3a50992f6213141a483fdbcf342226ac7534c18
+
+下载BT种子 [華府專家及民運人士﹕疫情失控的根源是中共解決疫情須先消滅共產黨體制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9d6a2cf97ba6465c4bf10931307096f36bacba6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b9d6a2cf97ba6465c4bf10931307096f36bacba6
+
+下载BT种子 [“警界君”稱新冠疫情失控政府人員已有五十多人死亡公安比例最大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec21ab42f9e24b9572698ce0b658166f8e3bacff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec21ab42f9e24b9572698ce0b658166f8e3bacff
 
 下载BT种子 [中共冒險强推復工埋下更大的隱患日本成爲中國以外最大的疫區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/765c73d186e55bea607068dd0822e6685b690c78.torrent)
 
@@ -582,10 +598,6 @@
 
 磁力链接 magnet:?xt=urn:btih:f8c517a48959800334d6fffaa3c6f34ca6017295
 
-下载BT种子 [两会如期召开,而且不戴口罩想“让领导先走”？(政论天下第110集20200212)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495aa354c9698c73981a142ce151613e3f481fa4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:495aa354c9698c73981a142ce151613e3f481fa4
-
 下载BT种子 [【禁闻】纳瓦罗指中共必须对新冠病毒起源负责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae8312bfc728b88a39988f87e8564982cdb5a4b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cae8312bfc728b88a39988f87e8564982cdb5a4b
@@ -597,18 +609,6 @@
 下载BT种子 [【禁闻】限制多复工难专家：GDP或负增长5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fdf5335e449c60f963545df88e2a06b30b29cb8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5fdf5335e449c60f963545df88e2a06b30b29cb8
-
-下载BT种子 [湖北十堰戰時管制中共渲染疫情已緩解專家：疫情才剛剛開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ea773d70ea4064c67a0e9121ff87c849f7a5358.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1ea773d70ea4064c67a0e9121ff87c849f7a5358
-
-下载BT种子 [世界最長連儂牆落地南加傳遞民主自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aaf9b1a28facf631f3a248ad1064d53128b42b1d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aaf9b1a28facf631f3a248ad1064d53128b42b1d
-
-下载BT种子 [白宮高官中共各種惡意行動並沒有因為新冠疫情而有所減緩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80ebfca663f5e19408922ee41801441c18b5e89f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:80ebfca663f5e19408922ee41801441c18b5e89f
 
 下载BT种子 [中共活摘罪惡繼續新年期間迫害未減.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d8f2648276e763ddaa8e1df7c05aff753587581.torrent)
 
