@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4rPUFn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4JhKTa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「劉伯溫斷言：武漢病毒-非典2.0對共黨三觀者之天地報應」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcdda3f93788c0583bbc8c0b964568bd4c708dce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bcdda3f93788c0583bbc8c0b964568bd4c708dce
 
 下载BT种子 [美國正在考慮阻止中共獲得關鍵技術佩洛西：5G用華為如同引入中共警察.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0625005703ad63b8b38a96acee5b1aac90f92ac8.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [日本郵輪再添44確診安倍晉三宣布投入153億日元防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c194347221acb188e4316ff4eff8d4033045b101.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c194347221acb188e4316ff4eff8d4033045b101
-
-下载BT种子 [專家指香港已進入瘟疫時代籲全民自救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04a83d5ec5331c7ef29e7dc10baca9bcbfa3656f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:04a83d5ec5331c7ef29e7dc10baca9bcbfa3656f
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
