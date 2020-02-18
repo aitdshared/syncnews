@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E3KkFP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mJOv3T)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國從日本鑽石公主號郵輪撤離300多名美僑民北加接收177名當中7人染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5756c43e296ca210e15aa63a3c6139f7ede2b9d3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5756c43e296ca210e15aa63a3c6139f7ede2b9d3
+
+下载BT种子 [鑽石公主號再增88例確診各國包機撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0bf9d1200c4fed22c99fbcafd29566612178fbc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0bf9d1200c4fed22c99fbcafd29566612178fbc
+
+下载BT种子 [因拍攝疫情視頻的重慶人被10多名警察帶走網友無畏打壓怒斥中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a5555fdde3768f3a5ce4abccb28e1970db0ea4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91a5555fdde3768f3a5ce4abccb28e1970db0ea4
 
 下载BT种子 [【环球直击】2月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b00afc0737a8a4c09d3280aa684e6693ebf9e06.torrent)
 
@@ -596,10 +608,6 @@
 下载BT种子 [疫情告急湖北十堰張灣區實行「戰時管理」所有樓棟一律全封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c166fb85ae50a1d7966d3f0fa16a91836d6d7778.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c166fb85ae50a1d7966d3f0fa16a91836d6d7778
-
-下载BT种子 [台院士賴明詔：陸人民很痛苦查病毒源頭很重要中共打壓民間討論是不公平的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88d37866d935b925866e9e95fe889a533219fe89.torrent)
-
-磁力链接 magnet:?xt=urn:btih:88d37866d935b925866e9e95fe889a533219fe89
 
 下载BT种子 [《石濤聚焦》「武漢病毒被命名：非典SARS2.0」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9b3f94b6b36b6fb89ed990fab3a1bfdf6bcf7d7.torrent)
 
