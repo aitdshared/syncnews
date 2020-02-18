@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lNpG4J)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TCDFFs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【解讀】中南海宮廷內鬥火熱化？方艙醫院穿牆逃命；疫情失控？中共為何推遲「兩會」？實名舉報病毒外洩；世衛考察中國，為何不去湖北與武漢？(2020.02.18)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d4cc43152fa1f8df0beef9d02f3f8b744a66aff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6d4cc43152fa1f8df0beef9d02f3f8b744a66aff
 
 下载BT种子 [【全球新闻】2月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/947a9b9e31b03bfef4f4f62f3008c5414bbb7172.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [上海封城後狀況如何？上海網民爆料：上海新增確診三千多例門店被紛紛封閉學校將推遲至五月開學.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1434b953181418ecdc4e140f9d98abaec4ffb54.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b1434b953181418ecdc4e140f9d98abaec4ffb54
-
-下载BT种子 [【环球直击】2月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12e863578738a923d5e9569bbed0e94892690fb3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:12e863578738a923d5e9569bbed0e94892690fb3
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
