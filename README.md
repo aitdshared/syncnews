@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nfESTX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jj9g0L)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -616,14 +616,6 @@
 下载BT种子 [新冠肺炎疫情如何影響中國經濟？過8成中小企業撐不過3個月；是否復工，地方及企業不聽中央謝田程曉農熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4196a03f3d81200a49f0a993b08bf8b38eb046ab.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4196a03f3d81200a49f0a993b08bf8b38eb046ab
-
-下载BT种子 [【禁闻】纳瓦罗指中共必须对新冠病毒起源负责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae8312bfc728b88a39988f87e8564982cdb5a4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cae8312bfc728b88a39988f87e8564982cdb5a4b
-
-下载BT种子 [【禁闻】死亡人数知多少多地殡葬队赶赴武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/933169b3ac3d4c8d3be6abbc86149d449e90e758.torrent)
-
-磁力链接 magnet:?xt=urn:btih:933169b3ac3d4c8d3be6abbc86149d449e90e758
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
