@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VWAPxR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lpyYOO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「日相安倍晉三遭遇二手病毒全日本譁然」習近平執意4月訪日並簽署「第五份政治聲明」-顯然針對台灣地位天意逼日本推遲此行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe8b07907255d1991dab85dba778c949fa5882f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fe8b07907255d1991dab85dba778c949fa5882f7
 
 下载BT种子 [【武漢市民聲音】晏惠忠：我是吃年飯被感染被隔離酒店一直在咳著急啊救命啊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d20de79bc70e5641859d413cd12a28e2718ef4.torrent)
 
