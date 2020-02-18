@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DsSbhw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tIADP3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b00afc0737a8a4c09d3280aa684e6693ebf9e06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5b00afc0737a8a4c09d3280aa684e6693ebf9e06
 
 下载BT种子 [两会推迟有玄机。某政治老人语录热传！众高官技巧甩锅。习王一夜复辟文革梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c05c58c5dc86df5ca8ea7afc4bade73b2447c1b.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [《石濤聚焦》「武漢病毒被命名：非典SARS2.0」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9b3f94b6b36b6fb89ed990fab3a1bfdf6bcf7d7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c9b3f94b6b36b6fb89ed990fab3a1bfdf6bcf7d7
-
-下载BT种子 [日撤僑包機民眾被隔離了2週後回家公主號郵輪乘客被確診219人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ed3496bebf59451d2ee2698ccfa32da2002fb28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5ed3496bebf59451d2ee2698ccfa32da2002fb28
 
 下载BT种子 [疾控權威：復工人口流動增疫情惡化風險疫情將可能出現高峰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ec9fbf1bb69dcd100e1665806b2dbf2c8cc67e2.torrent)
 
