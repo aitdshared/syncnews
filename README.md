@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3Pa0Jr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t5lyLJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d42b21325649a7ca9fc79e139a5b1fb96b0be5b6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d42b21325649a7ca9fc79e139a5b1fb96b0be5b6
 
 下载BT种子 [华春莹推特赞“倒习”！乌龙之外有什么、与大外宣的“段位”（20200218第702期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e8170b142e74ab2d195c2f2a675a58dddb66947.torrent)
 
