@@ -4,6 +4,7 @@
 
 * Windows版免翻墙下载地址 https://is.gd/wtwinse 下载后双击执行WebTorrentSE.exe
 * Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacdmg 下载后双击执行WebTorrent-v0.21.0.dmg，按提示将WebTorrent拖入Applications文件夹
+
 如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新，无需翻墙。
 
 ## [【其他方式一】Windows版BT下载工具qBittorrent点我下载（需手动下载视频）](https://github.com/aitdshared/syncnews/raw/master/%E3%80%90BT%E4%B8%8B%E8%BD%BD%E5%B7%A5%E5%85%B7%E3%80%91%E8%A7%A3%E5%8E%8B%E5%90%8E%E5%8F%8C%E5%87%BB%E6%89%93%E5%BC%80qBittorrentPortable.exe%E7%84%B6%E5%90%8E%E5%B0%86.torrent%E6%96%87%E4%BB%B6%E6%8B%96%E5%85%A5%E5%8D%B3%E5%8F%AF.zip)
@@ -20,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zn2TjR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nfESTX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】2月17日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ac4f7680d27d5be86056838bbbe22d2545b2454.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1ac4f7680d27d5be86056838bbbe22d2545b2454
+
+下载BT种子 [各地封城還要封多久？地方官員不願復工的「納什均衡」考量；「文革基因」更添人道災難Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b707452125664f9352a41f83994d57d49b65e1c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b707452125664f9352a41f83994d57d49b65e1c4
 
 下载BT种子 [【中国禁闻】2月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e86d2e36b0f888cc30c9ea3e23679807eb59e91.torrent)
 
