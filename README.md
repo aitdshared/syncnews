@@ -18,13 +18,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/warcnv7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://tinyurl.com/tubhsk7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「滅門」慘劇不斷，世界冠軍夫亡為兒哭求，武漢女孩哭訴「沒有爸爸怎麼辦」，小粉紅維穩遭遇尷尬，「李瑞環」現身批習，華春瑩點讚「習下台」，更大風暴逼近？【新聞看點李沐陽】（20200217）最新.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f3a0c26e5c66a555f427508d1575a72bd12e4d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f3a0c26e5c66a555f427508d1575a72bd12e4d4
 
 下载BT种子 [【禁闻】记者直击：想进方舱的人想出方舱的人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33393d85e3c580ab1383bc1d140e0154edb26ecc.torrent)
 
@@ -613,10 +617,6 @@
 下载BT种子 [中共三军起疫！真男儿戴错口罩！蔡英文喊话习：别绕台了，快隔离去！李文亮同事集体崩溃！（老北京茶館第245集20200212）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/484d3411d6dab5dbd6767b502d8be610effc95dc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:484d3411d6dab5dbd6767b502d8be610effc95dc
-
-下载BT种子 [武漢肺炎絕望百態：扔錢、跳樓、上吊、陽台逃生墜落⋯2秒鐘感染，染病即等死，武漢城區烏鴉成群，出入對「暗號」，當局急復工，百姓成賭資，中共防民變【新聞看點李沐陽】（20200212）鍾南山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f530c52ff90f926c90ec16b7b3b880e1d3447e82.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f530c52ff90f926c90ec16b7b3b880e1d3447e82
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
