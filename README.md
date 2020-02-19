@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nd5ia8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8opHaO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [孝感造反！40台移動火化爐驚現武漢！黨抗疫新招：軟禁許章潤！武漢女實錘：這是社會主義肺炎！（老北京茶館第250集20200218）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c190fffd959bd5da80bf2fbf7fce507eba9decd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8c190fffd959bd5da80bf2fbf7fce507eba9decd
 
 下载BT种子 [【禁闻】抵制华为美议长：中共破坏普世价值.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5016056f7185ad11af6decabb21e10ecdb2b65d.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁闻】多地殡葬队驰援武汉死亡人数存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b71f5dc7ade15fcf243402829bd3cf1dd6912c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:51b71f5dc7ade15fcf243402829bd3cf1dd6912c
-
-下载BT种子 [《石濤聚焦》「重慶強悍出現‘第四代病毒感染」武昌殯儀館急聘搬屍員「4小時4000元夜班男女不限」首條要求：不怕鬼！（1302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8e4c2f55c7256e9a0ed1f4e9ea4e9985dc5330.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e8e4c2f55c7256e9a0ed1f4e9ea4e9985dc5330
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
