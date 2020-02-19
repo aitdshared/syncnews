@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rGvYlX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YjbDPf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】记者直击：新冠肺炎让基础病患者雪上加霜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acf364351e41a2ee1e75d5e75f3cb478a68c4736.torrent)
+
+磁力链接 magnet:?xt=urn:btih:acf364351e41a2ee1e75d5e75f3cb478a68c4736
+
+下载BT种子 [【禁闻】官员嫌弃病床不愿住百姓无床相继死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8563bf897807813f7d8267985cc4ca20e8040751.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8563bf897807813f7d8267985cc4ca20e8040751
 
 下载BT种子 [中共逐日調降疫情數字近20台移動式焚屍爐被調往武漢俄囯禁止中國人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04e04a3fb55fe50dc7491452c5ef95de32d2cc6d.torrent)
 
@@ -592,14 +600,6 @@
 下载BT种子 [FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集20200213)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3633bc2922654aaae0a60fb9cc46c2121e1071.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fe3633bc2922654aaae0a60fb9cc46c2121e1071
-
-下载BT种子 [美國CDC連續宣佈加州德州各添一例武漢肺炎全美共15例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d70757835b25df116e013e6214d52dcdd6d62b5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7d70757835b25df116e013e6214d52dcdd6d62b5
-
-下载BT种子 [中國進入封省模式白宮質疑中共掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e80aef51a190157e3852617262b6fd719b92542.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e80aef51a190157e3852617262b6fd719b92542
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
