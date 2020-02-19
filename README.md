@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XgUsKy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IzqocI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -600,18 +600,6 @@
 下载BT种子 [【环球直击】2月13日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075d26f6e0343d9578bb292e0e95f4dbe6af91a3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:075d26f6e0343d9578bb292e0e95f4dbe6af91a3
-
-下载BT种子 [湖北1天爆增1.5萬新病例，習喊「最吃勁」！全國首個「戰時管制令」啟動！武漢人驅車上海求救，上海建「火神山」，習近平掀追責風暴，武漢版「反送中」2.14啟動【新聞看點】（20200213）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3032cb253acaf47ebcac4db4b123f9a15ce0bf14.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3032cb253acaf47ebcac4db4b123f9a15ce0bf14
-
-下载BT种子 [《石濤聚焦》「再派2600軍人進武漢接管2家醫院」一個武漢可拖垮全中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b674f816b690b0d21ec11735dcbc4deb74824b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b674f816b690b0d21ec11735dcbc4deb74824b8
-
-下载BT种子 [《石濤聚焦》「天命：大清滅亡108年之日習總向武漢非典2.0宣戰」北京疾控中心［大戰將至黨員衝在先6大安全意識」武漢病毒非典2.0已在北京擴散之意（1302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cbb0fa15ed57703c34e03601e7fe030fa9ba548.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4cbb0fa15ed57703c34e03601e7fe030fa9ba548
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
