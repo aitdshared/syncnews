@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Sepf6J)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l6q2RD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【解讀】疫情失控人民爭相翻牆罵中共；武漢醫生揭隱匿病毒「人傳人」；中共假新聞宣傳變笑話(2020.02.19)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa9fa84826e628c6508389126ffab7d6cab51257.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa9fa84826e628c6508389126ffab7d6cab51257
 
 下载BT种子 [【全球疫情直擊】細思極恐武漢引進40台移動焚化爐隱瞞什麼世衛考查中共阻撓跳過湖北下封口令醫護感染數巨大台美聯手開發武肺疫苗紐約出租司機怕武肺拒載華人2月19日熱點直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3aeffd93e3ae77c64831b787c919c2955f646819.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [习近平绝不反思，习家军趁乱夺权！华尔街日报痛批谭同志。忽然一声巨响，出了什么事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b1a8e536bb4d73fd40790bd107e180090a9a526.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0b1a8e536bb4d73fd40790bd107e180090a9a526
-
-下载BT种子 [【解讀】病毒引爆官場大地震，疫情為何狂飆？共機恐嚇台灣，內情不單純？中共「擺拍」打雞血，隱瞞疫情人民怨(2020.02.14)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be7f31f35032f80db8eb1111a697997c9380eb2e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:be7f31f35032f80db8eb1111a697997c9380eb2e
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
