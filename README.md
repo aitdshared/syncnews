@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YjbDPf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8E4TD2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】南宁网民团购口罩收到武汉救援物资.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6d0f5018f4294c7136769d4d60a730c05e3d171.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e6d0f5018f4294c7136769d4d60a730c05e3d171
 
 下载BT种子 [【禁闻】记者直击：新冠肺炎让基础病患者雪上加霜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acf364351e41a2ee1e75d5e75f3cb478a68c4736.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁闻】取消优惠中共被美踢出“发展中国家”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23fbb1839eb99960a8b33496bca5fe3ebffe0880.torrent)
 
 磁力链接 magnet:?xt=urn:btih:23fbb1839eb99960a8b33496bca5fe3ebffe0880
-
-下载BT种子 [FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集20200213)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3633bc2922654aaae0a60fb9cc46c2121e1071.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fe3633bc2922654aaae0a60fb9cc46c2121e1071
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
