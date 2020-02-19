@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X03mDt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZIFNUp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共逐日調降疫情數字近20台移動式焚屍爐被調往武漢俄囯禁止中國人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04e04a3fb55fe50dc7491452c5ef95de32d2cc6d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:04e04a3fb55fe50dc7491452c5ef95de32d2cc6d
+
+下载BT种子 [美國擬修法規切斷華為芯片供應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6d27a4fd8a3baa70c3e954b693b9a62878ff71c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d6d27a4fd8a3baa70c3e954b693b9a62878ff71c
 
 下载BT种子 [两会推迟与强制复工,习近平的豪赌;三月初是一个重要的观察点(政论天下第115集20200218)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d046241a7781e7d010dc35e61a21ab7ad57dadbb.torrent)
 
@@ -589,17 +597,9 @@
 
 磁力链接 magnet:?xt=urn:btih:7d70757835b25df116e013e6214d52dcdd6d62b5
 
-下载BT种子 [不要問喪鐘爲誰而鳴武漢情人節8點熄燈一起高喊：釋放方斌釋放陳秋實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ba8451e87c92b5c017b12290585c2cb014661c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3ba8451e87c92b5c017b12290585c2cb014661c9
-
 下载BT种子 [中國進入封省模式白宮質疑中共掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e80aef51a190157e3852617262b6fd719b92542.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0e80aef51a190157e3852617262b6fd719b92542
-
-下载BT种子 [保經濟冒險復工或難復產最深層衝擊或在全球供應鏈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98972d228b6cb524c72304e09a0c6938845ab87a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98972d228b6cb524c72304e09a0c6938845ab87a
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
