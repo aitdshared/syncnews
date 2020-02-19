@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vvTRRp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e1IudI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🉐️紅會千萬口罩送出不到10%，都去哪了？歐洲人或不易感染新病毒；殯儀館招聘條件「不怕鬼」；病毒死者解剖新發現；武漢方艙醫院再建10個；勇士方斌詩歌欣賞新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc9521c5b54a47670b6d320b4c2acb01d024d3b8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc9521c5b54a47670b6d320b4c2acb01d024d3b8
+
+下载BT种子 [【全球新闻】2月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/561e39e458d20540dafe13e429eed9d3cec4653a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:561e39e458d20540dafe13e429eed9d3cec4653a
 
 下载BT种子 [江城破迷：中共的三怕三忽悠活下來的人記住1月10日這個重要的日子（江峰漫談20200219第121期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52c7c261cd66e02b68ab1cc8caf8d71bb1a1fe6f.torrent)
 
@@ -592,18 +600,6 @@
 下载BT种子 [【全球疫情直擊】武漢肺炎病毒源頭確定多省殯葬隊赴武漢收屍撤僑專機僑民感染美確診第15例專家：香港進入瘟疫時代紐約市長華社吃點心安撫民心2月14日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c4c9949d17ea80899130cb4fb7cd51c9edf5a32.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5c4c9949d17ea80899130cb4fb7cd51c9edf5a32
-
-下载BT种子 [【全球新闻】2月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4987281fad667d47699586f1ffe588ec32d91cc2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4987281fad667d47699586f1ffe588ec32d91cc2
-
-下载BT种子 [宣布戰時狀態！北京疾控中心稱“大戰來臨”，竟然與習近平的“疫情積極變化”結論相背？原來是為了這個原因（江峰漫談20200214第117期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f80256650dc1daf91bdc4d374c68826d44258a5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7f80256650dc1daf91bdc4d374c68826d44258a5
-
-下载BT种子 [【禁闻】2月13日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d44b5105bc68dac64024b048d46e4f42c80861e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d44b5105bc68dac64024b048d46e4f42c80861e0
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
