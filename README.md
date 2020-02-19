@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I2bjgp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KEP5O1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [两会推迟与强制复工,习近平的豪赌;三月初是一个重要的观察点(政论天下第115集20200218)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d046241a7781e7d010dc35e61a21ab7ad57dadbb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d046241a7781e7d010dc35e61a21ab7ad57dadbb
+
+下载BT种子 [口罩難買警權氾濫粗暴抓捕「無罩者」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7b3cb586d9577cb67554260ea99901530a8484f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7b3cb586d9577cb67554260ea99901530a8484f
 
 下载BT种子 [世衛專家考查疫情中共刻意跳過了重災區湖北.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3d2c69ada52ef5b53cf95fe406a7de177299609.torrent)
 
@@ -592,18 +600,6 @@
 下载BT种子 [保經濟冒險復工或難復產最深層衝擊或在全球供應鏈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98972d228b6cb524c72304e09a0c6938845ab87a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:98972d228b6cb524c72304e09a0c6938845ab87a
-
-下载BT种子 [盜竊商業秘密美國檢方指控華為新罪行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bba2b010fd68daedd894ee2742aee3784629735.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4bba2b010fd68daedd894ee2742aee3784629735
-
-下载BT种子 [美國參院疫情聽證會重點關切疫情對美國醫藥供應鏈的影響.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/235e61133eaacf7e3dc3d9636c8f0f2d5049e5ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:235e61133eaacf7e3dc3d9636c8f0f2d5049e5ae
-
-下载BT种子 [【禁闻】多地殡葬队驰援武汉死亡人数存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51b71f5dc7ade15fcf243402829bd3cf1dd6912c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51b71f5dc7ade15fcf243402829bd3cf1dd6912c
 
 下载BT种子 [陸多省殯葬隊赴武漢收屍中共隱瞞真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/519ec372726ef406cf3f0d7e8c3b8525c8cb47f8.torrent)
 
