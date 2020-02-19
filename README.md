@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w3ef10)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IWcKPC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】印度肺炎疫情更新中共三大决策错误.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99969d2d3907f1228158026b17dbb353e4219ffd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:99969d2d3907f1228158026b17dbb353e4219ffd
 
 下载BT种子 [《石濤.News》「聖經舊約：神許諾“我將宣洩我的憤怒在中國（Sin）上”」以色列著名拉比平托安息日看到此災難「人類歷史最慘之一很多人餓死共軍無倖免」西城官員感染蔡奇震怒習總懼怕而封城北京」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78cc10a839c5c07e1ae5e39d36c2653133aace99.torrent)
 
