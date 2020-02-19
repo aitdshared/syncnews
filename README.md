@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SrGDwI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R15TCG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「垃圾焚燒方艙」進武漢死亡人數再次成為焦點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb5793dbaa791f78c9c13501bf40970977b3b079.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb5793dbaa791f78c9c13501bf40970977b3b079
+
+下载BT种子 [川普：不涉國家安全美產品可自由流通.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7315ab0b47ade500124b5cd2dfd4f1cfef80678a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7315ab0b47ade500124b5cd2dfd4f1cfef80678a
+
+下载BT种子 [美定性5家中共媒體是中共國家宣傳機構分支北京驅逐三名美記者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df89073f1474e4daf495c71095d08e563f04dc5b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:df89073f1474e4daf495c71095d08e563f04dc5b
 
 下载BT种子 [【解讀】疫情失控人民爭相翻牆罵中共；武漢醫生揭隱匿病毒「人傳人」；中共假新聞宣傳變笑話(2020.02.19)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa9fa84826e628c6508389126ffab7d6cab51257.torrent)
 
