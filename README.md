@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1y2Lts)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dyDupL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港新增一例死亡韓國突增20例確診鑽石公主號郵輪首批500人下船.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22abc7e80ae9d1d90f0183bab40b741912ecf0f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:22abc7e80ae9d1d90f0183bab40b741912ecf0f2
+
+下载BT种子 [關注新冠病毒源頭英媒：零號病人沒有去過華南市場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/763a1db7a5a9c4fece4bf61047e0ce26306427a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:763a1db7a5a9c4fece4bf61047e0ce26306427a9
+
+下载BT种子 [口罩等防護物資奇缺廣西南寧網友訂購四千只口罩竟是武漢救援物資.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4ef53b6e29c3b0be2607911215ad05c8438e769.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f4ef53b6e29c3b0be2607911215ad05c8438e769
 
 下载BT种子 [「垃圾焚燒方艙」進武漢死亡人數再次成為焦點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb5793dbaa791f78c9c13501bf40970977b3b079.torrent)
 
