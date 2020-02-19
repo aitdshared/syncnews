@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8opHaO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ok07va)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [世衛專家考查疫情中共刻意跳過了重災區湖北.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3d2c69ada52ef5b53cf95fe406a7de177299609.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c3d2c69ada52ef5b53cf95fe406a7de177299609
+
+下载BT种子 [美政府：五家媒體為中共政府駐外實體將正式被視為「外國政府工作人員」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38984be270cf614e550f496dfee9d46cb7db7077.torrent)
+
+磁力链接 magnet:?xt=urn:btih:38984be270cf614e550f496dfee9d46cb7db7077
 
 下载BT种子 [孝感造反！40台移動火化爐驚現武漢！黨抗疫新招：軟禁許章潤！武漢女實錘：這是社會主義肺炎！（老北京茶館第250集20200218）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c190fffd959bd5da80bf2fbf7fce507eba9decd.torrent)
 
@@ -588,10 +596,6 @@
 下载BT种子 [盜竊商業秘密美國檢方指控華為新罪行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bba2b010fd68daedd894ee2742aee3784629735.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4bba2b010fd68daedd894ee2742aee3784629735
-
-下载BT种子 [蓬佩奧指中共滲透直接點名「孔子學院」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5279541d49d04dd5b507851dd101c7f36f58af9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b5279541d49d04dd5b507851dd101c7f36f58af9
 
 下载BT种子 [美國參院疫情聽證會重點關切疫情對美國醫藥供應鏈的影響.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/235e61133eaacf7e3dc3d9636c8f0f2d5049e5ae.torrent)
 
