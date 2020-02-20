@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tjRY7L)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7viel8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -604,6 +604,18 @@
 下载BT种子 [美国专家仍被拒入中国；湖北官场瞬息大变；北京准备”大仗“；大事后面的门道（20200214第700期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89af7ccb11505af2684743b7b32fe5019601d30b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:89af7ccb11505af2684743b7b32fe5019601d30b
+
+下载BT种子 [【环球直击】2月14日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9edd6885e56e46602e7d0e7c0fdf5a749dbc96c1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9edd6885e56e46602e7d0e7c0fdf5a749dbc96c1
+
+下载BT种子 [新冠病毒國際傳播新加坡新增9起日本郵輪也繼續有新增越南封村1萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0
+
+下载BT种子 [中國80多座城市進入「封閉式管理」不少人淪為城市「難民」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8425f194165848d9c0f170334f8069d482c0c111.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8425f194165848d9c0f170334f8069d482c0c111
 
 下载BT种子 [慕尼黑安全會議主題是中共野心使西方主導的自由世界秩序發生變化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9a35519fb6cc4b059c609720a4ff27fde3385dc.torrent)
 
