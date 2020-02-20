@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k7G0lH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lBKwgw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第二十六回妲己設計害比干」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2612247549d0250ce8019e2151f1241a64ddabcd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2612247549d0250ce8019e2151f1241a64ddabcd
 
 下载BT种子 [【禁闻】专家警告：“血浆疗法”恐存在巨大风险.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41737eb34b1d9226841a820a0416231683bd4d2b.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [武漢護士董女士父親拍了CT片肺都白了，但街道和醫院推搪，現在仍在家隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55383162abed2f9e280313676a88811b738e75f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:55383162abed2f9e280313676a88811b738e75f0
-
-下载BT种子 [【禁闻】2月14日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1593a34f3756a8594d011eff295dbf2ca11bbd97.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1593a34f3756a8594d011eff295dbf2ca11bbd97
 
 下载BT种子 [美国专家仍被拒入中国；湖北官场瞬息大变；北京准备”大仗“；大事后面的门道（20200214第700期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89af7ccb11505af2684743b7b32fe5019601d30b.torrent)
 
