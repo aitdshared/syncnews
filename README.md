@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5hvRMg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V591AE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美籍華人：《大紀元》真實報導當機立斷回美救了我的命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/071ba3d787a7bcf97974b89d02b12a5da77f4b5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:071ba3d787a7bcf97974b89d02b12a5da77f4b5e
+
+下载BT种子 [貴州援助鄂州千噸蔬菜大部分被官員和派出所侵占部分爛在倉庫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad3acb670c4a6d5f2793da0bc56301fe901c0f39.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ad3acb670c4a6d5f2793da0bc56301fe901c0f39
+
+下载BT种子 [新冠疫情尚未緩解中共要求企業復工胡佳：不少民眾迫於生活壓力而復工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54b8c220d12254df75f73d243f1c9701ccd24661.torrent)
+
+磁力链接 magnet:?xt=urn:btih:54b8c220d12254df75f73d243f1c9701ccd24661
 
 下载BT种子 [民主黨辯論彭博慘敗川普：2020大選意義重大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5559af60fcd71f7a69640782b9f0bbbeaa529b98.torrent)
 
@@ -592,18 +604,6 @@
 下载BT种子 [歐洲出現首例死亡案例治療新冠病毒藥物美國最快2月底測試、生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7133b2f7bf9ab1cbeb39a7f775653289300edd03.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7133b2f7bf9ab1cbeb39a7f775653289300edd03
-
-下载BT种子 [中華民國陸委會備好名單接滯留湖北的台灣人中共拖延拒提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9e7310bece8bf0441936d52818b0227d92e47b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b9e7310bece8bf0441936d52818b0227d92e47b
-
-下载BT种子 [劉達文：中共外援慷慨對武漢吝嗇根本不顧人民的死活.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106fccfb690a42cdd2ca6db5e22c533a7916e394.torrent)
-
-磁力链接 magnet:?xt=urn:btih:106fccfb690a42cdd2ca6db5e22c533a7916e394
-
-下载BT种子 [香港前立法會議員：加國政府對新冠病毒態度與零三年港府對「薩斯」態度雷同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0494ae0c2cd8958308472e3f4848fc882bc93cad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0494ae0c2cd8958308472e3f4848fc882bc93cad
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
