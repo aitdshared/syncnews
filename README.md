@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bIKGkh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5nOsbt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [党内缠斗，李克强略占上风。王书记下达死命令！耿同志表情亮了。美中新闻大战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32fd12233525beab59512bc3dddafef7d690431d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:32fd12233525beab59512bc3dddafef7d690431d
+
+下载BT种子 [权位不稳，习近平急请外国首脑加持。高层分散隐蔽。美国加紧战略围剿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e348565afbe28cfaee4fe8f0bad23cad511abe12.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e348565afbe28cfaee4fe8f0bad23cad511abe12
 
 下载BT种子 [韩国民众开始认清中共了，韩国需要清醒一下了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6175e5d3c0ed3376ac6cb385647ddd6b6e3eec1.torrent)
 
@@ -596,14 +604,6 @@
 下载BT种子 [【中国禁闻】2月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04946789e0f8ed9a1921a0542264f15ae74f8dcb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:04946789e0f8ed9a1921a0542264f15ae74f8dcb
-
-下载BT种子 [周先旺叫板習近平膽從何來？習家軍空降湖北，清一色政法系統出身意味形勢更加嚴峻？（江峰漫談20200215第118期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dda16b00068fe6e9ec0f3d3c63bbf87471467e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6dda16b00068fe6e9ec0f3d3c63bbf87471467e1
-
-下载BT种子 [湖北實施「戰時管制」，為何從十堰，孝感開始？疫情失控誰之過？在系統的運轉中，個體都是螺絲釘橫河石山熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62b7c53d03d2c9b72c4312441114d8f775b26441.torrent)
-
-磁力链接 magnet:?xt=urn:btih:62b7c53d03d2c9b72c4312441114d8f775b26441
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
