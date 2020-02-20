@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AKUvXp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ni4LHV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共長時間拖延後才允許美國專家進入中國蓬佩奧敦促北京應提高開放度.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6da7bdc2a0175d5b19fa91ed96d6388a23b6a8ff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6da7bdc2a0175d5b19fa91ed96d6388a23b6a8ff
+
+下载BT种子 [美國海軍陸戰隊軍樂隊隔柵欄表演安撫武漢肺炎被隔離撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71d0c42b4c1cfda5b99d1bf8e207c8cd141b9cd0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71d0c42b4c1cfda5b99d1bf8e207c8cd141b9cd0
 
 下载BT种子 [美籍華人：《大紀元》真實報導當機立斷回美救了我的命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/071ba3d787a7bcf97974b89d02b12a5da77f4b5e.torrent)
 
@@ -596,14 +604,6 @@
 下载BT种子 [《石濤聚焦》「世衛調查小組週末進中國-含2名美國專家」日本淪陷東京失控法國首現死亡全球近7萬亡過1.5千「按英國倫敦帝國學院計算：染病200萬死亡35萬」（1502）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6a93f1613fc7aa9a9ee22434e3693a1c17898d7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e6a93f1613fc7aa9a9ee22434e3693a1c17898d7
-
-下载BT种子 [《石濤.News》「習近平親自甩鍋」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daecd3be4c6cb4872411ced505598010a0e40db6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daecd3be4c6cb4872411ced505598010a0e40db6
-
-下载BT种子 [歐洲出現首例死亡案例治療新冠病毒藥物美國最快2月底測試、生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7133b2f7bf9ab1cbeb39a7f775653289300edd03.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7133b2f7bf9ab1cbeb39a7f775653289300edd03
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
