@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C2wSOz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k7G0lH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】专家警告：“血浆疗法”恐存在巨大风险.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41737eb34b1d9226841a820a0416231683bd4d2b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:41737eb34b1d9226841a820a0416231683bd4d2b
+
+下载BT种子 [【禁闻】疾控中心论文证实：中共疫情数据造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a5791e7dc64f3d9c3b6290a61141b61f4aaad72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a5791e7dc64f3d9c3b6290a61141b61f4aaad72
 
 下载BT种子 [【禁闻】中共防疫：封闭管理监测舆论移动焚尸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6af8075b5b341fda7e6faf286e80e0f4e2610c7c.torrent)
 
@@ -584,30 +592,6 @@
 下载BT种子 [【禁闻】2月14日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1593a34f3756a8594d011eff295dbf2ca11bbd97.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1593a34f3756a8594d011eff295dbf2ca11bbd97
-
-下载BT种子 [【禁闻】强行复工重庆现严重聚集性疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf1d6d85d28c508052fd0eea73bfe082c1980043.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf1d6d85d28c508052fd0eea73bfe082c1980043
-
-下载BT种子 [习中央已失去权威,中共各级地方政权还能撑多久社会维系需要这四项流动(政论天下第112集20200214)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/015be9f6565ea20c90a2d308734a851aacd45013.torrent)
-
-磁力链接 magnet:?xt=urn:btih:015be9f6565ea20c90a2d308734a851aacd45013
-
-下载BT种子 [《石濤聚焦》「彭博：世衛頂級顧問-全球將有40億人感染武漢病毒-非典2.0」50歲以上男人（中國）最易被著道美國疾控中心總監「疫情可能會持續全年」（1402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c3f51d3b5ef99be72b037455b0323239f18b7a8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c3f51d3b5ef99be72b037455b0323239f18b7a8
-
-下载BT种子 [疫情籠罩大陸復工難日本疫情突現各地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/457bf145797ef9024ad33ec24d8258711fbab1e6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:457bf145797ef9024ad33ec24d8258711fbab1e6
-
-下载BT种子 [疫症陰霾下港情人節花價大跌三成.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/860c12960ebf868126e06a5c971681ab3a833574.torrent)
-
-磁力链接 magnet:?xt=urn:btih:860c12960ebf868126e06a5c971681ab3a833574
-
-下载BT种子 [美衆院議長佩洛西警告歐盟中共利用華爲5G進行陰險侵略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed8ef7bf415d885eb6cb21b5072ae5be9ee5e1c5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed8ef7bf415d885eb6cb21b5072ae5be9ee5e1c5
 
 下载BT种子 [美国专家仍被拒入中国；湖北官场瞬息大变；北京准备”大仗“；大事后面的门道（20200214第700期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89af7ccb11505af2684743b7b32fe5019601d30b.torrent)
 
