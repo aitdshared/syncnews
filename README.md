@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/N0HvHP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R3a7oI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [民主黨辯論彭博慘敗川普：2020大選意義重大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5559af60fcd71f7a69640782b9f0bbbeaa529b98.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5559af60fcd71f7a69640782b9f0bbbeaa529b98
+
+下载BT种子 [日本計程車司機屢遭新冠感染或成高危人群業界司機呼籲盡快出台應對政策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7788c3b8927455d5b5d4031d61079e02d7b19c7b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7788c3b8927455d5b5d4031d61079e02d7b19c7b
+
+下载BT种子 [韓國增53確診病例106港人撤離日本遊輪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e23808d01366080e910a932c7a8dd611fdc28e6a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e23808d01366080e910a932c7a8dd611fdc28e6a
+
+下载BT种子 [【环球直击】2月19日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708a15dbb0aa4510d9365d661d897fcc0db0667.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4708a15dbb0aa4510d9365d661d897fcc0db0667
+
+下载BT种子 [【武漢百姓聲音】武漢一家四世同堂6口染病奶奶去世團年時不知有疫情沒人宣傳提醒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47ae6ee1850ad7c844bce13eaeafceac15f3ad28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:47ae6ee1850ad7c844bce13eaeafceac15f3ad28
+
+下载BT种子 [德國槍擊事件10人遇害槍手自殺嫌犯曾發佈充滿極端右翼主義言論.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0aa08c741655aad1f322be2c88047af432479830.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0aa08c741655aad1f322be2c88047af432479830
+
+下载BT种子 [川普任命新代理國家情報總監負責監督美國17個情報機構.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c817616958c81c85dd518b72a3b713893e43837.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c817616958c81c85dd518b72a3b713893e43837
 
 下载BT种子 [【环球直击】2月20日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b177b2b1b260db5ea24472bb374e65bb66409d9f.torrent)
 
@@ -573,37 +601,9 @@
 
 磁力链接 magnet:?xt=urn:btih:106fccfb690a42cdd2ca6db5e22c533a7916e394
 
-下载BT种子 [網絡戀情詐騙盛行全美受害者損失逾2億元.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87530af5929cfc5b01c8f1e56b8b0d9c03d8c815.torrent)
-
-磁力链接 magnet:?xt=urn:btih:87530af5929cfc5b01c8f1e56b8b0d9c03d8c815
-
 下载BT种子 [香港前立法會議員：加國政府對新冠病毒態度與零三年港府對「薩斯」態度雷同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0494ae0c2cd8958308472e3f4848fc882bc93cad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0494ae0c2cd8958308472e3f4848fc882bc93cad
-
-下载BT种子 [日本疫情擴大2020東京奧運恐受波及東京奧運聖火傳遞將按原定計劃舉行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cf0544a6cc0f5e699d8876c9e225ed7a432b48e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3cf0544a6cc0f5e699d8876c9e225ed7a432b48e
-
-下载BT种子 [新冠肺炎疫情防二代三代傳染湖北多地宣布「戰時管制」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d731cca69962ba059bab3fe80348ae7779bf6a4a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d731cca69962ba059bab3fe80348ae7779bf6a4a
-
-下载BT种子 [习近平拒绝反省，江城电闪雷鸣！神秘工种三条件。日本沦为第二大传染国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/587f7e614eaaeb20c09ba7bc3435f874465de9b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:587f7e614eaaeb20c09ba7bc3435f874465de9b6
-
-下载BT种子 [【武漢肺炎解讀】武漢進入戒嚴狀態？多少人感染病毒？日本疫情急速失控？殯儀館招人為何要「不怕鬼」？(2020.02.15)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c462060e9108137ce00710866b5a48159bf028b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c462060e9108137ce00710866b5a48159bf028b
-
-下载BT种子 [父母被关隔离酒店奶奶去世女儿着急呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53567390b4b49ed6b45b58a5e15deb81c818279c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:53567390b4b49ed6b45b58a5e15deb81c818279c
-
-下载BT种子 [【全球新闻】2月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/607207f32eb82946b79dab5a034bbceac85fd202.torrent)
-
-磁力链接 magnet:?xt=urn:btih:607207f32eb82946b79dab5a034bbceac85fd202
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
