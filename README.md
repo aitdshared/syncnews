@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7viel8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WNIoLC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢封城內幕，三方甩鍋，北京不利！川普為習說好話？20天嬰兒說話？沒戴口罩被打死！婦產科關門急壞產婦，蔡奇居家隔離？海軍艦長被隔離！俄禁中國公民入境【新聞看點】（20200219）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/649f0c7d0ec1297ff9e795dc8852d3716993ba0e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:649f0c7d0ec1297ff9e795dc8852d3716993ba0e
+
+下载BT种子 [美國半導體業﹕應對華為需多邊聯手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e301f936da02439e59e22ddb9e6020ea4040e8d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4e301f936da02439e59e22ddb9e6020ea4040e8d
+
+下载BT种子 [武漢强推極端防疫現瘟疫和飢餓雙重危機伊朗香港添死亡病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f8a538a0b806727f9eb4aba1222147317bf8c16.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f8a538a0b806727f9eb4aba1222147317bf8c16
 
 下载BT种子 [【禁闻】记者直击：CT确诊了患者仍在等待.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c376014b3d80b590dd3ad4e9ced0c11ca5c0331.torrent)
 
@@ -589,33 +601,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ed8ef7bf415d885eb6cb21b5072ae5be9ee5e1c5
 
-下载BT种子 [爆兩新型傳播途徑預警新冠肺炎危機加劇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7fd9628daaa425ccaf37acf6cf8f53118cdae4a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7fd9628daaa425ccaf37acf6cf8f53118cdae4a
-
-下载BT种子 [【禁闻】唱红歌跳舞方舱医院能拯救肺炎病患吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48a6c9701c9b1718c37985aa2c68d126c1e5bfa9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:48a6c9701c9b1718c37985aa2c68d126c1e5bfa9
-
-下载BT种子 [重磅！南開大學論文揭開神秘的人工基因剪輯細節！北京喊大仗來臨！情人節穿幫戲演砸了？（老北京茶館第247集20200214）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dcf534b75a046d5b73f1ec977c03399d177b117.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9dcf534b75a046d5b73f1ec977c03399d177b117
-
 下载BT种子 [美国专家仍被拒入中国；湖北官场瞬息大变；北京准备”大仗“；大事后面的门道（20200214第700期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89af7ccb11505af2684743b7b32fe5019601d30b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:89af7ccb11505af2684743b7b32fe5019601d30b
-
-下载BT种子 [【环球直击】2月14日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9edd6885e56e46602e7d0e7c0fdf5a749dbc96c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9edd6885e56e46602e7d0e7c0fdf5a749dbc96c1
-
-下载BT种子 [新冠病毒國際傳播新加坡新增9起日本郵輪也繼續有新增越南封村1萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:05c3fc215bdc887b2fb52cc2288b8adc98cc4ce0
-
-下载BT种子 [中國80多座城市進入「封閉式管理」不少人淪為城市「難民」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8425f194165848d9c0f170334f8069d482c0c111.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8425f194165848d9c0f170334f8069d482c0c111
 
 下载BT种子 [慕尼黑安全會議主題是中共野心使西方主導的自由世界秩序發生變化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9a35519fb6cc4b059c609720a4ff27fde3385dc.torrent)
 
