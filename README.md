@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4Nmk8y)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VZHGaS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「武漢醫院護士：重症者死亡率超過50%」第八醫院院長感染病危志願者：每天燒死人2000多20多天沒聽過「在劫難逃2020天滅中共-生與滅」秉持中共‘無神論與進化論“三觀理念者最危險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/362208f4452af6e381a688cbe06a84cb41ed8a33.torrent)
+
+磁力链接 magnet:?xt=urn:btih:362208f4452af6e381a688cbe06a84cb41ed8a33
 
 下载BT种子 [【一線採訪】武漢5名護工染疫被迫流落街頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d52bf14b9f0f59b19b50337e8f2be029c224e37f.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [朱阿寶：「反抗暴政推翻獨裁」已經開響了革命第一槍方斌起來了我也站出來希望更多人站起來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f29dd3d67fec51351252254938e05bcd8342653e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f29dd3d67fec51351252254938e05bcd8342653e
-
-下载BT种子 [《石濤聚焦》「世衛專家組視察：不去武漢-湖北」走遍北京廣東四川有美國人但不知代表誰？「網友：習總病的要死御醫黔驢技窮請美國醫師但不可見病人只能與御醫切磋」事關國家尊嚴安全隱私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3a92162e6d74e1293222977c97d29e2fdfc7354.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d3a92162e6d74e1293222977c97d29e2fdfc7354
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
