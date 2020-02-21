@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/phb6Yg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rxmgLb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [如何自救躲過武漢新型冠狀病毒張女士的肺腑之言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/507c28e8d9e915dc7c7769cce89d0ad5084e149f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:507c28e8d9e915dc7c7769cce89d0ad5084e149f
+
+下载BT种子 [突然解封！武漢肺炎危機解除？零確診數各省放衛星！鐘南山遭黨拋棄？（老北京茶館第252集20200220）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f16fa3121591ea193c75c374103afdafd857f27.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2f16fa3121591ea193c75c374103afdafd857f27
 
 下载BT种子 [【禁闻】记者直击：湖北女子监狱的确诊病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74aa07220237c2b6a9d82699d5d1010cac53728b.torrent)
 
@@ -596,26 +604,6 @@
 下载BT种子 [【禁闻】疫情笼罩下保生产与保命的两难抉择.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fbc3f3a5186bac22061efcf71553fd24e49970e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0fbc3f3a5186bac22061efcf71553fd24e49970e
-
-下载BT种子 [【禁闻】习近平也甩锅《求是》刊文泄内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a72442ba00345af34a41699ed7c39302bcdc446.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0a72442ba00345af34a41699ed7c39302bcdc446
-
-下载BT种子 [華春瑩領銜造反？習近平發威整肅官場？導演和頂尖教授接連死亡，武漢女義士怒吼！（老北京茶館第248集20200216）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187b901d621913d56752c9cee3b50fcb05fbf122.torrent)
-
-磁力链接 magnet:?xt=urn:btih:187b901d621913d56752c9cee3b50fcb05fbf122
-
-下载BT种子 [《石濤.News》「武漢公共汽車社區拉病人」廣電總局稱［習近平-無產階級革命家］詛咒其快死？鐘南山無防護看病人中共侮辱式防疫-瘟疫爆發原因［日本可能被徹底淪陷］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/597301dd85a10e90d1282b8209ebf967912ac4ea.torrent)
-
-磁力链接 magnet:?xt=urn:btih:597301dd85a10e90d1282b8209ebf967912ac4ea
-
-下载BT种子 [习近平自曝内幕，舆论哗然！他的权位保卫战，官员人人自危.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7deb2ec0e77be851f41c32b897ecde717dce3a9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c7deb2ec0e77be851f41c32b897ecde717dce3a9
-
-下载BT种子 [习近平自曝内幕，舆论哗然！他的权位保卫战，官员人人自危。天呈异象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/080e32fb1f1ffe737ebf624ebc1011df051f6daf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:080e32fb1f1ffe737ebf624ebc1011df051f6daf
 
 下载BT种子 [【严真点评】外交部大实话：武汉肺炎非洲失守会酿世界灾祸？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a107ce77c6ec9f6a416aba4d536e783947707218.torrent)
 
