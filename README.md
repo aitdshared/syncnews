@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8yywFk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4Nmk8y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】武漢5名護工染疫被迫流落街頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d52bf14b9f0f59b19b50337e8f2be029c224e37f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d52bf14b9f0f59b19b50337e8f2be029c224e37f
 
 下载BT种子 [文昭、秋旻對唱：約在春天相見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d31dd1ea19e83fa63f92bac26fe484cb71ffdce.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「世衛專家組視察：不去武漢-湖北」走遍北京廣東四川有美國人但不知代表誰？「網友：習總病的要死御醫黔驢技窮請美國醫師但不可見病人只能與御醫切磋」事關國家尊嚴安全隱私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3a92162e6d74e1293222977c97d29e2fdfc7354.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d3a92162e6d74e1293222977c97d29e2fdfc7354
-
-下载BT种子 [中共應對疫情花大力撲滅民間的反對聲音多名維權人士被警察帶走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e21683ee65df2f9aaf5d1070a6601e63f40e664.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e21683ee65df2f9aaf5d1070a6601e63f40e664
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
