@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ODVNOw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I7wjF9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0882a1b006b92a5e54761cc878374a893d4877.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f0882a1b006b92a5e54761cc878374a893d4877
 
 下载BT种子 [【解讀】賺錢勝人命，中共急復工隱瞞疫情；醫生稱燒活人「確實有」；病毒凶悍，病患復發頻傳（2020.2.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/598541e6153f7ec0ae726727504d4103b8c3a5d5.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [武汉大学喊滚蛋！华大妈暗示习下台。某常委抛出新理论。柬埔寨首相有福了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42a244b11d7c8c9e6c113756495bdf4d07a218b9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42a244b11d7c8c9e6c113756495bdf4d07a218b9
-
-下载BT种子 [【專訪】中共軍力能抗衡美國？中共新航母下水；面臨武統台灣訊息，台灣抵抗中共為何重要？∣國防研究院所長蘇紫雲（下）(2020.02.17)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/238fe8e20d6fe72c200a9f8c29f474566c67f24b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:238fe8e20d6fe72c200a9f8c29f474566c67f24b
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
