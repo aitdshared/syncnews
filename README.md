@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Rbppgi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bz6Tvo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.Radio開通》需要時⋯⋯伴隨你的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82cfd3a2c0c417f0786bf102216ea63aa64454de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:82cfd3a2c0c417f0786bf102216ea63aa64454de
 
 下载BT种子 [《石濤聚焦》「美媒：習總耍奸欺騙隨改病情數字栽贓湖北舊官員」應勇‘就義’的湖北確診數字低過省會武漢市世衛總幹事大聲叫好［協手習總騙全球-只因扛不住了必須開工開通口岸」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cf054c3d4bd2340a6c25f570958578ccf31646c.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【环球直击】2月15日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd7e5e8db12c5067339fda81a1700256ee03ad4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8dd7e5e8db12c5067339fda81a1700256ee03ad4
-
-下载BT种子 [《石濤聚焦》「世衛調查小組週末進中國-含2名美國專家」日本淪陷東京失控法國首現死亡全球近7萬亡過1.5千「按英國倫敦帝國學院計算：染病200萬死亡35萬」（1502）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6a93f1613fc7aa9a9ee22434e3693a1c17898d7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e6a93f1613fc7aa9a9ee22434e3693a1c17898d7
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
