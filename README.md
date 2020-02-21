@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FjyomM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/br9EW5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】记者直击：湖北女子监狱的确诊病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74aa07220237c2b6a9d82699d5d1010cac53728b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:74aa07220237c2b6a9d82699d5d1010cac53728b
+
+下载BT种子 [【禁闻】大陆中小银行坏账浮出暴雷加速.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf82c771adb2520ff8726515305ef941abc03f02.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf82c771adb2520ff8726515305ef941abc03f02
+
+下载BT种子 [【禁闻】2月20日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28d184f28be2ee6a035c29852cbef3dabf81225f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28d184f28be2ee6a035c29852cbef3dabf81225f
+
+下载BT种子 [【禁闻】美认定五党媒“外国使团”中共忙报复.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15c88a7c8634eaf44fd6d406107ea4f285db3399.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15c88a7c8634eaf44fd6d406107ea4f285db3399
+
+下载BT种子 [【禁闻】一线医生冒险发文为了出院率撒谎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0ee7b98467b451a292d72f4f78701658d8f8fe3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0ee7b98467b451a292d72f4f78701658d8f8fe3
+
+下载BT种子 [【禁闻】2月20日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89efdfafad018877b0666dc9c8fd61bfc84c9572.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89efdfafad018877b0666dc9c8fd61bfc84c9572
 
 下载BT种子 [武漢肺炎宣傳規劃圖，透露中共多少秘密？「亞洲病夫」辱華？華日3記者被驅逐真相！川普大戰略施壓，美指定5官媒為「外國使團」【新聞看點】（20200220）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24b4145fc0b37993e4d1bcb4f66b7e5f67d6809c.torrent)
 
@@ -580,14 +604,6 @@
 下载BT种子 [華春瑩領銜造反？習近平發威整肅官場？導演和頂尖教授接連死亡，武漢女義士怒吼！（老北京茶館第248集20200216）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187b901d621913d56752c9cee3b50fcb05fbf122.torrent)
 
 磁力链接 magnet:?xt=urn:btih:187b901d621913d56752c9cee3b50fcb05fbf122
-
-下载BT种子 [里斯本地震：一場動搖人類信仰的地震（歷史上的今天20200216重新剪輯發佈）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/965991c99f50414e967b9777a18a2a968beff23b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:965991c99f50414e967b9777a18a2a968beff23b
-
-下载BT种子 [【环球直击】2月16日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d18ac78cfcbfaa443f29eb12bd9ffc2ecce48cbb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d18ac78cfcbfaa443f29eb12bd9ffc2ecce48cbb
 
 下载BT种子 [《石濤.News》「武漢公共汽車社區拉病人」廣電總局稱［習近平-無產階級革命家］詛咒其快死？鐘南山無防護看病人中共侮辱式防疫-瘟疫爆發原因［日本可能被徹底淪陷］.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/597301dd85a10e90d1282b8209ebf967912ac4ea.torrent)
 
