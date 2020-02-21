@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yJMmRR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MBL79f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [被逼做藥物實驗維權者憶精神病院經歷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37ad64953609f6d3969ae06b47fc8d2db691d6eb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:37ad64953609f6d3969ae06b47fc8d2db691d6eb
+
+下载BT种子 [中共屢改確診標準亞洲疫情迅速蔓延.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d251dbefa0f42b62c981ffe2dc163fe85a776a02.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d251dbefa0f42b62c981ffe2dc163fe85a776a02
+
+下载BT种子 [少了英國歐盟新7年預算案缺口750億.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cec1a15e5df4e4f6363c1ed2a90428d18d7487b6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cec1a15e5df4e4f6363c1ed2a90428d18d7487b6
+
+下载BT种子 [新冠肺炎武漢成都「痊癒者」再確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a3f32f10343f468aeaab0c67faa4cb01adeda8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8a3f32f10343f468aeaab0c67faa4cb01adeda8
 
 下载BT种子 [《石濤聚焦》「防暴港警被確診有人開香檳」18日60港警聚餐今日全家3人確診［搞定3警署59人隔離］報應之意很深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac09aaf214c4c678baa16c1228124dc8bf4d55cb.torrent)
 
@@ -588,18 +604,6 @@
 下载BT种子 [習近平最新講話竟然是“甩鍋”宣言，中共威權掃地；科技部生物安全指導意見的弦外音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14c8684ae04f720b626747e27f38845d11e7b486.torrent)
 
 磁力链接 magnet:?xt=urn:btih:14c8684ae04f720b626747e27f38845d11e7b486
-
-下载BT种子 [【环球直击】2月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e119533b22d114529159fd1483ac7bbbb18dbc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e119533b22d114529159fd1483ac7bbbb18dbc6
-
-下载BT种子 [很多人问法轮功如何修炼？谈谈我修炼了二十多年的体悟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5fb6116700e0720911f7e3c5c3ca66b6a79b6d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c5fb6116700e0720911f7e3c5c3ca66b6a79b6d2
-
-下载BT种子 [地震冰雹雷打雪,天已發怒？習近平不打自招病毒來源？武漢6個「一律」習近平受挑戰？醫院「死人堆裏挖活人」,民眾已經絕望【新聞看點李沐陽】（20200215）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5de4d571fb38ddc133cd1f3eea8cec990218f70b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5de4d571fb38ddc133cd1f3eea8cec990218f70b
 
 下载BT种子 [习近平1月7日做了什么防控指示？中共在向北韩学习应对方法？（政论天下第113集20200215）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f42b24de570c1cbc6ca8209995147ae5c3d1629c.torrent)
 
