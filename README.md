@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/prwotJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IaK3mH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】湖北“核減”數據事關經濟大局？2月底“控制”疫情的秘密；有關病毒基因疑點的補充熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9bea725cd6b24f3ac6f5816b7138e4dd237372c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9bea725cd6b24f3ac6f5816b7138e4dd237372c
 
 下载BT种子 [【禁闻】传国产航母“山东号”100人被隔离.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbef4e3fa5e49a6774bcf877a36495755d0fd10e.torrent)
 
@@ -600,14 +604,6 @@
 下载BT种子 [一周经济回顾（2020年2月16日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc5019f474932065a61ddce884fed8fca8f547c2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc5019f474932065a61ddce884fed8fca8f547c2
-
-下载BT种子 [【全球疫情直擊】誤信親共WHO日本疫情失控美軍方深度介入防堵武漢肺炎歐洲現首宗死亡中國運屍影片頻曝光高薪聘請運屍工糞便檢出活病毒疫情或染全球60%人口2月16日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa0d629d67a4707f15e4a26af53630770ad663f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa0d629d67a4707f15e4a26af53630770ad663f4
-
-下载BT种子 [习近平1月7日做了什么防控指示？中共在向北韩学习应对方法？（政论天下第113集20200215）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f42b24de570c1cbc6ca8209995147ae5c3d1629c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f42b24de570c1cbc6ca8209995147ae5c3d1629c
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
