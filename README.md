@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3SNjRh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WK63fr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「防暴港警被確診有人開香檳」18日60港警聚餐今日全家3人確診［搞定3警署59人隔離］報應之意很深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac09aaf214c4c678baa16c1228124dc8bf4d55cb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ac09aaf214c4c678baa16c1228124dc8bf4d55cb
 
 下载BT种子 [《石濤聚焦》「習總自比拯救中共‘唯一男人’」天意捉弄：武漢病毒專門攻擊男人的生殖系統&北大百年紀念雄獅「被閹割」社區隔離防疫中「命根子被完單」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a13bf1bf3e31fa29436a7eb24ecd7692ed24f807.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [习近平1月7日做了什么防控指示？中共在向北韩学习应对方法？（政论天下第113集20200215）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f42b24de570c1cbc6ca8209995147ae5c3d1629c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f42b24de570c1cbc6ca8209995147ae5c3d1629c
-
-下载BT种子 [【禁聞】记者手记：自行隔离难阻家族式感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da5a38e4ca28d221e67d9859aeb411ffe8b14cfe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da5a38e4ca28d221e67d9859aeb411ffe8b14cfe
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
