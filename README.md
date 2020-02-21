@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Hcdvgu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gGV0bT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李克强阵营把话说穿了：都是习近平的错！三次拍板内幕。误党还是误国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0413355f8e3e76386f62501473e2fd2760cc75e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0413355f8e3e76386f62501473e2fd2760cc75e0
 
 下载BT种子 [【全球疫情直擊】武肺治癒者仍帶毒隨時激活恐成流行病找到病逝司機感染源浙台商驗出病毒抗體猶太拉比：聖經預言更多瘟疫將臨中國被完全隔離武漢一天出走2.8萬人韓國開始社區傳播221熱點直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/532c6459ab01d4cf147e6054d6e2f914c4af2d78.torrent)
 
