@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nBeFnp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/prwotJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】传国产航母“山东号”100人被隔离.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbef4e3fa5e49a6774bcf877a36495755d0fd10e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fbef4e3fa5e49a6774bcf877a36495755d0fd10e
 
 下载BT种子 [封城难阻逃生路,平均每天近万人逃离;对患者去库存与数据造假将酿成更严重后果;次生灾祸正在袭来(政论天下第116集20200220)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9172bff13a523349fa5dd98b15df7b83c86d5da8.torrent)
 
@@ -597,17 +601,9 @@
 
 磁力链接 magnet:?xt=urn:btih:fc5019f474932065a61ddce884fed8fca8f547c2
 
-下载BT种子 [【时事小品】拐点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b1abddb76cd1e40fd5b9d7838817dcaa9bc61f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b1abddb76cd1e40fd5b9d7838817dcaa9bc61f7
-
 下载BT种子 [【全球疫情直擊】誤信親共WHO日本疫情失控美軍方深度介入防堵武漢肺炎歐洲現首宗死亡中國運屍影片頻曝光高薪聘請運屍工糞便檢出活病毒疫情或染全球60%人口2月16日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa0d629d67a4707f15e4a26af53630770ad663f4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fa0d629d67a4707f15e4a26af53630770ad663f4
-
-下载BT种子 [習近平最新講話竟然是“甩鍋”宣言，中共威權掃地；科技部生物安全指導意見的弦外音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14c8684ae04f720b626747e27f38845d11e7b486.torrent)
-
-磁力链接 magnet:?xt=urn:btih:14c8684ae04f720b626747e27f38845d11e7b486
 
 下载BT种子 [习近平1月7日做了什么防控指示？中共在向北韩学习应对方法？（政论天下第113集20200215）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f42b24de570c1cbc6ca8209995147ae5c3d1629c.torrent)
 
