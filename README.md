@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MxU0KZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/INpwsW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢肺炎2週5教授亡有大批醫護人員感染重症患者超5成死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d91335bc4be9c8f437805f817485315fc11ba79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8d91335bc4be9c8f437805f817485315fc11ba79
+
+下载BT种子 [韓國新確診100例港警59人聚餐一人確診日本鑽石公主號撤僑包機也不斷傳出確診病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71edc83bc7f22ad26d0cc0a9ebe293d1d54b1dc5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71edc83bc7f22ad26d0cc0a9ebe293d1d54b1dc5
+
+下载BT种子 [鄂魯浙監獄爆出疫情多名官員被免職.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cd87494ac16ca31c5abda369ef8783ff7bdc036.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2cd87494ac16ca31c5abda369ef8783ff7bdc036
+
+下载BT种子 [港警投訴港台諷刺節目被批搔著癢處.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18e281aaf966bf883ce526900d3db6022f500c4d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:18e281aaf966bf883ce526900d3db6022f500c4d
+
+下载BT种子 [找病逝司機感染源浙江台商驗出病毒抗體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/159a84f978c82f8289ad6bdb9b173d35654fa730.torrent)
+
+磁力链接 magnet:?xt=urn:btih:159a84f978c82f8289ad6bdb9b173d35654fa730
+
+下载BT种子 [美國CDC：新冠病毒在韓日等六國社區傳染階段.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdfbc419b1cf25dde85e6038620146b2f85d7100.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fdfbc419b1cf25dde85e6038620146b2f85d7100
 
 下载BT种子 [疫情直撲中南海北京西城區為重災區多家醫院出現聚集感染人心惶惶.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4095799751c2eedb02ece9ab74e987b472b220db.torrent)
 
@@ -585,21 +609,9 @@
 
 磁力链接 magnet:?xt=urn:btih:5da777ed488b95ce76f1dbf6a39b7bd3d6ab73f2
 
-下载BT种子 [湖北除了封閉管理外各市縣又實行24小時最嚴封閉被認為新官上任「第一把火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e847e89c52255c2c82026888baa9e023f644148.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e847e89c52255c2c82026888baa9e023f644148
-
-下载BT种子 [中共高層要求各企業「有序復工」許多城市復工現群聚性感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cded8aaeb123a4be86b8371c1073759d6c7b9bcc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cded8aaeb123a4be86b8371c1073759d6c7b9bcc
-
 下载BT种子 [上海將實施具爭議血漿療法日本專家警告中共當局延誤了應對病毒的最佳時機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52b577597e91d1935a20c0c4d7ddb2c535d947a9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:52b577597e91d1935a20c0c4d7ddb2c535d947a9
-
-下载BT种子 [停靠日本的鑽石公主號新增99確診病例美國開始從郵輪撤僑多國跟進.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03becf52d08e963e6c75702f1d660279514a939c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03becf52d08e963e6c75702f1d660279514a939c
 
 下载BT种子 [日感染人數繼續增長口罩在日本各大商店均已售罄民眾未出現很大恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4000fa59c0f44fd257cb3617f75d1a458216148c.torrent)
 
