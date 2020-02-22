@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lzt9Ik)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NZDoIZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [加州首例新冠病毒感染者康復無需隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e7c5ffde7f16e0ad8750f941b4cf28a8cd3f887.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e7c5ffde7f16e0ad8750f941b4cf28a8cd3f887
+
+下载BT种子 [湖北公布疫情出現「核減」怪現象省委書記應勇喊停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79d3da9430d6bdc037b8d16a918e30738c4c472.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c79d3da9430d6bdc037b8d16a918e30738c4c472
+
+下载BT种子 [韓國遽增229例新冠肺炎確診30個國家和地區確診病例達1643例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/864ae9254a622ca217c6682f4397cd3a8756ce6a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:864ae9254a622ca217c6682f4397cd3a8756ce6a
+
+下载BT种子 [美移民法庭庇護案裁決提速中國人獲批最多.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f637a7ed836317ec8a4f3720d7c82974e7a592fe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f637a7ed836317ec8a4f3720d7c82974e7a592fe
 
 下载BT种子 [武漢中心醫院外科醫生全部治新冠病毒稱感染了休息兩天就能好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00c8a5cc502217aea60fa963a7684e5bc54b74d8.torrent)
 
