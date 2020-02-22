@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dJuKm9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OUSkCF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [世卫约谈社交媒体巨头，“世界维稳组织”？假新闻vs平台，哪个更要警惕（20200221第704期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e3528c89f1ac2b715475b1705a663af858e5c30.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e3528c89f1ac2b715475b1705a663af858e5c30
 
 下载BT种子 [【环球直击】2月21日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82eee2ac9be7766d1cc88c7672dc257960226fdc.torrent)
 
@@ -604,14 +608,6 @@
 下载BT种子 [【禁闻】记者直击：想进方舱的人想出方舱的人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33393d85e3c580ab1383bc1d140e0154edb26ecc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:33393d85e3c580ab1383bc1d140e0154edb26ecc
-
-下载BT种子 [【环球直击】2月17日完整版(2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56413afbabf47be0f0b634d45d6f5fc139e94bdd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:56413afbabf47be0f0b634d45d6f5fc139e94bdd
-
-下载BT种子 [习近平“自卫反击战”穿帮！两会推迟、倾轧升级山雨欲来，何时来？（20200217第701期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f31f76f857fb410eaf21d817729c29f114328bf8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f31f76f857fb410eaf21d817729c29f114328bf8
 
 下载BT种子 [【微视频】武汉肺炎疫情的未来看印度南部.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51c2e9b890d3d0bd86338081701c7501f5dd2992.torrent)
 
