@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HUOxYN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nf5hFn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】2月21日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e596a935677c86c597afe0b7e2d26a79bcf8d497.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e596a935677c86c597afe0b7e2d26a79bcf8d497
+
+下载BT种子 [【禁闻】2月21日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2941f94a59aff043fd24d28673b8ccef47863f30.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2941f94a59aff043fd24d28673b8ccef47863f30
 
 下载BT种子 [【禁闻】数字维稳中国确诊病例手动调整.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54ba6477e63d709448b3d0847431345e97958bd1.torrent)
 
@@ -604,10 +612,6 @@
 下载BT种子 [各地封城還要封多久？地方官員不願復工的「納什均衡」考量；「文革基因」更添人道災難Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b707452125664f9352a41f83994d57d49b65e1c4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b707452125664f9352a41f83994d57d49b65e1c4
-
-下载BT种子 [【中国禁闻】2月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e86d2e36b0f888cc30c9ea3e23679807eb59e91.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e86d2e36b0f888cc30c9ea3e23679807eb59e91
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
