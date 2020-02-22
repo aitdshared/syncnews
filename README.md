@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lN1fwI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aKreHp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】2月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc04067d5325766ea128e2f982a29b078fd4ace9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc04067d5325766ea128e2f982a29b078fd4ace9
 
 下载BT种子 [美國罕見指定中共官媒為“外國使團”！黨媒如何在海外執行特殊任務？華爾街日報詆毀了誰的“抗疫努力”？謝田楊建利熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd4704f8ff367bf3d738e81fccf39daba939f567.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【解讀】中南海宮廷內鬥火熱化？方艙醫院穿牆逃命；疫情失控？中共為何推遲「兩會」？實名舉報病毒外洩；世衛考察中國，為何不去湖北與武漢？(2020.02.18)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d4cc43152fa1f8df0beef9d02f3f8b744a66aff.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6d4cc43152fa1f8df0beef9d02f3f8b744a66aff
-
-下载BT种子 [【全球新闻】2月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/947a9b9e31b03bfef4f4f62f3008c5414bbb7172.torrent)
-
-磁力链接 magnet:?xt=urn:btih:947a9b9e31b03bfef4f4f62f3008c5414bbb7172
 
 下载BT种子 [各地封城還要封多久？地方官員不願復工的「納什均衡」考量；「文革基因」更添人道災難Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b707452125664f9352a41f83994d57d49b65e1c4.torrent)
 
