@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mygx5C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O95Qc3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [維權人士萬里大逃亡翻越喜馬拉雅在非洲又落入中共中途逃離抵達美國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3feecf22e4c925f63a3be23c7402b34c342c7ce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d3feecf22e4c925f63a3be23c7402b34c342c7ce
 
 下载BT种子 [川普科羅拉多演說：社會主義行不通.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9a189cda43d9cb7c0c2b4f50aa1cbe9e932b3c1.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [破紀錄蝗災飛襲亞洲中國或面臨雙重蟲害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80f8aae990f121002a44919d43c7cd79c9adf9c0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:80f8aae990f121002a44919d43c7cd79c9adf9c0
-
-下载BT种子 [美國「總統日」川普發令啟動戴通納500川普坐騎開上賽道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3a50992f6213141a483fdbcf342226ac7534c18.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3a50992f6213141a483fdbcf342226ac7534c18
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
