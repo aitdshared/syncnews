@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nf5hFn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WysdO9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共首腦機關告急，北京升級至武漢級別；中國疾控中心挑戰習近平，上海黨媒、環球時報幫腔；俄羅斯“反華”不認“一個中國”，為何中共依然歡心！（江峰漫談20200221第123期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12fcfac254a2621505bbf2f54a159cd47d4b0b06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:12fcfac254a2621505bbf2f54a159cd47d4b0b06
+
+下载BT种子 [【中国禁闻】2月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/309d13a2f6ead9b2bec8df98a3948cbb53f9c99c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:309d13a2f6ead9b2bec8df98a3948cbb53f9c99c
 
 下载BT种子 [【禁闻】2月21日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e596a935677c86c597afe0b7e2d26a79bcf8d497.torrent)
 
@@ -604,10 +612,6 @@
 下载BT种子 [蝗蟲逼近，中共專家再次可防可控；糧食安全危機在謊言中加劇（江峰漫谈20200217第120期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d28bad15f54f707356d21e57cebd4186f56fdeaf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d28bad15f54f707356d21e57cebd4186f56fdeaf
-
-下载BT种子 [【禁闻】2月17日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ac4f7680d27d5be86056838bbbe22d2545b2454.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1ac4f7680d27d5be86056838bbbe22d2545b2454
 
 下载BT种子 [各地封城還要封多久？地方官員不願復工的「納什均衡」考量；「文革基因」更添人道災難Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b707452125664f9352a41f83994d57d49b65e1c4.torrent)
 
