@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r7lvbN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ILgbxM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京情势严峻,习近平承认拐点未到;粮荒才是大问题;实锤数据真实显示出民间对中共的信任度;美国已在做社区传播准备(政论天下第117集20200222)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0aaaf8d16a0aea122bf33a362d63ece12bffce41.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0aaaf8d16a0aea122bf33a362d63ece12bffce41
 
 下载BT种子 [【环球直击】2月22日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9e5e9ceb81161b4bdd03c2e1213dd9a53d2f5c7.torrent)
 
