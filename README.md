@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DfMmTC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1aPx56)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【Jason快評】人類完全杜絕新冠病毒已不可能！三心二意的防疫+三心二意的復工是什麼後果？全球傳播開始加速熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcee0bb0635a8a5abdc80046c1549ce9f728cee0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dcee0bb0635a8a5abdc80046c1549ce9f728cee0
 
 下载BT种子 [8天沒有活人出院，只有死人！武漢社福院12染病11亡？警察死賠20萬，醫護死賠5千。11月病毒已經人際傳播，中共專家為何都「誤判」疫情拐點？一文看懂疫情三大謎團【新聞看點】（20200222）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ec9c8c4d4edd224de0862d0ab48220010779bf0.torrent)
 
