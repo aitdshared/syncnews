@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1aPx56)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gT0ocj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢是全軍後勤保障中心，為何嚴重物資匱乏？美國國會聽證會探討中共後勤保障的真實實力；習近平主持不露臉政治局會議，罕見不提“核心意識，看齊意識”（江峰漫談20200222第124期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e97d9b08bd903f63e37888eaef936ec95c964692.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e97d9b08bd903f63e37888eaef936ec95c964692
 
 下载BT种子 [【Jason快評】人類完全杜絕新冠病毒已不可能！三心二意的防疫+三心二意的復工是什麼後果？全球傳播開始加速熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcee0bb0635a8a5abdc80046c1549ce9f728cee0.torrent)
 
