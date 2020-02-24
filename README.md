@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Lh4gMh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QnIOLC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -620,34 +620,6 @@
 下载BT种子 [江城破迷：中共的三怕三忽悠活下來的人記住1月10日這個重要的日子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/752649cd8f9ab324caed90f6e3c3f4204ff2f968.torrent)
 
 磁力链接 magnet:?xt=urn:btih:752649cd8f9ab324caed90f6e3c3f4204ff2f968
-
-下载BT种子 [《濤哥侃封神》「封神演義第二十六回妲己設計害比干」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/541ab706795b904fd7b7acbdbd20778de641ddf8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:541ab706795b904fd7b7acbdbd20778de641ddf8
-
-下载BT种子 [【中国禁闻】2月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09abe10e55d4ef4eb9520db21b7e39fc5480852a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09abe10e55d4ef4eb9520db21b7e39fc5480852a
-
-下载BT种子 [【禁闻】坐实中共隐瞒真相世卫专家不去湖北.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98a9eb766e8a725a0c460f146eac35cfc0f88230.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98a9eb766e8a725a0c460f146eac35cfc0f88230
-
-下载BT种子 [【禁闻】2月18日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72984f269942d351d700b2cdc08dc795f16b2a54.torrent)
-
-磁力链接 magnet:?xt=urn:btih:72984f269942d351d700b2cdc08dc795f16b2a54
-
-下载BT种子 [【禁闻】南宁网民团购口罩收到武汉救援物资.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6d0f5018f4294c7136769d4d60a730c05e3d171.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e6d0f5018f4294c7136769d4d60a730c05e3d171
-
-下载BT种子 [【禁闻】记者直击：新冠肺炎让基础病患者雪上加霜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acf364351e41a2ee1e75d5e75f3cb478a68c4736.torrent)
-
-磁力链接 magnet:?xt=urn:btih:acf364351e41a2ee1e75d5e75f3cb478a68c4736
-
-下载BT种子 [【禁闻】官员嫌弃病床不愿住百姓无床相继死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8563bf897807813f7d8267985cc4ca20e8040751.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8563bf897807813f7d8267985cc4ca20e8040751
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
