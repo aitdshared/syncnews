@@ -2,8 +2,8 @@
 
 ## 【最最推荐❗️】WebTorrent播放软件自动更新视频边下边看（全自动下载视频）
 
-* Windows版免翻墙下载地址 https://is.gd/wtwinse 下载后双击执行WebTorrentSE.exe
-* Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacsetup 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹
+* Windows版免翻墙下载地址 https://is.gd/wtwinsecf 下载后双击执行WebTorrentSE.exe
+* Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹
 
 如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新，无需翻墙。
 
@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uQFKMG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wwq4OX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韩国瘟疫大爆发，聊聊我在韩国的真实感受.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0299d3a0f90ac563c38680d7f63905622bcc823d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0299d3a0f90ac563c38680d7f63905622bcc823d
 
 下载BT种子 [【中国禁闻】2月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a65442c846a1dbff5129603dfc9a9fc55196a57f.torrent)
 
@@ -644,102 +648,6 @@
 下载BT种子 [【禁闻】官员嫌弃病床不愿住百姓无床相继死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8563bf897807813f7d8267985cc4ca20e8040751.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8563bf897807813f7d8267985cc4ca20e8040751
-
-下载BT种子 [中共逐日調降疫情數字近20台移動式焚屍爐被調往武漢俄囯禁止中國人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04e04a3fb55fe50dc7491452c5ef95de32d2cc6d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:04e04a3fb55fe50dc7491452c5ef95de32d2cc6d
-
-下载BT种子 [美國擬修法規切斷華為芯片供應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6d27a4fd8a3baa70c3e954b693b9a62878ff71c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d6d27a4fd8a3baa70c3e954b693b9a62878ff71c
-
-下载BT种子 [两会推迟与强制复工,习近平的豪赌;三月初是一个重要的观察点(政论天下第115集20200218)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d046241a7781e7d010dc35e61a21ab7ad57dadbb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d046241a7781e7d010dc35e61a21ab7ad57dadbb
-
-下载BT种子 [口罩難買警權氾濫粗暴抓捕「無罩者」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7b3cb586d9577cb67554260ea99901530a8484f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7b3cb586d9577cb67554260ea99901530a8484f
-
-下载BT种子 [世衛專家考查疫情中共刻意跳過了重災區湖北.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3d2c69ada52ef5b53cf95fe406a7de177299609.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c3d2c69ada52ef5b53cf95fe406a7de177299609
-
-下载BT种子 [美政府：五家媒體為中共政府駐外實體將正式被視為「外國政府工作人員」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38984be270cf614e550f496dfee9d46cb7db7077.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38984be270cf614e550f496dfee9d46cb7db7077
-
-下载BT种子 [孝感造反！40台移動火化爐驚現武漢！黨抗疫新招：軟禁許章潤！武漢女實錘：這是社會主義肺炎！（老北京茶館第250集20200218）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c190fffd959bd5da80bf2fbf7fce507eba9decd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c190fffd959bd5da80bf2fbf7fce507eba9decd
-
-下载BT种子 [【禁闻】抵制华为美议长：中共破坏普世价值.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5016056f7185ad11af6decabb21e10ecdb2b65d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e5016056f7185ad11af6decabb21e10ecdb2b65d
-
-下载BT种子 [【环球直击】2月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d42b21325649a7ca9fc79e139a5b1fb96b0be5b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d42b21325649a7ca9fc79e139a5b1fb96b0be5b6
-
-下载BT种子 [华春莹推特赞“倒习”！乌龙之外有什么、与大外宣的“段位”（20200218第702期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e8170b142e74ab2d195c2f2a675a58dddb66947.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e8170b142e74ab2d195c2f2a675a58dddb66947
-
-下载BT种子 [《石濤聚焦》「日相安倍晉三遭遇二手病毒全日本譁然」習近平執意4月訪日並簽署「第五份政治聲明」-顯然針對台灣地位天意逼日本推遲此行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe8b07907255d1991dab85dba778c949fa5882f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fe8b07907255d1991dab85dba778c949fa5882f7
-
-下载BT种子 [【武漢市民聲音】晏惠忠：我是吃年飯被感染被隔離酒店一直在咳著急啊救命啊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d20de79bc70e5641859d413cd12a28e2718ef4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9d20de79bc70e5641859d413cd12a28e2718ef4
-
-下载BT种子 [《石濤.News》「劉伯溫斷言：武漢病毒-非典2.0對共黨三觀者之天地報應」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcdda3f93788c0583bbc8c0b964568bd4c708dce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bcdda3f93788c0583bbc8c0b964568bd4c708dce
-
-下载BT种子 [美國正在考慮阻止中共獲得關鍵技術佩洛西：5G用華為如同引入中共警察.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0625005703ad63b8b38a96acee5b1aac90f92ac8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0625005703ad63b8b38a96acee5b1aac90f92ac8
-
-下载BT种子 [中國疾制中心報告：有三千多名醫務人員感染新冠病毒醫生透露真實數據被下封口令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc001a2d5dfdb3d002dc5d8b8bc7477ca2f99b5f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bc001a2d5dfdb3d002dc5d8b8bc7477ca2f99b5f
-
-下载BT种子 [武昌醫院長也被「政治搶救」陸醫護處境危許多武漢醫護人員向外界求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8ed3021ef339f12d6265497fbde69590b3f4695.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d8ed3021ef339f12d6265497fbde69590b3f4695
-
-下载BT种子 [洛杉磯民眾紀念李文亮醫生呼籲中共開放言論自由期望中國百姓儘快覺醒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/110d22c2a2ac24b269b2b1b40f06b4361f4c0486.torrent)
-
-磁力链接 magnet:?xt=urn:btih:110d22c2a2ac24b269b2b1b40f06b4361f4c0486
-
-下载BT种子 [美國從日本鑽石公主號郵輪撤離300多名美僑民北加接收177名當中7人染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5756c43e296ca210e15aa63a3c6139f7ede2b9d3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5756c43e296ca210e15aa63a3c6139f7ede2b9d3
-
-下载BT种子 [鑽石公主號再增88例確診各國包機撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0bf9d1200c4fed22c99fbcafd29566612178fbc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0bf9d1200c4fed22c99fbcafd29566612178fbc
-
-下载BT种子 [因拍攝疫情視頻的重慶人被10多名警察帶走網友無畏打壓怒斥中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a5555fdde3768f3a5ce4abccb28e1970db0ea4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:91a5555fdde3768f3a5ce4abccb28e1970db0ea4
-
-下载BT种子 [【环球直击】2月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b00afc0737a8a4c09d3280aa684e6693ebf9e06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b00afc0737a8a4c09d3280aa684e6693ebf9e06
-
-下载BT种子 [两会推迟有玄机。某政治老人语录热传！众高官技巧甩锅。习王一夜复辟文革梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c05c58c5dc86df5ca8ea7afc4bade73b2447c1b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c05c58c5dc86df5ca8ea7afc4bade73b2447c1b
-
-下载BT种子 [两会推迟有玄机，某政治老人语录热传！习王实现中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92d5f42e1b2b690e04814b080aa71869b4ecdb61.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92d5f42e1b2b690e04814b080aa71869b4ecdb61
-
-下载BT种子 [【武漢肺炎解讀】中南海宮廷內鬥火熱化？致命病毒外洩所長隱匿，疫情失控？中共為何推遲「兩會」？實名舉報病毒外洩；世衛考察中國，為何不去湖北與武漢？(2020.02.18)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4fed494f0297572cc94f0587151cebccc8bb58b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4fed494f0297572cc94f0587151cebccc8bb58b
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
