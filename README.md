@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uxe8EC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/truM2e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】“暖新闻”吞噬真相中共加强舆论维稳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47b4d4fd992839caf74d3b5e3f41b1a3cd3ee6af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:47b4d4fd992839caf74d3b5e3f41b1a3cd3ee6af
+
+下载BT种子 [【禁闻】监狱疫情爆发被隔离警察需签保密承诺书.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/467f268e2b685b52cbf69e04e9b2785718a99a72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:467f268e2b685b52cbf69e04e9b2785718a99a72
 
 下载BT种子 [【禁闻】外媒调查：新冠病毒的神秘来源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45413a5d0c808c9a8ed6387060c07d24ea6e9763.torrent)
 
