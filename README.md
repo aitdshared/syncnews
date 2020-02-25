@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8DXk8C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ImJU1c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [抗疫還是復工？習近平露面電視會議最想告訴大家的實際是這句話；意大利、伊朗韓國淪陷，海外下一個城市是哪？（江峰漫談20200225第125期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a1b8f2ae18152aba6be60e1ad8e8625ce9077f5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a1b8f2ae18152aba6be60e1ad8e8625ce9077f5
 
 下载BT种子 [【中国禁闻】2月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d101e26ff7c31896945b8b0452d3a17b704f0429.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第二十六回妲己設計害比干」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2612247549d0250ce8019e2151f1241a64ddabcd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2612247549d0250ce8019e2151f1241a64ddabcd
-
-下载BT种子 [【禁闻】疾控中心论文证实：中共疫情数据造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a5791e7dc64f3d9c3b6290a61141b61f4aaad72.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a5791e7dc64f3d9c3b6290a61141b61f4aaad72
 
 下载BT种子 [【禁闻】中共防疫：封闭管理监测舆论移动焚尸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6af8075b5b341fda7e6faf286e80e0f4e2610c7c.torrent)
 
