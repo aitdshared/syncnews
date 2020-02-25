@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/niKYgS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n1HK4v)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f017ac34a2231aaa12d52f2f91bb72c62f32d298.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f017ac34a2231aaa12d52f2f91bb72c62f32d298
 
 下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b9f5f05b1ac13563ca02549017acd699afdaa8f.torrent)
 
@@ -600,30 +604,6 @@
 下载BT种子 [「垃圾焚燒方艙」進武漢死亡人數再次成為焦點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb5793dbaa791f78c9c13501bf40970977b3b079.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eb5793dbaa791f78c9c13501bf40970977b3b079
-
-下载BT种子 [川普：不涉國家安全美產品可自由流通.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7315ab0b47ade500124b5cd2dfd4f1cfef80678a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7315ab0b47ade500124b5cd2dfd4f1cfef80678a
-
-下载BT种子 [美定性5家中共媒體是中共國家宣傳機構分支北京驅逐三名美記者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df89073f1474e4daf495c71095d08e563f04dc5b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df89073f1474e4daf495c71095d08e563f04dc5b
-
-下载BT种子 [【解讀】疫情失控人民爭相翻牆罵中共；武漢醫生揭隱匿病毒「人傳人」；中共假新聞宣傳變笑話(2020.02.19)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa9fa84826e628c6508389126ffab7d6cab51257.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aa9fa84826e628c6508389126ffab7d6cab51257
-
-下载BT种子 [【全球疫情直擊】細思極恐武漢引進40台移動焚化爐隱瞞什麼世衛考查中共阻撓跳過湖北下封口令醫護感染數巨大台美聯手開發武肺疫苗紐約出租司機怕武肺拒載華人2月19日熱點直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3aeffd93e3ae77c64831b787c919c2955f646819.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3aeffd93e3ae77c64831b787c919c2955f646819
-
-下载BT种子 [🉐️紅會千萬口罩送出不到10%，都去哪了？歐洲人或不易感染新病毒；殯儀館招聘條件「不怕鬼」；病毒死者解剖新發現；武漢方艙醫院再建10個；勇士方斌詩歌欣賞新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc9521c5b54a47670b6d320b4c2acb01d024d3b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc9521c5b54a47670b6d320b4c2acb01d024d3b8
-
-下载BT种子 [江城破迷：中共的三怕三忽悠活下來的人記住1月10日這個重要的日子（江峰漫談20200219第121期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52c7c261cd66e02b68ab1cc8caf8d71bb1a1fe6f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:52c7c261cd66e02b68ab1cc8caf8d71bb1a1fe6f
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
