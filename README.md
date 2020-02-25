@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SOSbjx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ck3PB9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -612,10 +612,6 @@
 下载BT种子 [【全球新闻】2月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0089e46b72573c0436687e8e6fad3f500584389.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0089e46b72573c0436687e8e6fad3f500584389
-
-下载BT种子 [兩個版本的中國“好故事”：糧食夠半年吃的、糧食夠一年吃的；川普拎出中共駐美五大官媒：別在這兒講故事了！（江峰漫談20200219第122期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22f6033ec11579ba7e83849dfe893cb75c347fe4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:22f6033ec11579ba7e83849dfe893cb75c347fe4
 
 下载BT种子 [【禁闻】2月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3776bae56de2d9838ca081231027a889e50c88c3.torrent)
 
