@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cknYid)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SfkJJI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [道琼斯指数暴跌千点，习近平在17万人大会上说了什么？（政论天下第119集20200224）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b2b5ee42a29987faad9a9116d63674b49547123.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b2b5ee42a29987faad9a9116d63674b49547123
 
 下载BT种子 [《石濤聚焦》「香港與台灣相對韓國日本義大利被感染與死亡低很多？」台灣最新民調：83%民族認同感84%滿意政府抗擊疫情的努力國民黨一敗塗地（2402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f499acf411e2cf1502d6ccc20837ce55d7eaa0d.torrent)
 
@@ -589,10 +593,6 @@
 
 磁力链接 magnet:?xt=urn:btih:ef67fff1b0bdaeb6185412644be62b43bc315ea0
 
-下载BT种子 [美國半導體業﹕應對華為需多邊聯手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e301f936da02439e59e22ddb9e6020ea4040e8d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e301f936da02439e59e22ddb9e6020ea4040e8d
-
 下载BT种子 [武漢强推極端防疫現瘟疫和飢餓雙重危機伊朗香港添死亡病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f8a538a0b806727f9eb4aba1222147317bf8c16.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8f8a538a0b806727f9eb4aba1222147317bf8c16
@@ -604,14 +604,6 @@
 下载BT种子 [《石濤聚焦》「向習總甩鍋後的武漢市長周先旺高調露面」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbfc2ce7f1be119530bf28a885c776162a63c6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bfbfc2ce7f1be119530bf28a885c776162a63c6b
-
-下载BT种子 [《石濤.News》「聖經舊約：神許諾“我將宣洩我的憤怒在中國（Sin）上”」以色列著名拉比平托安息日看到此災難「人類歷史最慘之一很多人餓死共軍無倖免」西城官員感染蔡奇震怒習總懼怕而封城北京」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78cc10a839c5c07e1ae5e39d36c2653133aace99.torrent)
-
-磁力链接 magnet:?xt=urn:btih:78cc10a839c5c07e1ae5e39d36c2653133aace99
-
-下载BT种子 [《石濤.News》「聖經舊約：我的」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d47f417689ef3c738c75260740ef4e3a991576d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2d47f417689ef3c738c75260740ef4e3a991576d
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
