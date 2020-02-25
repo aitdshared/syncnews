@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cfNPBy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OJ71U7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f1f832a06caac245d7f50ae1c81721e4169836.torrent)
+
+磁力链接 magnet:?xt=urn:btih:04f1f832a06caac245d7f50ae1c81721e4169836
+
+下载BT种子 [義大利超200人感染7人死亡已有十多座城鎮被封被擔憂成為歐洲「武漢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa2a7b14946b51af593207179e9f50e20634604.torrent)
+
+磁力链接 magnet:?xt=urn:btih:daa2a7b14946b51af593207179e9f50e20634604
+
+下载BT种子 [公共負擔新法生效首日移民綠卡申請須知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec28d3b8fc8c6bd81c10ed954aff1b0f0057cd73.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec28d3b8fc8c6bd81c10ed954aff1b0f0057cd73
+
+下载BT种子 [全球疫情呈現加速蔓延多國告急世衛：準備應對大流行的時刻已到.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ed1068a98c4af9d1503decd94996d052c8a5a34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ed1068a98c4af9d1503decd94996d052c8a5a34
 
 下载BT种子 [疫情嚴峻中共35年來首次推遲兩會被指制定「緊急運作」計畫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4bf52277a3925e40a4e5379a1d1d7bdf07f0eca.torrent)
 
@@ -588,18 +604,6 @@
 下载BT种子 [《石濤聚焦》「向習總甩鍋後的武漢市長周先旺高調露面」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbfc2ce7f1be119530bf28a885c776162a63c6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bfbfc2ce7f1be119530bf28a885c776162a63c6b
-
-下载BT种子 [【环球直击】2月19日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c199f86acdb5ea13618594be5957f8db9110bc47.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c199f86acdb5ea13618594be5957f8db9110bc47
-
-下载BT种子 [4000亿蝗虫突然没了？美国突然把党媒定为外国使团，为何此时出手（20200219第703期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b84df032601582073233ea738f034dc9c675ac3d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b84df032601582073233ea738f034dc9c675ac3d
-
-下载BT种子 [【微视频】印度肺炎疫情更新中共三大决策错误.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99969d2d3907f1228158026b17dbb353e4219ffd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99969d2d3907f1228158026b17dbb353e4219ffd
 
 下载BT种子 [《石濤.News》「聖經舊約：神許諾“我將宣洩我的憤怒在中國（Sin）上”」以色列著名拉比平托安息日看到此災難「人類歷史最慘之一很多人餓死共軍無倖免」西城官員感染蔡奇震怒習總懼怕而封城北京」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78cc10a839c5c07e1ae5e39d36c2653133aace99.torrent)
 
