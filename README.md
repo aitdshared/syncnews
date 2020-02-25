@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OJ71U7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cknYid)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「香港與台灣相對韓國日本義大利被感染與死亡低很多？」台灣最新民調：83%民族認同感84%滿意政府抗擊疫情的努力國民黨一敗塗地（2402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f499acf411e2cf1502d6ccc20837ce55d7eaa0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3f499acf411e2cf1502d6ccc20837ce55d7eaa0d
 
 下载BT种子 [《石濤》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f1f832a06caac245d7f50ae1c81721e4169836.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [日郵輪感染風險高美CDC將對日本鑽石公主號郵輪實施旅遊限制令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef67fff1b0bdaeb6185412644be62b43bc315ea0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ef67fff1b0bdaeb6185412644be62b43bc315ea0
-
-下载BT种子 [武漢封城內幕，三方甩鍋，北京不利！川普為習說好話？20天嬰兒說話？沒戴口罩被打死！婦產科關門急壞產婦，蔡奇居家隔離？海軍艦長被隔離！俄禁中國公民入境【新聞看點】（20200219）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/649f0c7d0ec1297ff9e795dc8852d3716993ba0e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:649f0c7d0ec1297ff9e795dc8852d3716993ba0e
 
 下载BT种子 [美國半導體業﹕應對華為需多邊聯手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e301f936da02439e59e22ddb9e6020ea4040e8d.torrent)
 
