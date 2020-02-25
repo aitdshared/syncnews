@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LUwk5J)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2W0Z52)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】罕见吁“让人讲真话”党媒文章也遭封杀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b184c09f9a0e08ddf7a6c7d4499ae76154c314a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b184c09f9a0e08ddf7a6c7d4499ae76154c314a
+
+下载BT种子 [《石濤聚焦》「中共國醫生在‘柳葉刀’論文：重症者死亡率60%」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08b51cecdb79cfdb65d3fb9baae1e2da716c3adb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:08b51cecdb79cfdb65d3fb9baae1e2da716c3adb
+
+下载BT种子 [【微视频】中共高官别吸血血浆治不了武汉肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d8e36f8222eb2a886ce3d7f0c511dc26e0c0a4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39d8e36f8222eb2a886ce3d7f0c511dc26e0c0a4
+
+下载BT种子 [【禁闻】肺炎疫情持续会否导致中国恶性通胀？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b8129730221dd12061cf41da94857dcb6783d9e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1b8129730221dd12061cf41da94857dcb6783d9e
 
 下载BT种子 [【禁闻】疫情冲击全球供应链外企加速撤离中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69ba93d7b33ccc80dad23972e6db7e636eeb3895.torrent)
 
@@ -588,22 +604,6 @@
 下载BT种子 [《石濤.News》「聖經舊約：我的」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d47f417689ef3c738c75260740ef4e3a991576d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2d47f417689ef3c738c75260740ef4e3a991576d
-
-下载BT种子 [【武漢市民聲音】邵桂萍：方艙裡只有護士沒有醫生和針藥武漢老舊社區根本沒有防護措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9fdb3fef8e500bb8cffb4fdac3b1af719c34e14.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e9fdb3fef8e500bb8cffb4fdac3b1af719c34e14
-
-下载BT种子 [香港新增一例死亡韓國突增20例確診鑽石公主號郵輪首批500人下船.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22abc7e80ae9d1d90f0183bab40b741912ecf0f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:22abc7e80ae9d1d90f0183bab40b741912ecf0f2
-
-下载BT种子 [關注新冠病毒源頭英媒：零號病人沒有去過華南市場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/763a1db7a5a9c4fece4bf61047e0ce26306427a9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:763a1db7a5a9c4fece4bf61047e0ce26306427a9
-
-下载BT种子 [口罩等防護物資奇缺廣西南寧網友訂購四千只口罩竟是武漢救援物資.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4ef53b6e29c3b0be2607911215ad05c8438e769.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4ef53b6e29c3b0be2607911215ad05c8438e769
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
