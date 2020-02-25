@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mcGke2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SOSbjx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發即時：WHO首席專家-全世界都要學中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a6bd703f82f689b79fd84920af085fe65eab385.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a6bd703f82f689b79fd84920af085fe65eab385
+
+下载BT种子 [新冠肺炎使很多老人未確診而亡武漢江岸區一養老院又傳出120多位老人被感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c98d382115bd0e96f363ceb5bb6a9c12c7b081c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c98d382115bd0e96f363ceb5bb6a9c12c7b081c7
+
+下载BT种子 [病毒傳播韓國累計確診977例意大利確診超過260例伊朗16人病亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/263b7920bafb505dea42dbe77bcfcbad23ea32e5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:263b7920bafb505dea42dbe77bcfcbad23ea32e5
+
+下载BT种子 [美國投資專家﹕中國新冠肺炎持續債臺高筑的中共金融系統將面臨重大危機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/545c567ee67e8fdbb55f42842f7d3016aff865df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:545c567ee67e8fdbb55f42842f7d3016aff865df
+
+下载BT种子 [川普莫迪舉行雙邊會議在貿易軍備及5G網絡方面敲定三份文件.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f794625d758927c7ff0a46cabb298ec82141fbe9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f794625d758927c7ff0a46cabb298ec82141fbe9
 
 下载BT种子 [韓國疫情惡化議員質疑中共數據不實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7fd7b6608e6eb3ee01e4074d55330065aa2b03c.torrent)
 
@@ -592,14 +612,6 @@
 下载BT种子 [【全球新闻】2月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0089e46b72573c0436687e8e6fad3f500584389.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0089e46b72573c0436687e8e6fad3f500584389
-
-下载BT种子 [🚨一線醫生目睹患者離世：像被水淹！醫院至少兩種有益藥物，一種希望療法；康復標準是什麼？武漢現移動方艙焚燒爐；央行印6千億鈔票；當局急返工，不怕助攻瘟疫？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81335401ef3c252b94feb4340c6d26d29416737e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:81335401ef3c252b94feb4340c6d26d29416737e
-
-下载BT种子 [圍繞零號病人疑點重重；首名病患為何被外媒披露？一篇調查報告詳細梳理病毒來源的兩條主線；下一步某實驗室或被拋出？橫河唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ded1ca183455c7923aacd12be4810cb3f2897a3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8ded1ca183455c7923aacd12be4810cb3f2897a3
 
 下载BT种子 [兩個版本的中國“好故事”：糧食夠半年吃的、糧食夠一年吃的；川普拎出中共駐美五大官媒：別在這兒講故事了！（江峰漫談20200219第122期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22f6033ec11579ba7e83849dfe893cb75c347fe4.torrent)
 
