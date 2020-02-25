@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T62FBf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8DXk8C)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】2月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d101e26ff7c31896945b8b0452d3a17b704f0429.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d101e26ff7c31896945b8b0452d3a17b704f0429
+
+下载BT种子 [【禁闻】湖北公安千人感染各地警力驰援武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e89a881a5451dc300c3471656a7d78c910b7c75a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e89a881a5451dc300c3471656a7d78c910b7c75a
+
+下载BT种子 [6省防疫降級，多地人潮洶湧，地方被中央數據忽悠？武漢朝令夕改，背後有何玄機？Jason橫河熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19a580e6eb8343dfa0c72ce71bcde4154ac0de46.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19a580e6eb8343dfa0c72ce71bcde4154ac0de46
 
 下载BT种子 [【禁闻】武汉病患亲眼所见：医院将活人装尸袋送火化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3034df957434a08a63f1e7f4c9306018f775b4c2.torrent)
 
@@ -581,10 +593,6 @@
 
 磁力链接 magnet:?xt=urn:btih:2612247549d0250ce8019e2151f1241a64ddabcd
 
-下载BT种子 [【禁闻】专家警告：“血浆疗法”恐存在巨大风险.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41737eb34b1d9226841a820a0416231683bd4d2b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:41737eb34b1d9226841a820a0416231683bd4d2b
-
 下载BT种子 [【禁闻】疾控中心论文证实：中共疫情数据造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a5791e7dc64f3d9c3b6290a61141b61f4aaad72.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9a5791e7dc64f3d9c3b6290a61141b61f4aaad72
@@ -596,10 +604,6 @@
 下载BT种子 [日郵輪感染風險高美CDC將對日本鑽石公主號郵輪實施旅遊限制令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef67fff1b0bdaeb6185412644be62b43bc315ea0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ef67fff1b0bdaeb6185412644be62b43bc315ea0
-
-下载BT种子 [武漢强推極端防疫現瘟疫和飢餓雙重危機伊朗香港添死亡病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f8a538a0b806727f9eb4aba1222147317bf8c16.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f8a538a0b806727f9eb4aba1222147317bf8c16
 
 下载BT种子 [【禁闻】记者直击：CT确诊了患者仍在等待.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c376014b3d80b590dd3ad4e9ced0c11ca5c0331.torrent)
 
