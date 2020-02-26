@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cD4sMv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uedTxn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】2月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca32be7544d98af3f3219cd49938eca13cdac91.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ca32be7544d98af3f3219cd49938eca13cdac91
 
 下载BT种子 [《濤哥侃封神》「封神演義第二十七回太師回兵陳十策」聞太師神目如電卻無可奈何狐狸精朝代更替如過眼雲煙唯個體者生命獨尊至珍「商朝亡乃天意力保者必遭天譴」同理—保中共者-形神全滅皆為定數（中集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fab4bd7701610c3a9e797bc41166e47db4f6a3b.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「防暴港警被確診有人開香檳」18日60港警聚餐今日全家3人確診［搞定3警署59人隔離］報應之意很深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac09aaf214c4c678baa16c1228124dc8bf4d55cb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ac09aaf214c4c678baa16c1228124dc8bf4d55cb
-
-下载BT种子 [《石濤聚焦》「習總自比拯救中共‘唯一男人’」天意捉弄：武漢病毒專門攻擊男人的生殖系統&北大百年紀念雄獅「被閹割」社區隔離防疫中「命根子被完單」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a13bf1bf3e31fa29436a7eb24ecd7692ed24f807.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a13bf1bf3e31fa29436a7eb24ecd7692ed24f807
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
