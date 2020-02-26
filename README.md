@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zwkymy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3IzdE0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】習近平17萬人大會僅為面子？王岐山模式連累李克強；官方為石正麗洗地出口轉內銷熱點互動02252020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30985d7d3f4370c528bbbf3299a79fc193d81df6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:30985d7d3f4370c528bbbf3299a79fc193d81df6
+
+下载BT种子 [【禁闻】应对中共打压美考虑驱逐数百中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2283670ae952720a9797e6abf8bb135dd9efe7a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b2283670ae952720a9797e6abf8bb135dd9efe7a
 
 下载BT种子 [朱文祥：臺灣研究機構成功合成改善肺炎症狀藥物籲僑民挺臺入世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d54fddde4380c2222eff7f0fa8316191d5338a6b.torrent)
 
@@ -608,22 +616,6 @@
 下载BT种子 [《石濤.Radio開通》需要時⋯⋯伴隨你的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82cfd3a2c0c417f0786bf102216ea63aa64454de.torrent)
 
 磁力链接 magnet:?xt=urn:btih:82cfd3a2c0c417f0786bf102216ea63aa64454de
-
-下载BT种子 [《石濤聚焦》「美媒：習總耍奸欺騙隨改病情數字栽贓湖北舊官員」應勇‘就義’的湖北確診數字低過省會武漢市世衛總幹事大聲叫好［協手習總騙全球-只因扛不住了必須開工開通口岸」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cf054c3d4bd2340a6c25f570958578ccf31646c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4cf054c3d4bd2340a6c25f570958578ccf31646c
-
-下载BT种子 [美國海軍陸戰隊軍樂隊隔柵欄表演安撫武漢肺炎被隔離撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71d0c42b4c1cfda5b99d1bf8e207c8cd141b9cd0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71d0c42b4c1cfda5b99d1bf8e207c8cd141b9cd0
-
-下载BT种子 [美籍華人：《大紀元》真實報導當機立斷回美救了我的命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/071ba3d787a7bcf97974b89d02b12a5da77f4b5e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:071ba3d787a7bcf97974b89d02b12a5da77f4b5e
-
-下载BT种子 [貴州援助鄂州千噸蔬菜大部分被官員和派出所侵占部分爛在倉庫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad3acb670c4a6d5f2793da0bc56301fe901c0f39.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad3acb670c4a6d5f2793da0bc56301fe901c0f39
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
