@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bJZs4k)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BcDSp9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -616,10 +616,6 @@
 下载BT种子 [武漢肺炎宣傳規劃圖，透露中共多少秘密？「亞洲病夫」辱華？華日3記者被驅逐真相！川普大戰略施壓，美指定5官媒為「外國使團」【新聞看點】（20200220）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24b4145fc0b37993e4d1bcb4f66b7e5f67d6809c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:24b4145fc0b37993e4d1bcb4f66b7e5f67d6809c
-
-下载BT种子 [【唐靖遠快評】湖北“核減”數據事關經濟大局？2月底“控制”疫情的秘密；有關病毒基因疑點的補充熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9bea725cd6b24f3ac6f5816b7138e4dd237372c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9bea725cd6b24f3ac6f5816b7138e4dd237372c
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
