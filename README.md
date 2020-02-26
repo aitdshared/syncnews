@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0RKMHy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2N9vMP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [朱文祥：臺灣研究機構成功合成改善肺炎症狀藥物籲僑民挺臺入世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d54fddde4380c2222eff7f0fa8316191d5338a6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d54fddde4380c2222eff7f0fa8316191d5338a6b
+
+下载BT种子 [【禁闻】怕感染官方推迟两会愁经济民间被催复工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/162d7ef84374bc456308c15fb47186ced0f603fc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:162d7ef84374bc456308c15fb47186ced0f603fc
+
+下载BT种子 [CDC警告：全美應戒備社區大範圍疫情擴散患者人數可能突然急劇增長.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3c26e19e8eeddbfe0b4f077a68d2dd358289f32.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d3c26e19e8eeddbfe0b4f077a68d2dd358289f32
 
 下载BT种子 [【02.25會員完整版】養殖戶血本無歸。企業難復工，債務違約成不定時炸彈。失業潮可能再次洶湧。大筆撒錢，中共究竟有沒有錢？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/697661ab2931e0b77df5b10e4b9fa47065481c21.torrent)
 
@@ -600,10 +612,6 @@
 下载BT种子 [《石濤聚焦》「美媒：習總耍奸欺騙隨改病情數字栽贓湖北舊官員」應勇‘就義’的湖北確診數字低過省會武漢市世衛總幹事大聲叫好［協手習總騙全球-只因扛不住了必須開工開通口岸」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cf054c3d4bd2340a6c25f570958578ccf31646c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4cf054c3d4bd2340a6c25f570958578ccf31646c
-
-下载BT种子 [中共長時間拖延後才允許美國專家進入中國蓬佩奧敦促北京應提高開放度.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6da7bdc2a0175d5b19fa91ed96d6388a23b6a8ff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6da7bdc2a0175d5b19fa91ed96d6388a23b6a8ff
 
 下载BT种子 [美國海軍陸戰隊軍樂隊隔柵欄表演安撫武漢肺炎被隔離撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71d0c42b4c1cfda5b99d1bf8e207c8cd141b9cd0.torrent)
 
