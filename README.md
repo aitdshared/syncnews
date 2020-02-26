@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/isKZ4j)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RvAz85)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「習總頻頻露面高層內訌被逼所致」王岐山全方位‘神隱’習總帶頭捐錢裸罩「掩蓋虛偽膽小怕死自卑不敢去武漢的事實」17萬官員大會-內訌彼此猜疑所致「習近平親手斷送中共之所為」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c6898f044b0f5e382f9193b57592a5f0b354830.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8c6898f044b0f5e382f9193b57592a5f0b354830
 
 下载BT种子 [實施更嚴格措施武漢人被迫團購高價買的豬肉還長蟲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ff6451fa50dd2bc146b332172ffa43444e8fa4e.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【中国禁闻】2月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/872b9640ca3ad82ae2d2e41d8ee5582fe3526dd9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:872b9640ca3ad82ae2d2e41d8ee5582fe3526dd9
-
-下载BT种子 [如何自救躲過武漢新型冠狀病毒張女士的肺腑之言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/507c28e8d9e915dc7c7769cce89d0ad5084e149f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:507c28e8d9e915dc7c7769cce89d0ad5084e149f
 
 下载BT种子 [突然解封！武漢肺炎危機解除？零確診數各省放衛星！鐘南山遭黨拋棄？（老北京茶館第252集20200220）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f16fa3121591ea193c75c374103afdafd857f27.torrent)
 
