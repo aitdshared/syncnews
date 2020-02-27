@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HGeWfe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jiMz0h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國被評為應對疫情準備最充分的國家川普任命彭斯主管疫情管控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a159ec4893ef9b4fca897e5f58069aec2b406b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a159ec4893ef9b4fca897e5f58069aec2b406b2
+
+下载BT种子 [紐約市0例新冠肺炎籲聯邦協助加強防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a68e0de86ac60abcbd6714797ee87cdbbea91c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:88a68e0de86ac60abcbd6714797ee87cdbbea91c
 
 下载BT种子 [廣東支援武漢醫療隊的防護設備告急醫護人員《柳葉刀》求助遭大陸全網查刪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e18a6a997d11cf9883dcd1e0953bff62bf2819.torrent)
 
@@ -608,14 +616,6 @@
 下载BT种子 [疫情直撲中南海北京西城區為重災區多家醫院出現聚集感染人心惶惶.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4095799751c2eedb02ece9ab74e987b472b220db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4095799751c2eedb02ece9ab74e987b472b220db
-
-下载BT种子 [【环球直击】2月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0882a1b006b92a5e54761cc878374a893d4877.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f0882a1b006b92a5e54761cc878374a893d4877
-
-下载BT种子 [【解讀】賺錢勝人命，中共急復工隱瞞疫情；醫生稱燒活人「確實有」；病毒凶悍，病患復發頻傳（2020.2.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/598541e6153f7ec0ae726727504d4103b8c3a5d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:598541e6153f7ec0ae726727504d4103b8c3a5d5
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
