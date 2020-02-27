@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pkr7gP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/01pmKV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [AI偵測口罩與體溫！台灣有科技公司推出四款方案助攻防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946435f596921329c3e5c8e2199aa0de41a11eb2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:946435f596921329c3e5c8e2199aa0de41a11eb2
+
+下载BT种子 [呂旭明：香港局勢多變民眾需要慎重考量香港資金帳戶的去留.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d943eb4e9f3b9a18c6f0f74ea600142fb2d51cfb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d943eb4e9f3b9a18c6f0f74ea600142fb2d51cfb
 
 下载BT种子 [七常委捐款了！多少？关键时刻，某高官把话挑明了：只听习近平，不听李克强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0f02b22e0326506eb333ab8a64dbd15fdad33f9.torrent)
 
@@ -608,14 +616,6 @@
 下载BT种子 [【禁闻】重复感染！多名新冠患者愈后复发.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7de741455942b6b257a724758f6b24d3bf5bb85.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b7de741455942b6b257a724758f6b24d3bf5bb85
-
-下载BT种子 [【禁闻】记者直击：寻求血浆的重症患者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5ad2e0245f865f18bc1903bf3e98b4f17203738.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5ad2e0245f865f18bc1903bf3e98b4f17203738
-
-下载BT种子 [維權人士萬里大逃亡翻越喜馬拉雅在非洲又落入中共中途逃離抵達美國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3feecf22e4c925f63a3be23c7402b34c342c7ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d3feecf22e4c925f63a3be23c7402b34c342c7ce
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
