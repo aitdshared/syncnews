@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vyxqjN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xm3oZ7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [劇情突然反轉，中共宣传自己又成大贏家？晕！伊朗卫生部副部长中招！（老北京茶館第256集20200226）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca8bd33eb6f1716c84df49ada9bc96e1d4354fd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ca8bd33eb6f1716c84df49ada9bc96e1d4354fd
 
 下载BT种子 [【禁闻】2月26日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c686728a46773c91020a16b016759a2d63ac5be.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤.News》「突變：北京出事-傳蔡奇隔離因兒子確診習近平消失至今？」北大醫院院長緊急會議「復興北大海淀醫院都被攻陷」三條路線：西城區委69人12日隔離蘇州街死人樓群隔離北大住院老人」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6e7e62aa61cce99b9ca6647fc4f9886505249c0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e6e7e62aa61cce99b9ca6647fc4f9886505249c0
-
-下载BT种子 [韓國新確診100例港警59人聚餐一人確診日本鑽石公主號撤僑包機也不斷傳出確診病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71edc83bc7f22ad26d0cc0a9ebe293d1d54b1dc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71edc83bc7f22ad26d0cc0a9ebe293d1d54b1dc5
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
