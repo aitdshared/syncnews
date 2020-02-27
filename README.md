@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q5hPrt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vQf1R5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月26日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cab33dfff786dba574db684870c269552b99e22.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cab33dfff786dba574db684870c269552b99e22
 
 下载BT种子 [这样的漏洞一个毁全盘，北京有险！阎老西“秒踩”习主席（20200226第707期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6f128c430aa562468bb6228d1e18f770c29c3.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【全球新闻】2月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f5d68e9ba5ed0d36d598e656235f94574b0391b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f5d68e9ba5ed0d36d598e656235f94574b0391b
-
-下载BT种子 [🔥病毒入黨！按需定時受控，不然3月經濟完蛋；患者被「去庫存」，吸氧也得走，按指標出院；武漢院長出殯妻跟車哭！湖北物資分配醜聞：公安使勁拿，倉庫蔬菜放爛新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97bf7e79066bc5d8b8e0d292cbba168ded042097.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97bf7e79066bc5d8b8e0d292cbba168ded042097
 
 下载BT种子 [【中国禁闻】2月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/872b9640ca3ad82ae2d2e41d8ee5582fe3526dd9.torrent)
 
