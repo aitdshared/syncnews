@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xm3oZ7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tk4cDZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普新聞會：美國風險低，備戰充分；深度分析中美面對緊急狀況的不同社會運行機制（江峰漫談20200227第126期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cb0b7baeea73d8f294a79fc23e73dbcd43f0a6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3cb0b7baeea73d8f294a79fc23e73dbcd43f0a6b
 
 下载BT种子 [劇情突然反轉，中共宣传自己又成大贏家？晕！伊朗卫生部副部长中招！（老北京茶館第256集20200226）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca8bd33eb6f1716c84df49ada9bc96e1d4354fd.torrent)
 
