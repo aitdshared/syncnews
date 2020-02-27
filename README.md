@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I0uPKs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XoRWtW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】武汉学微视频策略放人四小时后废除.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec1e23ffb7c6b071e2bf2e2e2bd80a34aa6720a1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec1e23ffb7c6b071e2bf2e2e2bd80a34aa6720a1
+
+下载BT种子 [韓國航空公司一名機組人員染新冠肺炎曾走訪美國洛杉磯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c33866b963ef2cdf4b09f21954fdff5e6ca681a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c33866b963ef2cdf4b09f21954fdff5e6ca681a6
+
+下载BT种子 [【禁闻】武汉一线医护急呼国际救助陆媒发了又删.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4eff9aa8d045b25827faa59538f870ebb6f3f1d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4eff9aa8d045b25827faa59538f870ebb6f3f1d
 
 下载BT种子 [美國被評為應對疫情準備最充分的國家川普任命彭斯主管疫情管控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a159ec4893ef9b4fca897e5f58069aec2b406b2.torrent)
 
@@ -597,10 +609,6 @@
 
 磁力链接 magnet:?xt=urn:btih:71edc83bc7f22ad26d0cc0a9ebe293d1d54b1dc5
 
-下载BT种子 [鄂魯浙監獄爆出疫情多名官員被免職.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cd87494ac16ca31c5abda369ef8783ff7bdc036.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2cd87494ac16ca31c5abda369ef8783ff7bdc036
-
 下载BT种子 [港警投訴港台諷刺節目被批搔著癢處.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18e281aaf966bf883ce526900d3db6022f500c4d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:18e281aaf966bf883ce526900d3db6022f500c4d
@@ -608,14 +616,6 @@
 下载BT种子 [找病逝司機感染源浙江台商驗出病毒抗體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/159a84f978c82f8289ad6bdb9b173d35654fa730.torrent)
 
 磁力链接 magnet:?xt=urn:btih:159a84f978c82f8289ad6bdb9b173d35654fa730
-
-下载BT种子 [美國CDC：新冠病毒在韓日等六國社區傳染階段.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdfbc419b1cf25dde85e6038620146b2f85d7100.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fdfbc419b1cf25dde85e6038620146b2f85d7100
-
-下载BT种子 [疫情直撲中南海北京西城區為重災區多家醫院出現聚集感染人心惶惶.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4095799751c2eedb02ece9ab74e987b472b220db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4095799751c2eedb02ece9ab74e987b472b220db
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
