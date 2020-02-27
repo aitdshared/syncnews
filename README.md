@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/92YFgs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TVXIVA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】2月27日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/140c7a7d29aea37512d90d959eb8173e3992e215.torrent)
+
+磁力链接 magnet:?xt=urn:btih:140c7a7d29aea37512d90d959eb8173e3992e215
 
 下载BT种子 [防民变，公安部长紧急呼喊：只听习近平！钟南山突发高论，意图甩锅外国？七常委捐款了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f04c24eaa349ec6e06072f2ca6a3b1c40144ad73.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [新冠肺炎加速國際傳播意大利北部突然爆發新冠肺炎疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c10b298674d9703926c83912092edf4d970d2959.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c10b298674d9703926c83912092edf4d970d2959
-
-下载BT种子 [歐盟公佈人工智能白皮書白宮﹕美國須保持領先對抗中共專制的挑戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/250e688bcdae899b410eb807a177cda85a160293.torrent)
-
-磁力链接 magnet:?xt=urn:btih:250e688bcdae899b410eb807a177cda85a160293
-
-下载BT种子 [74萬人感染？重症死亡超過50%，3省監獄疫情爆發,武漢家家封門，高治癒出院率是這麼來的！徵調在校生支援武漢殯儀館，北京群聚感染飆升，與武漢同級抗疫【新聞看點李沐陽】（2020221).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ae96ef4179c4f48320e3b4a26dc7d391452379.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7ae96ef4179c4f48320e3b4a26dc7d391452379
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
