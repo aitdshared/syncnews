@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zSPeqF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/huHvBK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [專業護理告訴你新冠病毒有多毒？該如何自保？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52cc9bb87df2605bba843d4b21522c7f81284569.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52cc9bb87df2605bba843d4b21522c7f81284569
 
 下载BT种子 [《石濤聚焦》「鎮海宮為台灣抽籤驚呼“太準啦！”」哈佛教授“一年內全球70%人將被感染”英媒-英政府內部文件「歐洲淪陷英國80%人將被感染50萬人死亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2994176e8ae5a342c09012e9e2a4335072c59ece.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【全球新闻】2月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc04067d5325766ea128e2f982a29b078fd4ace9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cc04067d5325766ea128e2f982a29b078fd4ace9
-
-下载BT种子 [美國罕見指定中共官媒為“外國使團”！黨媒如何在海外執行特殊任務？華爾街日報詆毀了誰的“抗疫努力”？謝田楊建利熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd4704f8ff367bf3d738e81fccf39daba939f567.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cd4704f8ff367bf3d738e81fccf39daba939f567
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
