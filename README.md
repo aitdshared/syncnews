@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ol62v2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OSGhIL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [廣東支援武漢醫療隊的防護設備告急醫護人員《柳葉刀》求助遭大陸全網查刪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e18a6a997d11cf9883dcd1e0953bff62bf2819.torrent)
+
+磁力链接 magnet:?xt=urn:btih:35e18a6a997d11cf9883dcd1e0953bff62bf2819
 
 下载BT种子 [疫情蔓延6大洲伊朗一天內新增44例日本新增15起全球大流行風險擴大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1b21481cc5726b65d78d542769a4f5d910416db.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [【解讀】賺錢勝人命，中共急復工隱瞞疫情；醫生稱燒活人「確實有」；病毒凶悍，病患復發頻傳（2020.2.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/598541e6153f7ec0ae726727504d4103b8c3a5d5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:598541e6153f7ec0ae726727504d4103b8c3a5d5
-
-下载BT种子 [李克强阵营把话说穿了：都是习近平的错！三次拍板内幕。误党还是误国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0413355f8e3e76386f62501473e2fd2760cc75e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0413355f8e3e76386f62501473e2fd2760cc75e0
-
-下载BT种子 [【全球疫情直擊】武肺治癒者仍帶毒隨時激活恐成流行病找到病逝司機感染源浙台商驗出病毒抗體猶太拉比：聖經預言更多瘟疫將臨中國被完全隔離武漢一天出走2.8萬人韓國開始社區傳播221熱點直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/532c6459ab01d4cf147e6054d6e2f914c4af2d78.torrent)
-
-磁力链接 magnet:?xt=urn:btih:532c6459ab01d4cf147e6054d6e2f914c4af2d78
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
