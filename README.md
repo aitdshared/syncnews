@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gwxkC3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jg4nSw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】疫情冲击下中国数百万企业恐将倒闭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b93a465c154dada64427975db3b33d8e0589c89a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b93a465c154dada64427975db3b33d8e0589c89a
 
 下载BT种子 [《大國戰”疫”》出版：中共要給世界提供抗疫經驗？美國流感到底是怎麼回事？「正能量」報導下的平行時空陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d961b1a63a03d991cbf275bc246087e8773e6959.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [世卫约谈社交媒体巨头，“世界维稳组织”？假新闻vs平台，哪个更要警惕（20200221第704期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e3528c89f1ac2b715475b1705a663af858e5c30.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e3528c89f1ac2b715475b1705a663af858e5c30
-
-下载BT种子 [【环球直击】2月21日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82eee2ac9be7766d1cc88c7672dc257960226fdc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:82eee2ac9be7766d1cc88c7672dc257960226fdc
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
