@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yUcV4C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T0t4N5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠状病毒开始在美国和德国社区传播,日本学校停课至四月初,教皇染病,伊朗副总理确诊,我们应该储备哪些应急物品，并做好那些经济上的准备(政论天下第121集20200227)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4a832627d135daa9f367be97c78539065746614.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c4a832627d135daa9f367be97c78539065746614
 
 下载BT种子 [【环球直击】2月27日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a3065d286dc3ec0224d7b1ce65cd8eb7d0fbfe2.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [习近平承认亲自！继续隐蔽开会。图谋拉各国下水？盛传北京市委书记中招.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91d4e0013a05e283acc9981f9d07fdd7c9106d73.torrent)
 
 磁力链接 magnet:?xt=urn:btih:91d4e0013a05e283acc9981f9d07fdd7c9106d73
-
-下载BT种子 [【解讀】海外中國感染者23不知去向；新冠病毒是人工合成？監獄淪陷逾500人染疫？（2020.2.22）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca492ed2220f716ec154ab99b74377893c369e36.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ca492ed2220f716ec154ab99b74377893c369e36
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
