@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/loVH3d)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I1HHlR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第二十七回太師回兵陳十策」聞太師十策有三魂-拆鹿臺-人殺費仲尤渾-地貶妲己-天「天下興好事行；天下亡禍胎降」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77969c2144f14723cb112c983096c06a8604a323.torrent)
+
+磁力链接 magnet:?xt=urn:btih:77969c2144f14723cb112c983096c06a8604a323
 
 下载BT种子 [防火牆的大本營被攻陷；常委帶頭捐款的背后打算；鐘南山教授称疫源地不在中國带动舆论風向標（江峰漫談20200228第127期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/154d11fab68e7ce10d702a08581f916d69a103f2.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【严真点评】外交部大实话：中共要求复工要钱不要命？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e0d7cb277df89885094104f6daa7bbe579767b1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e0d7cb277df89885094104f6daa7bbe579767b1
-
-下载BT种子 [一周经济回顾（2020年2月23日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd2ac1aa8820fcaf2bd993107ffca3e9bdbf5a8a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bd2ac1aa8820fcaf2bd993107ffca3e9bdbf5a8a
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
