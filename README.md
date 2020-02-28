@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AenSvB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lyMFEd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】新冠病毒攻入伊朗最高层副总统确诊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc6b2883d668c4aef56da13b3aedd1c8c8df373f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc6b2883d668c4aef56da13b3aedd1c8c8df373f
+
+下载BT种子 [【禁闻】2月28日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e9f1bd67e7169542a9e5784c7c450313e683cfc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7e9f1bd67e7169542a9e5784c7c450313e683cfc
+
+下载BT种子 [【禁闻】反制中共彭博社：美国考虑驱逐中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7
 
 下载BT种子 [【禁闻】多国补助隔离者中共藉“抗疫”发财.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7299fc0a4c1c3e79d3ed01530d8ba2d148bbb455.torrent)
 
@@ -604,10 +616,6 @@
 下载BT种子 [【环球直击】2月22日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9e5e9ceb81161b4bdd03c2e1213dd9a53d2f5c7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d9e5e9ceb81161b4bdd03c2e1213dd9a53d2f5c7
-
-下载BT种子 [加州首例新冠病毒感染者康復無需隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e7c5ffde7f16e0ad8750f941b4cf28a8cd3f887.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1e7c5ffde7f16e0ad8750f941b4cf28a8cd3f887
 
 下载BT种子 [湖北公布疫情出現「核減」怪現象省委書記應勇喊停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79d3da9430d6bdc037b8d16a918e30738c4c472.torrent)
 
