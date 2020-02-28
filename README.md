@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RsvEAU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DZ7rOL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情加劇伊朗副總統感染日本關閉學校.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a134596748631f31ef417ff732831ece6bc291.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91a134596748631f31ef417ff732831ece6bc291
+
+下载BT种子 [95後覺醒！從央視主持到公民記者，李澤華赴武漢尋真相被抓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/579dd1757db19944ae8572a6743aa48cd8db9b20.torrent)
+
+磁力链接 magnet:?xt=urn:btih:579dd1757db19944ae8572a6743aa48cd8db9b20
+
+下载BT种子 [2020大選南卡黨內初選拜登去留關鍵時刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edfebc3c00fb1a527211a2996722a4fa270ae636.torrent)
+
+磁力链接 magnet:?xt=urn:btih:edfebc3c00fb1a527211a2996722a4fa270ae636
 
 下载BT种子 [【中国禁闻】2月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90939cb394e3a2a02bea53d818c893dfbf4ef363.torrent)
 
@@ -604,18 +616,6 @@
 下载BT种子 [【时事小品】丢下一万元就跑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/455a7cf21da1e6b201208f94f49f79fef45bafed.torrent)
 
 磁力链接 magnet:?xt=urn:btih:455a7cf21da1e6b201208f94f49f79fef45bafed
-
-下载BT种子 [【环球直击】2月22日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee4938101053237006ecacde580e9a7c642f2a48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee4938101053237006ecacde580e9a7c642f2a48
-
-下载BT种子 [武漢是全軍後勤保障中心，為何嚴重物資匱乏？美國國會聽證會探討中共後勤保障的真實實力；習近平主持不露臉政治局會議，罕見不提“核心意識，看齊意識”（江峰漫談20200222第124期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e97d9b08bd903f63e37888eaef936ec95c964692.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e97d9b08bd903f63e37888eaef936ec95c964692
-
-下载BT种子 [【Jason快評】人類完全杜絕新冠病毒已不可能！三心二意的防疫+三心二意的復工是什麼後果？全球傳播開始加速熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcee0bb0635a8a5abdc80046c1549ce9f728cee0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dcee0bb0635a8a5abdc80046c1549ce9f728cee0
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
