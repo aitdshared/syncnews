@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DZ7rOL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QRokut)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李澤華尋真炒了央視和逆淘汰！重慶小夥黃洋四帖火了！壓不彎的中國人，貌似希望已噴發啦！（老北京茶館第2567集20200227）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34457ca67a75947264a173a68a4e6c30e21fa8ce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:34457ca67a75947264a173a68a4e6c30e21fa8ce
 
 下载BT种子 [疫情加劇伊朗副總統感染日本關閉學校.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a134596748631f31ef417ff732831ece6bc291.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【新闻周刊】第720期（2020223）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5544846d7167c488def386b57e87c96f3a313e5b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5544846d7167c488def386b57e87c96f3a313e5b
-
-下载BT种子 [【时事小品】丢下一万元就跑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/455a7cf21da1e6b201208f94f49f79fef45bafed.torrent)
-
-磁力链接 magnet:?xt=urn:btih:455a7cf21da1e6b201208f94f49f79fef45bafed
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
