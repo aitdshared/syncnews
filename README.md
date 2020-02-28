@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QcqjLa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Rbeg04)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】多国补助隔离者中共藉“抗疫”发财.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7299fc0a4c1c3e79d3ed01530d8ba2d148bbb455.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7299fc0a4c1c3e79d3ed01530d8ba2d148bbb455
+
+下载BT种子 [【禁闻】黑龙江省法轮功学员李秀芹被迫害致死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364aaa81eba0e2f7e3b5e08a1250128b77517b0b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:364aaa81eba0e2f7e3b5e08a1250128b77517b0b
+
+下载BT种子 [【禁闻】2月27日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1ac5086bb55e242dfeb10386ba18b75cf049cb2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a1ac5086bb55e242dfeb10386ba18b75cf049cb2
 
 下载BT种子 [新冠状病毒开始在美国和德国社区传播,日本学校停课至四月初,教皇染病,伊朗副总理确诊,我们应该储备哪些应急物品，并做好那些经济上的准备(政论天下第121集20200227)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4a832627d135daa9f367be97c78539065746614.torrent)
 
@@ -600,10 +612,6 @@
 下载BT种子 [湖北公布疫情出現「核減」怪現象省委書記應勇喊停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79d3da9430d6bdc037b8d16a918e30738c4c472.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c79d3da9430d6bdc037b8d16a918e30738c4c472
-
-下载BT种子 [韓國遽增229例新冠肺炎確診30個國家和地區確診病例達1643例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/864ae9254a622ca217c6682f4397cd3a8756ce6a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:864ae9254a622ca217c6682f4397cd3a8756ce6a
 
 下载BT种子 [美移民法庭庇護案裁決提速中國人獲批最多.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f637a7ed836317ec8a4f3720d7c82974e7a592fe.torrent)
 
