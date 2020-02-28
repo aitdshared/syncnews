@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4Sf4Br)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jVvZpn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -604,10 +604,6 @@
 下载BT种子 [【中国禁闻】2月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a65442c846a1dbff5129603dfc9a9fc55196a57f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a65442c846a1dbff5129603dfc9a9fc55196a57f
-
-下载BT种子 [【禁闻】2月23日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/800b52207bb11508dcc66c7f7e77967ead32f2af.torrent)
-
-磁力链接 magnet:?xt=urn:btih:800b52207bb11508dcc66c7f7e77967ead32f2af
 
 下载BT种子 [【环球直击】2月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/230c1d99e2a7d228e238984f3315d1b2d401d476.torrent)
 
