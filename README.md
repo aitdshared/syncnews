@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/J6nUV8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/g3UHIn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [国家副主席中招？前常委儿媳闯关入京！伊朗副总统倒在中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9ce4b7f03bdd439baf72a733422df06f6421ef8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9ce4b7f03bdd439baf72a733422df06f6421ef8
 
 下载BT种子 [【全球疫情直擊】武漢肺炎持續蔓延全球擴散中共藉疫情污衊神韻美衛生部門駁斥謠言抗體不足日本女二次感染世界之都紐約無感染華人對美防疫有信心前央視主持李澤華訪武漢真相被捕2月28日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6785d7036ab39834901b40abbac4033f72dd76a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [北京香山和上海好市多人潮涌动,韩国和意大利也封城,治愈者仍需强制隔离14天(政论天下第118集20200223)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f6808dd39b93828d67bc9a6e3461ad47bcf3fd3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0f6808dd39b93828d67bc9a6e3461ad47bcf3fd3
-
-下载BT种子 [【熱點直擊】無症狀傳染新佐證！武漢女子無症狀帶原傳染五親人驚現病患潛伏27天權威武肺病毒不尋常或是人造台灣已合成武肺用藥可望自產文昭秋旻對唱《約在春天相見》2月23日全球疫情直擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5d7441f634d845ee84c1eba2df300c9f1deb19e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a5d7441f634d845ee84c1eba2df300c9f1deb19e
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
