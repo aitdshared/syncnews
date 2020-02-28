@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lyMFEd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/92YOEI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】拐点未到已复工董宇红谈民众如何自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60ec98385b1c00a67bb09fd03b5d4fef03ea9181.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60ec98385b1c00a67bb09fd03b5d4fef03ea9181
 
 下载BT种子 [【禁闻】新冠病毒攻入伊朗最高层副总统确诊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc6b2883d668c4aef56da13b3aedd1c8c8df373f.torrent)
 
@@ -612,22 +616,6 @@
 下载BT种子 [北京情势严峻,习近平承认拐点未到;粮荒才是大问题;实锤数据真实显示出民间对中共的信任度;美国已在做社区传播准备(政论天下第117集20200222)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0aaaf8d16a0aea122bf33a362d63ece12bffce41.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0aaaf8d16a0aea122bf33a362d63ece12bffce41
-
-下载BT种子 [【环球直击】2月22日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9e5e9ceb81161b4bdd03c2e1213dd9a53d2f5c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9e5e9ceb81161b4bdd03c2e1213dd9a53d2f5c7
-
-下载BT种子 [湖北公布疫情出現「核減」怪現象省委書記應勇喊停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79d3da9430d6bdc037b8d16a918e30738c4c472.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c79d3da9430d6bdc037b8d16a918e30738c4c472
-
-下载BT种子 [美移民法庭庇護案裁決提速中國人獲批最多.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f637a7ed836317ec8a4f3720d7c82974e7a592fe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f637a7ed836317ec8a4f3720d7c82974e7a592fe
-
-下载BT种子 [武漢中心醫院外科醫生全部治新冠病毒稱感染了休息兩天就能好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00c8a5cc502217aea60fa963a7684e5bc54b74d8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:00c8a5cc502217aea60fa963a7684e5bc54b74d8
 
 下载BT种子 [习近平承认亲自！继续隐蔽开会。图谋拉各国下水？盛传北京市委书记中招.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91d4e0013a05e283acc9981f9d07fdd7c9106d73.torrent)
 
