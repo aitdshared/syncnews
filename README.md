@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lKmqoG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MaMVMa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [徐州患者出院被高調慶祝不料複查又被確診再度封樓隔離包括歡迎儀式的民眾和記者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e130e2ee0fe5a04cf0fdb791c1857d5bb248aa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:79e130e2ee0fe5a04cf0fdb791c1857d5bb248aa
 
 下载BT种子 [《石濤.News》「以色列拉比-智者：武漢病毒是耶和華降災埃及的再現彌撒亞-彌勒即將到來」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0244ba3beb24af99702cd021c44793d68fb6e2c3.torrent)
 
