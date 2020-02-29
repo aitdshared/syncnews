@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/v2oHuU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/56HbkL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共网信办失守,抓捕李泽华和黎智英背后的权谋计算(政论天下第122集20200228)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7eae5df91151b9288fa6100633cf4518d8dc0816.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7eae5df91151b9288fa6100633cf4518d8dc0816
 
 下载BT种子 [【禁闻】新冠疫情冲击中国牵动世界经济格局.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64fe17d14543d86cb94ad91192e89957749aa083.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1c4b0606ddedbbbfefcc3f4fb49f47fae023248.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a1c4b0606ddedbbbfefcc3f4fb49f47fae023248
-
-下载BT种子 [【解讀】習近平召開罕見大會曝光疫情內幕與危機？美情報部門：中共高層擬撤離中南海；香港頻傳人員暈倒抽搐，病毒惹的禍？(2020.2.24)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96d662de641c610daeda1329bb38beb2269803cf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:96d662de641c610daeda1329bb38beb2269803cf
-
-下载BT种子 [出逃计划曝光后，习近平硬着头皮露脸！七常委相貌大变。会场几桩古怪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6151f3bc65b24a22c552615c2a71da87aa7b475f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6151f3bc65b24a22c552615c2a71da87aa7b475f
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
