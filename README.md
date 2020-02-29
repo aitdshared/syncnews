@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2Lv7nH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HB8C8M)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -628,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「中共國醫生在‘柳葉刀’論文：重症者死亡率60%」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08b51cecdb79cfdb65d3fb9baae1e2da716c3adb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:08b51cecdb79cfdb65d3fb9baae1e2da716c3adb
-
-下载BT种子 [【微视频】中共高官别吸血血浆治不了武汉肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d8e36f8222eb2a886ce3d7f0c511dc26e0c0a4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39d8e36f8222eb2a886ce3d7f0c511dc26e0c0a4
 
 下载BT种子 [【禁闻】肺炎疫情持续会否导致中国恶性通胀？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b8129730221dd12061cf41da94857dcb6783d9e.torrent)
 
