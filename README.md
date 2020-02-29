@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TGjlGV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/un5R3m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1
+
+下载BT种子 [【禁闻】二次感染？血浆疗法？李秉颖医生解惑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fc6f40a1cd86cb6158ffac99fe83cd69d4a2dfd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6fc6f40a1cd86cb6158ffac99fe83cd69d4a2dfd
+
+下载BT种子 [【禁闻】《柳叶刀》中国医护求助文章作者要求撤回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e33ecc5c5dbe100e9c3c2004dbe3cd3cad65dfe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e33ecc5c5dbe100e9c3c2004dbe3cd3cad65dfe
 
 下载BT种子 [【禁闻】2月28日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/829031950a48602016ce1174d1563212c086337d.torrent)
 
@@ -621,25 +633,9 @@
 
 磁力链接 magnet:?xt=urn:btih:1b8129730221dd12061cf41da94857dcb6783d9e
 
-下载BT种子 [【禁闻】疫情冲击全球供应链外企加速撤离中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69ba93d7b33ccc80dad23972e6db7e636eeb3895.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69ba93d7b33ccc80dad23972e6db7e636eeb3895
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b9f5f05b1ac13563ca02549017acd699afdaa8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b9f5f05b1ac13563ca02549017acd699afdaa8f
-
-下载BT种子 [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1c4b0606ddedbbbfefcc3f4fb49f47fae023248.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a1c4b0606ddedbbbfefcc3f4fb49f47fae023248
-
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7d3937b63de97be43f2479f581e7346078d66d83
-
-下载BT种子 [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
-
-磁力链接 magnet:?xt=urn:btih:886e9d6d9003e96e7f0eebc6f365142178462a52
 
 下载BT种子 [新年特别节目说说古代的钱币(史海扬帆第15集20200124)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/%E6%96%B0%E5%B9%B4%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE%E8%AF%B4%E8%AF%B4%E5%8F%A4%E4%BB%A3%E7%9A%84%E9%92%B1%E5%B8%81%28%E5%8F%B2%E6%B5%B7%E6%89%AC%E5%B8%86%E7%AC%AC15%E9%9B%8620200124%29%E5%A4%A9%E4%BA%AE%E6%97%B6%E5%88%86.mp4.torrent)
 
