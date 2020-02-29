@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ktUfDa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w1NI5p)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [孫楊興奮劑事件國際仲裁禁賽八年，輿論導向民族主義；美國無接觸病例確診，社區感染即將爆發，疾控中心呼籲做好準備（江峰漫談20200229第128期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa45f70f23c45703c6f5f00b2a44750ae32b7eb5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa45f70f23c45703c6f5f00b2a44750ae32b7eb5
 
 下载BT种子 [【全球新闻】2月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64d8f74254204fa0f1be64b987ed1a89d0bb2117.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [義大利超200人感染7人死亡已有十多座城鎮被封被擔憂成為歐洲「武漢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa2a7b14946b51af593207179e9f50e20634604.torrent)
 
 磁力链接 magnet:?xt=urn:btih:daa2a7b14946b51af593207179e9f50e20634604
-
-下载BT种子 [公共負擔新法生效首日移民綠卡申請須知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec28d3b8fc8c6bd81c10ed954aff1b0f0057cd73.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ec28d3b8fc8c6bd81c10ed954aff1b0f0057cd73
 
 下载BT种子 [全球疫情呈現加速蔓延多國告急世衛：準備應對大流行的時刻已到.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ed1068a98c4af9d1503decd94996d052c8a5a34.torrent)
 
