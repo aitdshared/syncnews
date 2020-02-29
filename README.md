@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1feRhE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/45QBsB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠肺炎至少傳染25國據透露伊朗至少死亡210人美國願幫伊朗對抗疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20c8881a47dd3239c24c6a956cc47d85052ddea4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:20c8881a47dd3239c24c6a956cc47d85052ddea4
+
+下载BT种子 [國際體育法庭裁定中國游泳名將孫楊違反興奮劑規則被禁賽8年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7817bd71ebca4a975f4322afe52d90b34af1998.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7817bd71ebca4a975f4322afe52d90b34af1998
+
+下载BT种子 [新冠疫情加劇世衛再次升高在全球傳播的風險等級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e67c10da0efc1be196d4d98e2da5e755c8c3c93.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e67c10da0efc1be196d4d98e2da5e755c8c3c93
 
 下载BT种子 [全球52億人將染病？穿紙尿褲的光頭女醫護，每天想哭100次的孕產婦，銷毀外省捐助食物的秘密！逾百位國際學者致信習近平「還民言論自由」【新聞看點李沐陽】02.28.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5955e56ae8057050d1ed4d795a9f22a82615109e.torrent)
 
@@ -609,10 +621,6 @@
 
 磁力链接 magnet:?xt=urn:btih:69ba93d7b33ccc80dad23972e6db7e636eeb3895
 
-下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f017ac34a2231aaa12d52f2f91bb72c62f32d298.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f017ac34a2231aaa12d52f2f91bb72c62f32d298
-
 下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b9f5f05b1ac13563ca02549017acd699afdaa8f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5b9f5f05b1ac13563ca02549017acd699afdaa8f
@@ -624,10 +632,6 @@
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7d3937b63de97be43f2479f581e7346078d66d83
-
-下载BT种子 [武漢封城進入第10天多個武漢病患家庭接受海外採訪講述現實情況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8d5a46cb67deb2a0fd1c5731ab82b74f0d8e0666
 
 下载BT种子 [【中国禁闻】1月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886e9d6d9003e96e7f0eebc6f365142178462a52.torrent)
 
