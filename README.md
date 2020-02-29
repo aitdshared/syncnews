@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HB8C8M)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1hPhrc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「BBC：伊朗起碼死亡210人集中在首都德黑蘭」美國務卿：中共國與伊朗故意掩蓋事實坑害全世界「韓國確診近3千美加州再傳社區感染」義大利與伊朗成新的傳染源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66f2c95bfbcab1358e7204a26aff5c947de5db4d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:66f2c95bfbcab1358e7204a26aff5c947de5db4d
 
 下载BT种子 [《石濤.News》「CNN：蒙古總統握手習總回國即刻隔離14天」含義-習總花錢請的習總與李克強周圍被定格疫區？「傳：栗戰書女婿染病專機接京301拒絕轉住中日習近平勃然大怒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52e634ea3520cfa46e5afed94b300a206e597895.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [疫情嚴峻中共35年來首次推遲兩會被指制定「緊急運作」計畫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4bf52277a3925e40a4e5379a1d1d7bdf07f0eca.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4bf52277a3925e40a4e5379a1d1d7bdf07f0eca
-
-下载BT种子 [【禁闻】罕见吁“让人讲真话”党媒文章也遭封杀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b184c09f9a0e08ddf7a6c7d4499ae76154c314a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b184c09f9a0e08ddf7a6c7d4499ae76154c314a
 
 下载BT种子 [《石濤聚焦》「中共國醫生在‘柳葉刀’論文：重症者死亡率60%」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08b51cecdb79cfdb65d3fb9baae1e2da716c3adb.torrent)
 
