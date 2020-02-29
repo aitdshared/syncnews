@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9lcQxG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c9yryM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】2月28日完整版-2.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/870ebc0e35e1149411507d6538e8b11b0950bbc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:870ebc0e35e1149411507d6538e8b11b0950bbc6
 
 下载BT种子 [【解讀】港警逮捕黎智英等人，有五大算計？官方：武漢肺炎疫情可能卷土重來；鍾南山「發抗疫財」？（2020.2.29）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af53143e95b4916776e22e1b0e556954038c4290.torrent)
 
@@ -628,10 +632,6 @@
 下载BT种子 [《石濤聚焦》「香港與台灣相對韓國日本義大利被感染與死亡低很多？」台灣最新民調：83%民族認同感84%滿意政府抗擊疫情的努力國民黨一敗塗地（2402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f499acf411e2cf1502d6ccc20837ce55d7eaa0d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3f499acf411e2cf1502d6ccc20837ce55d7eaa0d
-
-下载BT种子 [《石濤》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f1f832a06caac245d7f50ae1c81721e4169836.torrent)
-
-磁力链接 magnet:?xt=urn:btih:04f1f832a06caac245d7f50ae1c81721e4169836
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
