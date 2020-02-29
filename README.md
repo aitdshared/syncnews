@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OX2a5u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p9Q4Am)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [给大家唱首歌，《约在春天相见》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7a924b12667ee0c6f607da39826dfa227aa56c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b7a924b12667ee0c6f607da39826dfa227aa56c3
 
 下载BT种子 [🚓3人出獄離武漢，警車護送！意大利救3人，世衛唯推瑞德西韋，黨愛灌中藥？病毒可家居表面存多日，眼感染新證；港犬舔到毒，或非感染；確診國5天翻倍，世衛：風險非常高！俄華人遭嚴查新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/133150e7a9a489d034485ce6d9315fa8aaa6f058.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04f1f832a06caac245d7f50ae1c81721e4169836.torrent)
 
 磁力链接 magnet:?xt=urn:btih:04f1f832a06caac245d7f50ae1c81721e4169836
-
-下载BT种子 [義大利超200人感染7人死亡已有十多座城鎮被封被擔憂成為歐洲「武漢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa2a7b14946b51af593207179e9f50e20634604.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daa2a7b14946b51af593207179e9f50e20634604
 
 下载BT种子 [全球疫情呈現加速蔓延多國告急世衛：準備應對大流行的時刻已到.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ed1068a98c4af9d1503decd94996d052c8a5a34.torrent)
 
