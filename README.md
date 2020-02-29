@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w7rFxI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U3gZyU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平最高规格逼捐，中共“螺旋拐点”产生意外效果（20200228第708期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/336e0627b8523d77803a9e6133661824fa0e7cd6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:336e0627b8523d77803a9e6133661824fa0e7cd6
 
 下载BT种子 [《石濤聚焦》「美股過山車：現跌過千點再反彈13年最慘一週」比爾蓋茨「人類遭遇了百年一次大瘟疫是我們早已期待的」WHO向全球再提高至“非常嚴重”警告50個國家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31b94b60e042b0d907e2d5fe0f6c1208025d5236.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [出逃计划曝光后，习近平硬着头皮露脸！七常委相貌大变。会场几桩古怪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6151f3bc65b24a22c552615c2a71da87aa7b475f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6151f3bc65b24a22c552615c2a71da87aa7b475f
-
-下载BT种子 [【中国禁闻】2月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a65442c846a1dbff5129603dfc9a9fc55196a57f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a65442c846a1dbff5129603dfc9a9fc55196a57f
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
