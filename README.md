@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eL5hfl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/It6Rvz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [当真出了一件大事！就在3月1日。习近平效法千古一帝。俄罗斯这样对待中国人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3f063f995023d633eaaa20f554ac55ec40185d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e3f063f995023d633eaaa20f554ac55ec40185d2
 
 下载BT种子 [【时事小品】携毒入京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf83c6fc3246e45c00a481cdf30c94189d4997d0.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤.News》「央視名記：中國應向世界鞠躬道歉」義大利快速淪陷10年庫存口罩賣光文在寅大邱視察東京奧運5月底決定取消否WHO「病毒在敲門」【2020天滅中共-生與滅】神佛慈悲人滅妖怪魔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9eab767a0f8b884985f3944a40787e127b242a04.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9eab767a0f8b884985f3944a40787e127b242a04
-
-下载BT种子 [新冠病毒擴散朴子刺繡館教做「口罩套」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5df051b2f629302f78b6cfcc4e6795d365fca52.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5df051b2f629302f78b6cfcc4e6795d365fca52
 
 下载BT种子 [北京多家醫院發生集體感染國家大劇院取消所有演出北京市民人心慌慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d144ebb545964a445be1d70d8e3e560ce8134657.torrent)
 
