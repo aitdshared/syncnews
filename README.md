@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pA06vg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/G0qGIa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【Jason快評】哪國確診數含金量高？美國爲何前期沒有廣泛進行病毒測試？科普一個關鍵的統計學概念熱點互動02292020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/612dbcc9a98ce166864f65ddc6b3ab96ef95041d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:612dbcc9a98ce166864f65ddc6b3ab96ef95041d
 
 下载BT种子 [PMI指数跌倒经济萧条线以下,七常委带头捐款与崇祯帝拿出私房钱,民间为什么不愿意捐款(政论天下第123集20200229)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72d9b19ee427c48e9ff8549a9a0bf737f203251a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「突發即時：WHO首席專家-全世界都要學中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a6bd703f82f689b79fd84920af085fe65eab385.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4a6bd703f82f689b79fd84920af085fe65eab385
-
-下载BT种子 [新冠肺炎使很多老人未確診而亡武漢江岸區一養老院又傳出120多位老人被感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c98d382115bd0e96f363ceb5bb6a9c12c7b081c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c98d382115bd0e96f363ceb5bb6a9c12c7b081c7
 
 下载BT种子 [病毒傳播韓國累計確診977例意大利確診超過260例伊朗16人病亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/263b7920bafb505dea42dbe77bcfcbad23ea32e5.torrent)
 
