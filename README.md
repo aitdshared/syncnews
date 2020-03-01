@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kU4Lz9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eL5hfl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【时事小品】携毒入京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf83c6fc3246e45c00a481cdf30c94189d4997d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf83c6fc3246e45c00a481cdf30c94189d4997d0
+
+下载BT种子 [【严真点评】外交部大实话：新冠病毒疫情蔓延全球中共对外大撒币对内却玩起了逼捐的把戏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f83151acaaaff6e655199d6e19f7ca5f1dab6406.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f83151acaaaff6e655199d6e19f7ca5f1dab6406
 
 下载BT种子 [一周经济回顾（2020年3月1日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e460609d2368e883763551704b6d69a1c68efc.torrent)
 
@@ -624,14 +632,6 @@
 下载BT种子 [北京多家醫院發生集體感染國家大劇院取消所有演出北京市民人心慌慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d144ebb545964a445be1d70d8e3e560ce8134657.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d144ebb545964a445be1d70d8e3e560ce8134657
-
-下载BT种子 [川普記者會：將要求撥25億美元抗疫情和助各國中共驅逐美國記者這不公平.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bdcb4534554d8e6e0cd80adb89e88d1b40f2a30.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4bdcb4534554d8e6e0cd80adb89e88d1b40f2a30
-
-下载BT种子 [《石濤聚焦》「突發即時：WHO首席專家-全世界都要學中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a6bd703f82f689b79fd84920af085fe65eab385.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4a6bd703f82f689b79fd84920af085fe65eab385
 
 下载BT种子 [華府「中國行動計畫」研討會美國FBI局長﹕不會容忍中國繼續竊秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d3937b63de97be43f2479f581e7346078d66d83.torrent)
 
