@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BZSSJe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Yhcav4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】箝制言论中共施行“最严网络整肃措施”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0337ab1effc4101614712426e48b5f0cca19d56.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0337ab1effc4101614712426e48b5f0cca19d56
 
 下载BT种子 [3·1新规上路，互联网“大镇反”到来？在华外国人绿卡引吐槽，焦点在内不在外（20200302第709期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bbafc1389126b2b5fd27232b2023371b8efd7c1.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [国难深重，头版尽是习近平！解放军突然大量增购防弹服，防范谁？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13bb284d489a9a5d6e985c016c58c18455d94b3b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:13bb284d489a9a5d6e985c016c58c18455d94b3b
-
-下载BT种子 [北京田先生吐露心聲掩蓋疫情不說真話危險不遠了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbfffc2998744dad19b0a9ebc82b7ec8776f10c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bbfffc2998744dad19b0a9ebc82b7ec8776f10c7
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
