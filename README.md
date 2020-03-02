@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nutTHT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zGsQRI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12f4cae02367143cb74a8b403960a319580f30d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:12f4cae02367143cb74a8b403960a319580f30d0
+
+下载BT种子 [【禁闻】张文宏否定病毒源自国外打脸钟南山？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fbeae93aa4bece3ceb5e3298c022877d6d4541a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fbeae93aa4bece3ceb5e3298c022877d6d4541a
 
 下载BT种子 [【禁闻】首例新冠肺移植肺源来自哪里？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70c9819508d51f115841ece965b6a2955833b02.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [【02.25會員完整版】養殖戶血本無歸。企業難復工，債務違約成不定時炸彈。失業潮可能再次洶湧。大筆撒錢，中共究竟有沒有錢？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/697661ab2931e0b77df5b10e4b9fa47065481c21.torrent)
 
 磁力链接 magnet:?xt=urn:btih:697661ab2931e0b77df5b10e4b9fa47065481c21
-
-下载BT种子 [【环球直击】2月25日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c4e1b8bc76ac7d20830bee6c9ee394dfc203307.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c4e1b8bc76ac7d20830bee6c9ee394dfc203307
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10b419761ded369c467a712a75566605fec96e1f.torrent)
 
