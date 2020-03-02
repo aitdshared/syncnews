@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KDvpC0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lqAEQZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】世卫专家组组长自曝赴中国调查内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b148717bfc9227fd30f2ecd64931d9ac2a2a6ec2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b148717bfc9227fd30f2ecd64931d9ac2a2a6ec2
+
+下载BT种子 [【禁闻】《约在春天相见》创作者：盼中国春天来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d56b172043611c9d07d6fce00d0c99e6b0264565.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d56b172043611c9d07d6fce00d0c99e6b0264565
 
 下载BT种子 [《石濤聚焦》「下令黨員上第一線的張文宏“上海復工後反而零確診怎麼可能？“」一開始以為中國控制住世界就沒事了但世界出事了上海復旦華山感染科主任張文宏「無論疫苗或藥物中共國是來不及了」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8336953e74f6b3c6c0372896303ff5970ace016d.torrent)
 
@@ -609,17 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:6c4e1b8bc76ac7d20830bee6c9ee394dfc203307
 
-下载BT种子 [疫情現全球大爆發徵兆？美國疾控中心：現在不是疫情是否爆發而是何時爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1534790ff13ff214fb90e362e2a8e7b27365c13.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1534790ff13ff214fb90e362e2a8e7b27365c13
-
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10b419761ded369c467a712a75566605fec96e1f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:10b419761ded369c467a712a75566605fec96e1f
-
-下载BT种子 [專家警告：新冠肺炎或成首個「X疾病」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc58d319405d6a37b6dca67bccb27371f6f53740.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc58d319405d6a37b6dca67bccb27371f6f53740
 
 下载BT种子 [病毒長眼攻入中南海！中共推遲兩會，啟動逃亡計畫？「習家軍」難控局面？養殖戶放生、活埋家禽，中國經濟的「不定時炸彈」，大疫下的農民工，中共又外撒1000億美元【新聞看點李沐陽】（20200225）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e6514e1f83dab8b40dc724b4c0775b772429aa7.torrent)
 
