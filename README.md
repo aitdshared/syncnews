@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vuV2dO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GqSEuN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】中共掩盖肺炎病毒变异自媒体怎么玩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a00ea2a4915c31a272fdaed1613dbc8c4e99a031.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a00ea2a4915c31a272fdaed1613dbc8c4e99a031
+
+下载BT种子 [【禁闻】工人曝复工窘境：没处住条件差恐感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7245f9cc616f7c29d2c2a79be07fdf8c9e280242.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7245f9cc616f7c29d2c2a79be07fdf8c9e280242
 
 下载BT种子 [【禁闻】箝制言论中共施行“最严网络整肃措施”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0337ab1effc4101614712426e48b5f0cca19d56.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [民主黨第10次電視辯論川普：瘋狂而混亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5515325202077d0383a294e7cd47c4d43415eefb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5515325202077d0383a294e7cd47c4d43415eefb
-
-下载BT种子 [【解讀】大疫當前，中共為何挑釁台灣？中國封城菜價飆，人民生活苦；秋行軍蟲來襲，糧食拉警報（2020.2.26）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66cdb4a36c4a0112137c7c82510538d7a2b8b0ff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:66cdb4a36c4a0112137c7c82510538d7a2b8b0ff
-
-下载BT种子 [国难深重，头版尽是习近平！解放军突然大量增购防弹服，防范谁？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13bb284d489a9a5d6e985c016c58c18455d94b3b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:13bb284d489a9a5d6e985c016c58c18455d94b3b
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
