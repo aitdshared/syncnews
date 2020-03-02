@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YWHMtS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yKobRO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】3月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6694b5b5ed5289357bd90a8a4cb9101ad023a05c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6694b5b5ed5289357bd90a8a4cb9101ad023a05c
 
 下载BT种子 [習近平捐款洩密？大國戰役藏預言被緊急下架！鐘南山替黨甩鍋，黃亮發表我的認罪書！（老北京茶館第259集20200301）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b349f9fecdc6b0e2533a8636381ffed1521ac6c.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】应对中共打压美考虑驱逐数百中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2283670ae952720a9797e6abf8bb135dd9efe7a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b2283670ae952720a9797e6abf8bb135dd9efe7a
-
-下载BT种子 [【禁闻】怕感染官方推迟两会愁经济民间被催复工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/162d7ef84374bc456308c15fb47186ced0f603fc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:162d7ef84374bc456308c15fb47186ced0f603fc
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
