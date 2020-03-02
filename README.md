@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SvXlTm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sf9Zdc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠病毒伊朗66人喪生韓國確診4335例朝鮮疫情中發射不明飛行器.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ecd89f6a2583c3c79e40195b110d254762b28d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7ecd89f6a2583c3c79e40195b110d254762b28d2
+
+下载BT种子 [美國法學博士章家敦：美國和中共已經開戰真正病毒源頭在於共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea2013d2f4d0957a9176c6cab83d180549aa9a96.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ea2013d2f4d0957a9176c6cab83d180549aa9a96
+
+下载BT种子 [美中新冷戰參議員﹕正面臨來自中共日益增長的威脅美國需以全球戰略應對.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35c58f26387f7b6350b0dcf49a617d9488f5ccfb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:35c58f26387f7b6350b0dcf49a617d9488f5ccfb
+
+下载BT种子 [為中共領導層歌功頌德的《大國戰疫》引全網抨擊突然下架了？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2cad6c96426c25b1d32c47ae6d8936418e981f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c2cad6c96426c25b1d32c47ae6d8936418e981f3
 
 下载BT种子 [美國「超級星期二」初選前布蒂吉格退出競選川普：選票將流向拜登.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25f89d09f9ff1a9d5a5ae5a5f5deb0be2615e72b.torrent)
 
@@ -609,29 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:f1df316bce09fb1b70886aae66a18c74879ba7dd
 
-下载BT种子 [【禁闻】内斗激烈？武汉宣布解封后又突然叫停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/012621a3456fbd5b32d27b63d41db8c70e354fa9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:012621a3456fbd5b32d27b63d41db8c70e354fa9
-
 下载BT种子 [🇮🇹歐版武漢！意大利毒倒西、奧、瑞、克；全球大流行警報！美國要公眾做隔離準備，近期測疫苗，舊金山緊急狀態；白宮擬驅逐中方記者，並促貿易履約；武漢多醫院軍管，團購豬肉長蟲新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aacb556228e134c506b107d1c524b05907c9ba1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9aacb556228e134c506b107d1c524b05907c9ba1
-
-下载BT种子 [【禁闻】2月25日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7b3c1e5287d4cb8ad6e2bc758fbb2fc26976735.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7b3c1e5287d4cb8ad6e2bc758fbb2fc26976735
-
-下载BT种子 [【禁闻】武汉居民亲见他手脚还在动就被装进尸袋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e001443f44ef0ef5cfe47f3fb962935ae6d74cf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e001443f44ef0ef5cfe47f3fb962935ae6d74cf
-
-下载BT种子 [【禁闻】2月25日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ea560b8af01db7ece0d09fdebeb9bc614330fd5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ea560b8af01db7ece0d09fdebeb9bc614330fd5
-
-下载BT种子 [監獄疫情與人道災難全面爆發！前央視主持遭圍攻！美國驅逐數百黨媒記者？（老北京茶館第255集20200225）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b8b927bf0a4ca0323c20dc029391b817044a29c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6b8b927bf0a4ca0323c20dc029391b817044a29c
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
