@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Zya0Y)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nVIhDA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [终于出了大事！就在3月1日，国家主席跟副主席摊牌。谁是取代习近平的人选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0042789894a221a7063d1f0c41c77036581ac575.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0042789894a221a7063d1f0c41c77036581ac575
 
 下载BT种子 [【环球直击】3月2日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9542cabba506899ddd03f09b81a2646c99e8d935.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【中国禁闻】2月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca32be7544d98af3f3219cd49938eca13cdac91.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6ca32be7544d98af3f3219cd49938eca13cdac91
-
-下载BT种子 [《濤哥侃封神》「封神演義第二十七回太師回兵陳十策」聞太師神目如電卻無可奈何狐狸精朝代更替如過眼雲煙唯個體者生命獨尊至珍「商朝亡乃天意力保者必遭天譴」同理—保中共者-形神全滅皆為定數（中集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fab4bd7701610c3a9e797bc41166e47db4f6a3b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8fab4bd7701610c3a9e797bc41166e47db4f6a3b
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
