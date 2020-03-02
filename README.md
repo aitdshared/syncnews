@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nYntPK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YWHMtS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -624,10 +624,6 @@
 下载BT种子 [【禁闻】应对中共打压美考虑驱逐数百中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2283670ae952720a9797e6abf8bb135dd9efe7a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b2283670ae952720a9797e6abf8bb135dd9efe7a
-
-下载BT种子 [朱文祥：臺灣研究機構成功合成改善肺炎症狀藥物籲僑民挺臺入世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d54fddde4380c2222eff7f0fa8316191d5338a6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d54fddde4380c2222eff7f0fa8316191d5338a6b
 
 下载BT种子 [【禁闻】怕感染官方推迟两会愁经济民间被催复工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/162d7ef84374bc456308c15fb47186ced0f603fc.torrent)
 
