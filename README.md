@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GqSEuN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hlRhvj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美國出現韓國大邱式爆發：西雅圖死6個」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dccae89b3f936b227c2b042e134437654e95a021.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dccae89b3f936b227c2b042e134437654e95a021
 
 下载BT种子 [【微视频】中共掩盖肺炎病毒变异自媒体怎么玩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a00ea2a4915c31a272fdaed1613dbc8c4e99a031.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [韓國新冠病毒確診增至1261例日本關閉學校西班牙一星級酒店關閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d25caa3b68702376139f0259ca709fcbe98ee64e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d25caa3b68702376139f0259ca709fcbe98ee64e
-
-下载BT种子 [CDC確認美國沒有出現新冠病毒社區傳染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c835b992e1f1c38bebc7e563bd38f31311494d7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c835b992e1f1c38bebc7e563bd38f31311494d7
 
 下载BT种子 [民主黨第10次電視辯論川普：瘋狂而混亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5515325202077d0383a294e7cd47c4d43415eefb.torrent)
 
