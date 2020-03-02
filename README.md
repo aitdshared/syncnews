@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yKobRO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xaxMIs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第二十八回西伯討伐崇侯虎」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e68f639b8da0cd7bdb816357479428cbd2c94f79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e68f639b8da0cd7bdb816357479428cbd2c94f79
 
 下载BT种子 [【中国禁闻】3月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6694b5b5ed5289357bd90a8a4cb9101ad023a05c.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【唐靖遠快評】習近平17萬人大會僅為面子？王岐山模式連累李克強；官方為石正麗洗地出口轉內銷熱點互動02252020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30985d7d3f4370c528bbbf3299a79fc193d81df6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:30985d7d3f4370c528bbbf3299a79fc193d81df6
-
-下载BT种子 [【禁闻】应对中共打压美考虑驱逐数百中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2283670ae952720a9797e6abf8bb135dd9efe7a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b2283670ae952720a9797e6abf8bb135dd9efe7a
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
