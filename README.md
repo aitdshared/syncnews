@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/slhBld)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mhta2h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月3日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92ba3efa73efb5ed2b79d5b5c8c4febe860b4643.torrent)
+
+磁力链接 magnet:?xt=urn:btih:92ba3efa73efb5ed2b79d5b5c8c4febe860b4643
 
 下载BT种子 [【解讀】連續換肺抗病毒，中共活摘產業鏈復活？王立軍發明腦幹撞擊機做啥？中國腦死器官供體為何多？（2020.3.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e88ea4cac15dda68b3d7ac3e0d26975bc82b9d72.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《歸途》獲北歐國際電影節獎向觀眾傳遞希望.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/113a028efcafecb1cb29f0bdd7ab25a4f2d3c98e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:113a028efcafecb1cb29f0bdd7ab25a4f2d3c98e
-
-下载BT种子 [【微视频】武汉学微视频策略放人四小时后废除.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec1e23ffb7c6b071e2bf2e2e2bd80a34aa6720a1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ec1e23ffb7c6b071e2bf2e2e2bd80a34aa6720a1
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
