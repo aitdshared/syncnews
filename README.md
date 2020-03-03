@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3T30ky)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Nf2c2c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】無處透析尿毒症染新冠肺炎如同等死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a70dacb719715be228480fcf66ab9a3087afdea.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a70dacb719715be228480fcf66ab9a3087afdea
+
+下载BT种子 [又一重大举措美國命令新華社等中媒「外國使團」裁減在美員工60人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f5d2b9080cf70c566864af514e2fa70ac31e0d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f5d2b9080cf70c566864af514e2fa70ac31e0d8
 
 下载BT种子 [《石濤聚焦》「美國出現韓國大邱式爆發：西雅圖死6個」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dccae89b3f936b227c2b042e134437654e95a021.torrent)
 
@@ -617,17 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:0ff6451fa50dd2bc146b332172ffa43444e8fa4e
 
-下载BT种子 [中共各級政府以防疫名義圈錢對來自疫區民眾收取高額隔離費用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65ec21c389076c284a9a5438623a0e7f5c70ba07.torrent)
-
-磁力链接 magnet:?xt=urn:btih:65ec21c389076c284a9a5438623a0e7f5c70ba07
-
 下载BT种子 [韓國新冠病毒確診增至1261例日本關閉學校西班牙一星級酒店關閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d25caa3b68702376139f0259ca709fcbe98ee64e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d25caa3b68702376139f0259ca709fcbe98ee64e
-
-下载BT种子 [民主黨第10次電視辯論川普：瘋狂而混亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5515325202077d0383a294e7cd47c4d43415eefb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5515325202077d0383a294e7cd47c4d43415eefb
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
