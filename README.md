@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pwWdLs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e10fQf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共強推復工官方復工數據被指作假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f34ebb285687bd26363ee4fb7ba7d7fff842d5de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f34ebb285687bd26363ee4fb7ba7d7fff842d5de
+
+下载BT种子 [韓國病例破5千伊朗新增835宗香港晚一個多月包4架飛機到武漢撤出533人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb8d8f9f590998d92427ab7a83bba94ff5bf8fd2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb8d8f9f590998d92427ab7a83bba94ff5bf8fd2
 
 下载BT种子 [美国驱逐60名中国记者！那本书忽然下架，习近平败给蔡英文.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30821ea97c418037a819d76eadf5618cae92ebe6.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [劇情突然反轉，中共宣传自己又成大贏家？晕！伊朗卫生部副部长中招！（老北京茶館第256集20200226）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca8bd33eb6f1716c84df49ada9bc96e1d4354fd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6ca8bd33eb6f1716c84df49ada9bc96e1d4354fd
-
-下载BT种子 [【禁闻】2月26日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c686728a46773c91020a16b016759a2d63ac5be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c686728a46773c91020a16b016759a2d63ac5be
-
-下载BT种子 [【禁闻】2月26日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7acd6f043f09e808f3f1579cd7f322a287d677a8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7acd6f043f09e808f3f1579cd7f322a287d677a8
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
