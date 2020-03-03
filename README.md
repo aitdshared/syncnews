@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KStgHf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2JFsdz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠肺炎蔓延逾70國韓國新增599例伊朗官方通吿暴增523例印尼首次出現病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8
 
 下载BT种子 [武漢重症40多萬！獄中疫情再擴大！北京疫下「三戰」，中共玩「誰是真正兇手」，網安業者看到真相後的心理掙扎當局暗渡陳倉欲通過「外國人永居條例」，第39條可能引起「動亂」？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/feafcac7f3a432517fbc61655dcf59df32ebe8ca.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【环球直击】2月26日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cab33dfff786dba574db684870c269552b99e22.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9cab33dfff786dba574db684870c269552b99e22
-
-下载BT种子 [这样的漏洞一个毁全盘，北京有险！阎老西“秒踩”习主席（20200226第707期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6f128c430aa562468bb6228d1e18f770c29c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e1e6f128c430aa562468bb6228d1e18f770c29c3
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
