@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ALy7ZF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KStgHf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢重症40多萬！獄中疫情再擴大！北京疫下「三戰」，中共玩「誰是真正兇手」，網安業者看到真相後的心理掙扎當局暗渡陳倉欲通過「外國人永居條例」，第39條可能引起「動亂」？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/feafcac7f3a432517fbc61655dcf59df32ebe8ca.torrent)
+
+磁力链接 magnet:?xt=urn:btih:feafcac7f3a432517fbc61655dcf59df32ebe8ca
+
+下载BT种子 [《石濤聚焦》「美媒質詢彭斯：為什麼川普總統忍受習近平的謊言欺騙」美國務卿推文「大幅減少中共國5大媒體駐美人員數量-減少60人」限制中共國媒體簽證期限.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae00249aebabedffe420e2f7603e6edf941e9d29.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae00249aebabedffe420e2f7603e6edf941e9d29
 
 下载BT种子 [【禁闻】831事件半周年伞阵再现港警滥捕115人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bf003aeb2a4bcf11fa36012208f3fa5c50e75d2.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [这样的漏洞一个毁全盘，北京有险！阎老西“秒踩”习主席（20200226第707期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6f128c430aa562468bb6228d1e18f770c29c3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e1e6f128c430aa562468bb6228d1e18f770c29c3
-
-下载BT种子 [《石濤聚焦》「12年前李嘉誠花費3千萬調查習總仕途之路後」變賣一切離開中共國香江才子-陶傑「習總之“馬列初心”絕配“人類命運共同體”」共創武漢病毒之末世時節「神佛出手結束一切」天滅中共-生與滅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/812811d03aceddee9fdf673e95ce6b4a25645597.torrent)
-
-磁力链接 magnet:?xt=urn:btih:812811d03aceddee9fdf673e95ce6b4a25645597
-
-下载BT种子 [《石濤.News》「習總頻頻露面高層內訌被逼所致」王岐山全方位‘神隱’習總帶頭捐錢裸罩「掩蓋虛偽膽小怕死自卑不敢去武漢的事實」17萬官員大會-內訌彼此猜疑所致「習近平親手斷送中共之所為」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c6898f044b0f5e382f9193b57592a5f0b354830.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c6898f044b0f5e382f9193b57592a5f0b354830
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
