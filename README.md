@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HVjQoL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/usreWC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】宣传大于防疫中共借疫情扩展全球野心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a293364794a23de5d3a7a729ee1b4a4a203145d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a293364794a23de5d3a7a729ee1b4a4a203145d
+
+下载BT种子 [【禁闻】率先共享病毒基因上海P3实验室被关.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/916a10cddfda7ffd73407213978df72aa018db84.torrent)
+
+磁力链接 magnet:?xt=urn:btih:916a10cddfda7ffd73407213978df72aa018db84
 
 下载BT种子 [【全球疫情直擊】日韓伊朗疫情嚴峻病例暴增高層死亡周巧兒感染港富豪圈人心惶惶武肺移植器官來源探秘武漢監獄疫情持續大爆發台灣再添無症狀感染者紐約州市長：政府透明盡在掌控無須恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/214854be10d116474b673d44cb1993d4d5b89138.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【环球直击】2月27日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/140c7a7d29aea37512d90d959eb8173e3992e215.torrent)
 
 磁力链接 magnet:?xt=urn:btih:140c7a7d29aea37512d90d959eb8173e3992e215
-
-下载BT种子 [防民变，公安部长紧急呼喊：只听习近平！钟南山突发高论，意图甩锅外国？七常委捐款了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f04c24eaa349ec6e06072f2ca6a3b1c40144ad73.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f04c24eaa349ec6e06072f2ca6a3b1c40144ad73
-
-下载BT种子 [【禁闻】俄对中国人歧视性防疫中共不敢吭声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c8991af1acdef309b3fa3fd782add0bb410d8e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2c8991af1acdef309b3fa3fd782add0bb410d8e5
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
