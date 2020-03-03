@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/USBYZs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n3wGam)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】爸爸走了媽媽又住院我天天跑去易感染的醫院只能碰運氣了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/794126917522a267e821f31854a590826da17141.torrent)
+
+磁力链接 magnet:?xt=urn:btih:794126917522a267e821f31854a590826da17141
+
+下载BT种子 [【禁闻】新冠患者等5天换双肺供体来源存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4f5ed36fb5bd913c9b07aa6b5f3a897c1589f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a4f5ed36fb5bd913c9b07aa6b5f3a897c1589f4
 
 下载BT种子 [美國新增四起新冠肺炎死亡病例各地超市出現搶購民生物資.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce227dd05a77384a0e3399424d7b799126f8dc67.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [紐約市0例新冠肺炎籲聯邦協助加強防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a68e0de86ac60abcbd6714797ee87cdbbea91c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88a68e0de86ac60abcbd6714797ee87cdbbea91c
-
-下载BT种子 [廣東支援武漢醫療隊的防護設備告急醫護人員《柳葉刀》求助遭大陸全網查刪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e18a6a997d11cf9883dcd1e0953bff62bf2819.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35e18a6a997d11cf9883dcd1e0953bff62bf2819
-
-下载BT种子 [疫情蔓延6大洲伊朗一天內新增44例日本新增15起全球大流行風險擴大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1b21481cc5726b65d78d542769a4f5d910416db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1b21481cc5726b65d78d542769a4f5d910416db
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
