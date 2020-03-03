@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V16KXM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lVz2HC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「推背圖56完整預言：武漢病毒-非典2.0」源自金母木公（仙人東王公和西王母）之造化無干戈兵器之世界大戰海疆萬里禍連天「神仙造化之遊戲」（0303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/035a89754eca164f92f2f7a8c8a6b0bbb98ccdfd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:035a89754eca164f92f2f7a8c8a6b0bbb98ccdfd
 
 下载BT种子 [旅居荷蘭的武漢人：弟弟陈和建被武漢警察活活打死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ed43c71dddf62695a4c20490af26b9ec12cf51b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [当下韩国，我终于失业了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6cda632989cbda2a7840d1f9191b04731c54f1b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d6cda632989cbda2a7840d1f9191b04731c54f1b
-
-下载BT种子 [【全球新闻】2月26日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f44887541fc5f4fe18d7de11ec23aca4a2cb7fc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f44887541fc5f4fe18d7de11ec23aca4a2cb7fc6
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
