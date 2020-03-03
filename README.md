@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JZTuu8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9qeCg4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中藥防疫？雲南逼師生服「大鍋葯」惹議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/322e3c23d2c2c2aa62afda679009c96ce6550c15.torrent)
+
+磁力链接 magnet:?xt=urn:btih:322e3c23d2c2c2aa62afda679009c96ce6550c15
 
 下载BT种子 [《石濤聚焦》「美聯儲意外減息半厘市場大亂過山車」武漢病毒痛擊華爾街菁英自尊彭斯領導全美抗疫小組-白宮祈禱為先疫苗6週後製成最快年底投放市場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5e22414b3d1f971b399a3c6f85e2fa69bebcb7a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【中国禁闻】2月26日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4149519038acb17f2b3a117ca8794c50cb1274e8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4149519038acb17f2b3a117ca8794c50cb1274e8
-
-下载BT种子 [川普新聞會：美國風險低，備戰充分；深度分析中美面對緊急狀況的不同社會運行機制（江峰漫談20200227第126期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cb0b7baeea73d8f294a79fc23e73dbcd43f0a6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3cb0b7baeea73d8f294a79fc23e73dbcd43f0a6b
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
