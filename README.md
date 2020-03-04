@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0EHVPX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/szXiph)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa7dacc08c47758d84f93cf0efbd305b207a3bfe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa7dacc08c47758d84f93cf0efbd305b207a3bfe
 
 下载BT种子 [疫情蔓延全球79國伊朗確診23名國會議員感染美囯或出更多入境禁令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77449868cc4329671c6d9558505f277033478d6d.torrent)
 
@@ -624,30 +628,6 @@
 下载BT种子 [美籍華人回武漢探親遭遇封城趕上第二批撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5721731204f2c09d385a0ed8407b8324119f119b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5721731204f2c09d385a0ed8407b8324119f119b
-
-下载BT种子 [《石濤.News》「梵蒂岡教皇-狂咳擦鼻涕取消彌撒」美股持續暴跌疫情擴散美社區伊朗死亡率高達11%副總理與部長確診韓國狂飆近1800歐洲潰敗1日增加11國義大利與伊朗成新傳染輸出地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3039423807d44b57c45d3aad06e90cab71e704b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3039423807d44b57c45d3aad06e90cab71e704b0
-
-下载BT种子 [AI偵測口罩與體溫！台灣有科技公司推出四款方案助攻防疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946435f596921329c3e5c8e2199aa0de41a11eb2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:946435f596921329c3e5c8e2199aa0de41a11eb2
-
-下载BT种子 [呂旭明：香港局勢多變民眾需要慎重考量香港資金帳戶的去留.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d943eb4e9f3b9a18c6f0f74ea600142fb2d51cfb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d943eb4e9f3b9a18c6f0f74ea600142fb2d51cfb
-
-下载BT种子 [七常委捐款了！多少？关键时刻，某高官把话挑明了：只听习近平，不听李克强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0f02b22e0326506eb333ab8a64dbd15fdad33f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a0f02b22e0326506eb333ab8a64dbd15fdad33f9
-
-下载BT种子 [钟南山突发高论，意图甩锅外国？某部长高喊：只听习近平！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b2d42591b40676f705ad60038daf24a3c67e7c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71b2d42591b40676f705ad60038daf24a3c67e7c
-
-下载BT种子 [世衛專家自爆，調查受習近平授意，旨在向世界展示中國抗疫成效.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3569a860637138bf4e656ce34f8515681fd48f1d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3569a860637138bf4e656ce34f8515681fd48f1d
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
