@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YSMsKy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uXBfHo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [高调表扬周市长，李克强公开叫板习近平！钟南山带头宣誓保密。伊朗高官集体圆了中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d0a32285f997a6b6c469b0b755ce8e5e1b4730.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9d0a32285f997a6b6c469b0b755ce8e5e1b4730
 
 下载BT种子 [⚡️紐約華人走路突倒地！親歷者揭俄防疫狠招；伊朗屍體滿醫院，行人倒斃；武漢肺炎痊癒者頻「還陽」；東京奧運80年前因武漢取消；真來了！中國下令嚴防蝗蟲入境新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc21934d24ba04025cd379087562c7a4425b3afd.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】反制中共彭博社：美国考虑驱逐中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7
-
-下载BT种子 [【禁闻】多国补助隔离者中共藉“抗疫”发财.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7299fc0a4c1c3e79d3ed01530d8ba2d148bbb455.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7299fc0a4c1c3e79d3ed01530d8ba2d148bbb455
 
 下载BT种子 [【禁闻】黑龙江省法轮功学员李秀芹被迫害致死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364aaa81eba0e2f7e3b5e08a1250128b77517b0b.torrent)
 
