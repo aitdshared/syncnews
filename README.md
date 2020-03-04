@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6shqUf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/de79iu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [日本正面臨疫情全面爆發危機民眾則普遍希望政府舉辦奧運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5373a60e87104c7c289a352211b025465bf54f22.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5373a60e87104c7c289a352211b025465bf54f22
+
+下载BT种子 [武漢封城逾40天居民：每天活在恐懼中嚴酷封閉家中快斷糧未獲任何救濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97859d97eb857b439659cf8d76f9fb4e64fda10e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:97859d97eb857b439659cf8d76f9fb4e64fda10e
+
+下载BT种子 [貴州教師談論疫情武漢一天就死500人被拘十天取消教師資格.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46807e0e1f1ad141a0a20478b0e6fc9b06b3c15a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:46807e0e1f1ad141a0a20478b0e6fc9b06b3c15a
+
+下载BT种子 [新冠病毒持續傳播世衛：全球新冠病毒致命率上調至3.4%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbc5f72961d1f7ec2e3483d153cf5fbdf6e54b04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dbc5f72961d1f7ec2e3483d153cf5fbdf6e54b04
 
 下载BT种子 [高调表扬周市长，李克强公开叫板习近平！钟南山带头宣誓保密。伊朗高官集体圆了中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d0a32285f997a6b6c469b0b755ce8e5e1b4730.torrent)
 
@@ -612,22 +628,6 @@
 下载BT种子 [【禁闻】拐点未到已复工董宇红谈民众如何自保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60ec98385b1c00a67bb09fd03b5d4fef03ea9181.torrent)
 
 磁力链接 magnet:?xt=urn:btih:60ec98385b1c00a67bb09fd03b5d4fef03ea9181
-
-下载BT种子 [【禁闻】新冠病毒攻入伊朗最高层副总统确诊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc6b2883d668c4aef56da13b3aedd1c8c8df373f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc6b2883d668c4aef56da13b3aedd1c8c8df373f
-
-下载BT种子 [【禁闻】2月28日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e9f1bd67e7169542a9e5784c7c450313e683cfc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e9f1bd67e7169542a9e5784c7c450313e683cfc
-
-下载BT种子 [【禁闻】反制中共彭博社：美国考虑驱逐中国记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2a68f33990ee27c8a7980b0f1da78ca3a4f5a7c7
-
-下载BT种子 [【禁闻】黑龙江省法轮功学员李秀芹被迫害致死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364aaa81eba0e2f7e3b5e08a1250128b77517b0b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:364aaa81eba0e2f7e3b5e08a1250128b77517b0b
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
