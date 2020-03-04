@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/usreWC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d8e8ed)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美国硬怼！吊销60党媒记者；“病夫”大战与傻白甜反击（20200303第710期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e63393622771d77705dac30ccdec3e85f71db72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e63393622771d77705dac30ccdec3e85f71db72
 
 下载BT种子 [【禁闻】宣传大于防疫中共借疫情扩展全球野心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a293364794a23de5d3a7a729ee1b4a4a203145d.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [世衛專家自爆，調查受習近平授意，旨在向世界展示中國抗疫成效.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3569a860637138bf4e656ce34f8515681fd48f1d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3569a860637138bf4e656ce34f8515681fd48f1d
-
-下载BT种子 [【环球直击】2月27日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/140c7a7d29aea37512d90d959eb8173e3992e215.torrent)
-
-磁力链接 magnet:?xt=urn:btih:140c7a7d29aea37512d90d959eb8173e3992e215
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
