@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AaCbKR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AunXD8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國綠卡還是中國紅卡？《外國人長期居留管理條例》徵求意見徵得罵聲一片；“中國人民的好朋友”與中國人民的人口與資源之爭（江峰漫談20200304第130期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5d4b40896d2e1e81d256de98dd6fd799ae82c60.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d5d4b40896d2e1e81d256de98dd6fd799ae82c60
 
 下载BT种子 [《濤哥侃封神》「封神演義第二十八回西伯兵伐崇侯虎」姜子牙以文王受白旄黃鉞授權之由清君側盼紂王悔過從善討伐崇侯虎（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84588d4534e0583603e1491ed602067f829083fb.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [新冠状病毒开始在美国和德国社区传播,日本学校停课至四月初,教皇染病,伊朗副总理确诊,我们应该储备哪些应急物品，并做好那些经济上的准备(政论天下第121集20200227)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4a832627d135daa9f367be97c78539065746614.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c4a832627d135daa9f367be97c78539065746614
-
-下载BT种子 [【环球直击】2月27日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a3065d286dc3ec0224d7b1ce65cd8eb7d0fbfe2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a3065d286dc3ec0224d7b1ce65cd8eb7d0fbfe2
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
