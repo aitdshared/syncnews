@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NanSVG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LOpkLB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】美國狙擊大外宣；大陸全民反外國人永久居留條例；兩隻黑天鵝同出一源？熱點互動03032020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8acff8d8309f0addfe13a9c39b9ed949ee767f35.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8acff8d8309f0addfe13a9c39b9ed949ee767f35
 
 下载BT种子 [史上最严的互联网新规出台;美国形同驱逐中国记者;中共自称“最大赢家”,其体制优势还不如北韩(政论天下第124集20200303)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1daed232af3c62bfd65be5dfc6567f89a815e217.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「鎮海宮為台灣抽籤驚呼“太準啦！”」哈佛教授“一年內全球70%人將被感染”英媒-英政府內部文件「歐洲淪陷英國80%人將被感染50萬人死亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2994176e8ae5a342c09012e9e2a4335072c59ece.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2994176e8ae5a342c09012e9e2a4335072c59ece
-
-下载BT种子 [《石濤聚焦》「財新網硬揭真相：12月已有病毒圖譜中央下令銷毀」原央視現公民記者-李澤華被抓中南海內訌高潮習總“親自指揮”掩蓋疫情虐國人坑全球WHO坦承中共國拒絕提供醫護人員染病資料掩蓋醫院慘狀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e5ca4e89c6c695fb5f4e6ef3a69ce414fb2fb79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e5ca4e89c6c695fb5f4e6ef3a69ce414fb2fb79
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
