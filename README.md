@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/80joS9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LbYpbK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [供銷社來了！美國出手，共媒裁員60人！方艙醫院關閉？「兩個一千萬」北京賭誰死？媒體死亡的代價！伊朗醫院屍體遍地！川普挑明病毒來源！華南海鮮市場拆了？流浪武漢街頭20天，頭髮白一半【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8752c84b0d636365947388737a00c77a8687965.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8752c84b0d636365947388737a00c77a8687965
+
+下载BT种子 [【中國禁聞】3月3日完整版-1.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27a937b1262f2bf7e3b81e60c55607263fda40ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:27a937b1262f2bf7e3b81e60c55607263fda40ae
+
+下载BT种子 [【禁闻】反制大外宣美下令新华社等裁减在美员工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc6a00623901449bbd2f530d628e168456e233e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc6a00623901449bbd2f530d628e168456e233e0
 
 下载BT种子 [【禁闻】3月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa7dacc08c47758d84f93cf0efbd305b207a3bfe.torrent)
 
@@ -613,21 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:7e5ca4e89c6c695fb5f4e6ef3a69ce414fb2fb79
 
-下载BT种子 [湖北一老人在家中死亡未滿6歲的孫子獨自一人守屍體多日靠餅乾度日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e246dbeac4a9d2ede2c0e6617fc37494dab4dc06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e246dbeac4a9d2ede2c0e6617fc37494dab4dc06
-
-下载BT种子 [新冠病毒蔓延各大洲沙特封關阻百萬朝覲者海外新增病例555例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85f2faeb95016da1e69c0c239e17e3afffb75ed6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85f2faeb95016da1e69c0c239e17e3afffb75ed6
-
 下载BT种子 [武漢又有兩卡車蔬菜遭到武漢城管搶劫市民：從未獲得捐助物資都花高價賣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69b70a0e8d16ddf77acd3e0dcdedab25295e615a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:69b70a0e8d16ddf77acd3e0dcdedab25295e615a
-
-下载BT种子 [美籍華人回武漢探親遭遇封城趕上第二批撤僑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5721731204f2c09d385a0ed8407b8324119f119b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5721731204f2c09d385a0ed8407b8324119f119b
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
