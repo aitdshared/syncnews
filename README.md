@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HwlJsm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HtgCuJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [外交搏击，有一事中共帮了美国大忙？四套班子摆阵势，习李王各拥司令部.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43e5cafe6873951f8f06b47683107de1319d761a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43e5cafe6873951f8f06b47683107de1319d761a
 
 下载BT种子 [外交搏击，有一事中共帮了美国大忙！四套班子乱江城，习李王权力混战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34ce9f40c64004271ba960ef0f13aecc0b989d93.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】新冠疫情冲击中国牵动世界经济格局.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64fe17d14543d86cb94ad91192e89957749aa083.torrent)
 
 磁力链接 magnet:?xt=urn:btih:64fe17d14543d86cb94ad91192e89957749aa083
-
-下载BT种子 [习近平最高规格逼捐，中共“螺旋拐点”产生意外效果（20200228第708期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/336e0627b8523d77803a9e6133661824fa0e7cd6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:336e0627b8523d77803a9e6133661824fa0e7cd6
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
