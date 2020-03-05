@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LySoOE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D8l6zV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韓病例逾6千限購口罩日本推遲習近平訪日將對從中國和韓國入境的旅客隔離14天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2a7ed7b0e8a5fb6ed4b08806725019e4ba9a282.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d2a7ed7b0e8a5fb6ed4b08806725019e4ba9a282
+
+下载BT种子 [中國朝鮮族網民自曝利用上千個帳號操縱韓國網絡輿論韓國社會擔憂中共網絡水軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1df3557f877fe89d371e9d10715db4071b29230b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1df3557f877fe89d371e9d10715db4071b29230b
 
 下载BT种子 [《石濤聚焦》「武漢病毒感染者近10萬81國被掩蓋後死亡3300」美軍聯繫會議-30天內全球大爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acb3a42ea78fe1f7a9a5ab8af8db2dcdeed44b8.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【禁闻】《柳叶刀》中国医护求助文章作者要求撤回.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e33ecc5c5dbe100e9c3c2004dbe3cd3cad65dfe.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e33ecc5c5dbe100e9c3c2004dbe3cd3cad65dfe
-
-下载BT种子 [【禁闻】2月28日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/829031950a48602016ce1174d1563212c086337d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:829031950a48602016ce1174d1563212c086337d
-
-下载BT种子 [新冠肺炎至少傳染25國據透露伊朗至少死亡210人美國願幫伊朗對抗疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20c8881a47dd3239c24c6a956cc47d85052ddea4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20c8881a47dd3239c24c6a956cc47d85052ddea4
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
