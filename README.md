@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/metIb2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YUpgiX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】监狱疫情爆发在押律师家属焦虑问询无门.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04df599f7bb14e8a5e4d6a52d78ed5028c16eb6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:04df599f7bb14e8a5e4d6a52d78ed5028c16eb6b
+
+下载BT种子 [【禁闻】党媒称“日子像蜜甜”北京人举报王沪宁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/813b15d4044da155d577e9d43bf4d091af993fcf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:813b15d4044da155d577e9d43bf4d091af993fcf
 
 下载BT种子 [【禁闻】外国人永居获超国民待遇新条例惹争议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84a065b9155eb916c481b548d618679e19ad57af.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第二十七回太師回兵陳十策」聞太師十策有三魂-拆鹿臺-人殺費仲尤渾-地貶妲己-天「天下興好事行；天下亡禍胎降」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77969c2144f14723cb112c983096c06a8604a323.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77969c2144f14723cb112c983096c06a8604a323
-
-下载BT种子 [防火牆的大本營被攻陷；常委帶頭捐款的背后打算；鐘南山教授称疫源地不在中國带动舆论風向標（江峰漫談20200228第127期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/154d11fab68e7ce10d702a08581f916d69a103f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:154d11fab68e7ce10d702a08581f916d69a103f2
-
-下载BT种子 [李澤華尋真炒了央視和逆淘汰！重慶小夥黃洋四帖火了！壓不彎的中國人，貌似希望已噴發啦！（老北京茶館第2567集20200227）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34457ca67a75947264a173a68a4e6c30e21fa8ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:34457ca67a75947264a173a68a4e6c30e21fa8ce
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
