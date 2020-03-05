@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mm5PuQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3ccIBF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】报告：去年12月“人传人”就成微信敏感词.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08a3884961104b1cc33b805a50ec6a697bafc2fa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:08a3884961104b1cc33b805a50ec6a697bafc2fa
 
 下载BT种子 [《石濤.News》「推背圖57大疫過後三尺童子滅中共」武漢病毒乃王母造化「物极必反以毒制毒」坎离相克见天倪将燎原之火【毛澤東“星星之火可以燎原”】扑灭净尽而厄运自此终矣「天滅中共生與滅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02fc71415d25cd269e31027a7f66f7522e6dc430.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [疫情加劇伊朗副總統感染日本關閉學校.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a134596748631f31ef417ff732831ece6bc291.torrent)
 
 磁力链接 magnet:?xt=urn:btih:91a134596748631f31ef417ff732831ece6bc291
-
-下载BT种子 [2020大選南卡黨內初選拜登去留關鍵時刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edfebc3c00fb1a527211a2996722a4fa270ae636.torrent)
-
-磁力链接 magnet:?xt=urn:btih:edfebc3c00fb1a527211a2996722a4fa270ae636
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
