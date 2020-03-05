@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NI4Z9E)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SvxSub)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月4日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fd171ca5cc9b578a14329f7650680ade70cab29.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3fd171ca5cc9b578a14329f7650680ade70cab29
 
 下载BT种子 [美國接連出手，大外宣是否會大縮水？下一步拿I簽證的中共權貴家屬懸了？加州宣布緊急狀態，居民們慌嗎？蕭恩吳建民熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19ff31129120cfef1ef21e21a38b84df06111692.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】恐民变？内部文件显示防疫重点是维稳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6648586b0482c8408607ec7fb010ed3080b013e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c6648586b0482c8408607ec7fb010ed3080b013e
-
-下载BT种子 [【环球直击】2月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a490820834fe504f4c8190f711d27d5fe9dcb92.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a490820834fe504f4c8190f711d27d5fe9dcb92
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
