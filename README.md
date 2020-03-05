@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JIvhzY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7N6q74)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月4日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bca076a64171c32e98f5397c5fb77cc892dcfdf7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bca076a64171c32e98f5397c5fb77cc892dcfdf7
+
+下载BT种子 [【禁闻】3月4日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11b832b1063f5562ffa4e35b5dea1b68923a9ad9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:11b832b1063f5562ffa4e35b5dea1b68923a9ad9
 
 下载BT种子 [取代華為美加速尋求5G替代供應商.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96b30bf61739fd645f1a87c88cd34bc9b061d9d3.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [大疫當前中共出書自誇網民：中共禍害國人禍害了全世界就算剖腹都無法洗刷其罪惡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e77b30f6e4b7e53c711043a2cdea2be16bf96ef7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e77b30f6e4b7e53c711043a2cdea2be16bf96ef7
-
-下载BT种子 [世衛首次指出中共應對疫情缺陷鄂衛建委命銷毀病例樣本.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45ff3cc36446919bb27d39eecab26a3f7444c049.torrent)
-
-磁力链接 magnet:?xt=urn:btih:45ff3cc36446919bb27d39eecab26a3f7444c049
-
-下载BT种子 [美國CDC發現一例沒有疫區旅行史及密切接觸史的病例修改檢測標準彭斯：確保所有資源到位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f3bb5a7a711ea7d5d3e766f91370754ae3454b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f3bb5a7a711ea7d5d3e766f91370754ae3454b7
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
