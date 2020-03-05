@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R8qoh0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MaiO3U)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集20200304）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73b0dd7e21c7dda1bdb875fb4e63e754084945f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c73b0dd7e21c7dda1bdb875fb4e63e754084945f
 
 下载BT种子 [韩国媒体大赞台湾，台湾“好想赢韩国”变身“轻松赢韩国”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0da1f057235f07f60c5cf10e044f8e2af4da9524.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【解讀】陰謀？中共暗示病毒來自境外；糧價飆漲，官員壟斷賺飽？公民記者李澤華下落不明；世衛警告「全球大流行」（2020.2.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98883d4dabedc2a63e5cff5cda18c96737e4f76f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:98883d4dabedc2a63e5cff5cda18c96737e4f76f
-
-下载BT种子 [国家副主席中招？前常委儿媳闯关入京！伊朗副总统倒在中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9ce4b7f03bdd439baf72a733422df06f6421ef8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9ce4b7f03bdd439baf72a733422df06f6421ef8
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
