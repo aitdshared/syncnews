@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YUqMXv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gleGvK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e83af9bdb7fe5ad4fc2af007cdd412a7447964a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e83af9bdb7fe5ad4fc2af007cdd412a7447964a
 
 下载BT种子 [《石濤聚焦》「中共國首席生化武器專家女少將陳薇‘親使第一針疫苗’全網瘋傳」王滬寧瘋了！習近平傻了-剛剛帶罩視察完軍事醫學科學院疫苗就扎到武漢抗疫總指揮身上「中共的速度習總的力量王滬寧的手段」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc40689fc11cdb4decec766b77849bef1e471e25.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1
-
-下载BT种子 [【禁闻】二次感染？血浆疗法？李秉颖医生解惑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fc6f40a1cd86cb6158ffac99fe83cd69d4a2dfd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6fc6f40a1cd86cb6158ffac99fe83cd69d4a2dfd
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
