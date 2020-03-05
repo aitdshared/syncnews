@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iLhoxi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T26xDz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蘇州公安強制開工：感染了換另一批人繼續幹人多的是.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fcfb2290c2de8a7d0bede86f1b1302924f8cd5a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4fcfb2290c2de8a7d0bede86f1b1302924f8cd5a
+
+下载BT种子 [武漢一家方艙醫院證實近期出院的較多患者又復發重新入院引發公眾恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b42f1c513f97b041abd069144eedfaf6dc170c54.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b42f1c513f97b041abd069144eedfaf6dc170c54
+
+下载BT种子 [目前美國包括撤僑有100多起確診白宮疫情記者會各部門專家：風險仍很低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6baad64ba6067c115fd83284db19f6a03f0f53a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6baad64ba6067c115fd83284db19f6a03f0f53a0
+
+下载BT种子 [美國83億美元緊急資金對抗新冠用於醫療疫苗研發及應對海外疫情等.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b79d086fa066b3d8e5c3e8bcb063502695b89f7f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b79d086fa066b3d8e5c3e8bcb063502695b89f7f
 
 下载BT种子 [外交搏击，有一事中共帮了美国大忙？四套班子摆阵势，习李王各拥司令部.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43e5cafe6873951f8f06b47683107de1319d761a.torrent)
 
@@ -609,25 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:20c8881a47dd3239c24c6a956cc47d85052ddea4
 
-下载BT种子 [國際體育法庭裁定中國游泳名將孫楊違反興奮劑規則被禁賽8年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7817bd71ebca4a975f4322afe52d90b34af1998.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d7817bd71ebca4a975f4322afe52d90b34af1998
-
 下载BT种子 [新冠疫情加劇世衛再次升高在全球傳播的風險等級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e67c10da0efc1be196d4d98e2da5e755c8c3c93.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6e67c10da0efc1be196d4d98e2da5e755c8c3c93
-
-下载BT种子 [全球52億人將染病？穿紙尿褲的光頭女醫護，每天想哭100次的孕產婦，銷毀外省捐助食物的秘密！逾百位國際學者致信習近平「還民言論自由」【新聞看點李沐陽】02.28.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5955e56ae8057050d1ed4d795a9f22a82615109e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5955e56ae8057050d1ed4d795a9f22a82615109e
-
-下载BT种子 [中共网信办失守,抓捕李泽华和黎智英背后的权谋计算(政论天下第122集20200228)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7eae5df91151b9288fa6100633cf4518d8dc0816.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7eae5df91151b9288fa6100633cf4518d8dc0816
-
-下载BT种子 [【禁闻】新冠疫情冲击中国牵动世界经济格局.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64fe17d14543d86cb94ad91192e89957749aa083.torrent)
-
-磁力链接 magnet:?xt=urn:btih:64fe17d14543d86cb94ad91192e89957749aa083
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
