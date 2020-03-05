@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/a1W2OO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Fqkc4f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -628,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「孫楊成了Loser」因違反藥檢規則被國際體育仲裁法庭裁定：禁賽8年即時執行頓失東京奧運會資格「終身殘廢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d103ee7c86d575e60054cdc43718fb16df8b11d4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d103ee7c86d575e60054cdc43718fb16df8b11d4
-
-下载BT种子 [【禁闻】恐民变？内部文件显示防疫重点是维稳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6648586b0482c8408607ec7fb010ed3080b013e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6648586b0482c8408607ec7fb010ed3080b013e
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
