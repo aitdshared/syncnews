@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NHlk2d)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R8qoh0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韩国媒体大赞台湾，台湾“好想赢韩国”变身“轻松赢韩国”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0da1f057235f07f60c5cf10e044f8e2af4da9524.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0da1f057235f07f60c5cf10e044f8e2af4da9524
 
 下载BT种子 [世衛調高死亡率，病毒已突變，傳染力更強！有人迂迴向習問責？北京五大短板，日子難熬。復工女性倒在車間，武鋼從沒停產，青山區疫情爆發，網友發現新增病例為「0」的背後有問題！【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58731b9c9aed3961eae67dfe5f7a5f198d1afc20.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [国家副主席中招？前常委儿媳闯关入京！伊朗副总统倒在中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9ce4b7f03bdd439baf72a733422df06f6421ef8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a9ce4b7f03bdd439baf72a733422df06f6421ef8
-
-下载BT种子 [【全球疫情直擊】武漢肺炎持續蔓延全球擴散中共藉疫情污衊神韻美衛生部門駁斥謠言抗體不足日本女二次感染世界之都紐約無感染華人對美防疫有信心前央視主持李澤華訪武漢真相被捕2月28日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6785d7036ab39834901b40abbac4033f72dd76a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d6785d7036ab39834901b40abbac4033f72dd76a
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
