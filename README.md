@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TTB4s8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q8zwT8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc2c2118dbd6508dec08593de918ea698f414a65.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc2c2118dbd6508dec08593de918ea698f414a65
 
 下载BT种子 [《濤哥侃封神》「封神演義第二十九回斬侯虎文王托孤」子牙書信明善惡黑虎折服寧得罪宗族也不願失信天下崇黑虎設計拿兄長（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca6a3f5fda62e74b0211b7b3ebb990ca6b739410.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「美股過山車：現跌過千點再反彈13年最慘一週」比爾蓋茨「人類遭遇了百年一次大瘟疫是我們早已期待的」WHO向全球再提高至“非常嚴重”警告50個國家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31b94b60e042b0d907e2d5fe0f6c1208025d5236.torrent)
 
 磁力链接 magnet:?xt=urn:btih:31b94b60e042b0d907e2d5fe0f6c1208025d5236
-
-下载BT种子 [《石濤聚焦》「孫楊成了Loser」因違反藥檢規則被國際體育仲裁法庭裁定：禁賽8年即時執行頓失東京奧運會資格「終身殘廢」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d103ee7c86d575e60054cdc43718fb16df8b11d4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d103ee7c86d575e60054cdc43718fb16df8b11d4
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
