@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rMTNu1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xzUzOg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月5日新冠肺炎疫情改变海外华人对中国看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa69af62c09d6622de9d761e1853a0199b916bd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:daa69af62c09d6622de9d761e1853a0199b916bd
+
+下载BT种子 [【微视频】美国卫生部长国会报告被忽略的细节.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50a2003f3f5b4586298fef96e3c8df8ecf83c6b4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:50a2003f3f5b4586298fef96e3c8df8ecf83c6b4
 
 下载BT种子 [【环球直击】3月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e83af9bdb7fe5ad4fc2af007cdd412a7447964a.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「BBC：伊朗起碼死亡210人集中在首都德黑蘭」美國務卿：中共國與伊朗故意掩蓋事實坑害全世界「韓國確診近3千美加州再傳社區感染」義大利與伊朗成新的傳染源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66f2c95bfbcab1358e7204a26aff5c947de5db4d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:66f2c95bfbcab1358e7204a26aff5c947de5db4d
-
-下载BT种子 [《石濤.News》「CNN：蒙古總統握手習總回國即刻隔離14天」含義-習總花錢請的習總與李克強周圍被定格疫區？「傳：栗戰書女婿染病專機接京301拒絕轉住中日習近平勃然大怒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52e634ea3520cfa46e5afed94b300a206e597895.torrent)
-
-磁力链接 magnet:?xt=urn:btih:52e634ea3520cfa46e5afed94b300a206e597895
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
