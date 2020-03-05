@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p2dtac)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qqPHNo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】台抗疫经验登国际期刊专家：他国可借鉴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/397bf70c1db8bb55faa72856fdeff6757928afcf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:397bf70c1db8bb55faa72856fdeff6757928afcf
+
+下载BT种子 [【禁闻】孙春兰武汉视察社区居民怒吼：全是假的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfe9ef951a6a02bcd3cf7d6e14f07523c7e8f348.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dfe9ef951a6a02bcd3cf7d6e14f07523c7e8f348
 
 下载BT种子 [【一線採訪】武漢辛女士：官方死亡數據太可笑我每天都看到有病亡的被抬出來真的太多還有跳樓的上吊的真的太多了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b883872d046eeb1f14b06287fdf496e6c2144808.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [孫楊興奮劑事件國際仲裁禁賽八年，輿論導向民族主義；美國無接觸病例確診，社區感染即將爆發，疾控中心呼籲做好準備（江峰漫談20200229第128期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa45f70f23c45703c6f5f00b2a44750ae32b7eb5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aa45f70f23c45703c6f5f00b2a44750ae32b7eb5
-
-下载BT种子 [【全球新闻】2月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64d8f74254204fa0f1be64b987ed1a89d0bb2117.torrent)
-
-磁力链接 magnet:?xt=urn:btih:64d8f74254204fa0f1be64b987ed1a89d0bb2117
-
-下载BT种子 [尋找李澤華陳秋實方斌，再賦阿房宮（老北京茶館第258集20200228）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10c15006ae4443152ab4ccbd64642e7f00b6ece3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:10c15006ae4443152ab4ccbd64642e7f00b6ece3
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
