@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xzUzOg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RpFFjP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】武漢辛女士：官方死亡數據太可笑我每天都看到有病亡的被抬出來真的太多還有跳樓的上吊的真的太多了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b883872d046eeb1f14b06287fdf496e6c2144808.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b883872d046eeb1f14b06287fdf496e6c2144808
 
 下载BT种子 [【禁闻】3月5日新冠肺炎疫情改变海外华人对中国看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa69af62c09d6622de9d761e1853a0199b916bd.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [尋找李澤華陳秋實方斌，再賦阿房宮（老北京茶館第258集20200228）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10c15006ae4443152ab4ccbd64642e7f00b6ece3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:10c15006ae4443152ab4ccbd64642e7f00b6ece3
-
-下载BT种子 [《石濤聚焦》「BBC：伊朗起碼死亡210人集中在首都德黑蘭」美國務卿：中共國與伊朗故意掩蓋事實坑害全世界「韓國確診近3千美加州再傳社區感染」義大利與伊朗成新的傳染源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66f2c95bfbcab1358e7204a26aff5c947de5db4d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:66f2c95bfbcab1358e7204a26aff5c947de5db4d
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
