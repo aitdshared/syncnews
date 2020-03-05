@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nSIh3O)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tcl90U)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [取代華為美加速尋求5G替代供應商.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96b30bf61739fd645f1a87c88cd34bc9b061d9d3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96b30bf61739fd645f1a87c88cd34bc9b061d9d3
+
+下载BT种子 [川普：公衆在美國國內旅行是安全的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0310b61a4bc3125e3c80bb770c10f56a75a12a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e0310b61a4bc3125e3c80bb770c10f56a75a12a3
+
+下载BT种子 [【真理部的荒誕故事】港首辦公室的「抗病毒」怪波.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e7f6ee5c935b0fce32abdd2e40e90f5e88405a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e7f6ee5c935b0fce32abdd2e40e90f5e88405a3
+
+下载BT种子 [美國確認第九例新冠狀病毒感染死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c45f7aaed84e2b9f2a09d2448865af51f72fc13.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c45f7aaed84e2b9f2a09d2448865af51f72fc13
+
+下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:90e034614e8f5ad2bc563d0fc718fd23d8b1350f
 
 下载BT种子 [中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集20200304）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73b0dd7e21c7dda1bdb875fb4e63e754084945f.torrent)
 
@@ -608,26 +628,6 @@
 下载BT种子 [美國CDC發現一例沒有疫區旅行史及密切接觸史的病例修改檢測標準彭斯：確保所有資源到位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f3bb5a7a711ea7d5d3e766f91370754ae3454b7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f3bb5a7a711ea7d5d3e766f91370754ae3454b7
-
-下载BT种子 [美國華裔副教授被捕隱瞞與中共關係欺騙並參與NASA一項計劃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b3869e4ab15cfcf52bcff74dfcb091f0d088e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:36b3869e4ab15cfcf52bcff74dfcb091f0d088e5
-
-下载BT种子 [港府大抓捕黎智英等三人被抓李卓人：港府「大算帳」濫捕英媒：表明港府報復.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a17ae6586bae0a6971aaf579dff750a75dba20c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a17ae6586bae0a6971aaf579dff750a75dba20c8
-
-下载BT种子 [新冠病毒全球擴散迪士尼關閉亞洲所有樂園伊朗高官被確診蒙古總統訪中國後被隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a404d07ffb7149f2afafe5e3ad39cd18a410873.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a404d07ffb7149f2afafe5e3ad39cd18a410873
-
-下载BT种子 [【环球直击】2月28日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e348a0800f063bb71b6b60b6c024d88b25b11fdc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e348a0800f063bb71b6b60b6c024d88b25b11fdc
-
-下载BT种子 [【解讀】陰謀？中共暗示病毒來自境外；糧價飆漲，官員壟斷賺飽？公民記者李澤華下落不明；世衛警告「全球大流行」（2020.2.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98883d4dabedc2a63e5cff5cda18c96737e4f76f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98883d4dabedc2a63e5cff5cda18c96737e4f76f
 
 下载BT种子 [习近平豁出去部署“两紧别处松”，为何像刺猬？“最可爱的人”陷阱（20200225第706期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a185d74ff6c1f7c593d3ffee4f63f38a280539c.torrent)
 
