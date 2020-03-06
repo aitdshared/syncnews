@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JY4Yl8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3K1o5a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月6日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cb5bf721310ce8cfa1c4a94732039f1ecd898b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6cb5bf721310ce8cfa1c4a94732039f1ecd898b2
 
 下载BT种子 [👉沒工資、天價菜、頻跳樓，武漢訪民天降！孫春蘭措手不及；朝鮮威脅槍斃越境華人；新冠病毒現2個亞型，出院者氣管堵瑟喪生；香港狗隻真確診；油管黃標：上頭有壓力新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6b66e94f3a4fa41f14a6c73e6e54d162f84175f.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [一周经济回顾（2020年3月1日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e460609d2368e883763551704b6d69a1c68efc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:35e460609d2368e883763551704b6d69a1c68efc
-
-下载BT种子 [【Jason快評】哪國確診數含金量高？美國爲何前期沒有廣泛進行病毒測試？科普一個關鍵的統計學概念熱點互動02292020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/612dbcc9a98ce166864f65ddc6b3ab96ef95041d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:612dbcc9a98ce166864f65ddc6b3ab96ef95041d
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
