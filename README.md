@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dqTbXZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7lM4vU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [副總理孫春蘭來武漢被困在家裡40多天的小區居民們怒吼：「全部都是假的」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d62e096f775ae87fdb223d42948082977191aa75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d62e096f775ae87fdb223d42948082977191aa75
 
 下载BT种子 [【蕭茗訪談】為什麼中共拒絕讓美國專家來華？班農：大瘟疫！武漢肺炎已失控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6831bdd570f7ba98c5c8324c77d698baa69e1fbb.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】《约在春天相见》创作者：盼中国春天来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d56b172043611c9d07d6fce00d0c99e6b0264565.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d56b172043611c9d07d6fce00d0c99e6b0264565
-
-下载BT种子 [《石濤聚焦》「下令黨員上第一線的張文宏“上海復工後反而零確診怎麼可能？“」一開始以為中國控制住世界就沒事了但世界出事了上海復旦華山感染科主任張文宏「無論疫苗或藥物中共國是來不及了」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8336953e74f6b3c6c0372896303ff5970ace016d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8336953e74f6b3c6c0372896303ff5970ace016d
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
