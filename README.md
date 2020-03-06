@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ur1Df2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cM9ZjC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《台北法案》通過，台灣國家地位提升，世衛組織不開門迎接就等著關門吧；歷史迷思：美國從未“承認”一個中國的原則！（江峰漫談20200305第131期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f196dcf1075806b2a099adcb92af66de460ef420.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f196dcf1075806b2a099adcb92af66de460ef420
 
 下载BT种子 [【全球新闻】3月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09f2797a75d0f63cdbebe1a28f004ca594143491.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「鐘南山更似黨醫沙皇-掌控90公司」網傳女兒是首位被國際禁賽的中國女游泳運動員聲言武漢病毒可能源自國外遭上海復旦「讓黨員先上」醫師張文宏斷然否定（2902）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c77ebb94b952b3b1394fac7189cf3cdf35b64f6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1c77ebb94b952b3b1394fac7189cf3cdf35b64f6
-
-下载BT种子 [《石濤聚焦》「美國出現首位本土患者死亡川普急了」美國正面應對爆發可能義大利飆升27%伊朗拼命死亡韓國近4千但與日本同樣控制了死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ad87725319b64270ad626cfec98d9605a39211f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5ad87725319b64270ad626cfec98d9605a39211f
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
