@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h4De3i)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QbbzwN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「習近平近期視察武漢-挑戰死亡威脅？」配料已現：孫春蘭視察遇抗議官媒改說人話湖北赤壁等2城解封原湖北書記蔣超良人大官位被砍-習總推責「歐美疫情快速擴散習總-人類領袖樹立良機」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58711eeb636151e8aa20f68c757f9cdb1c7f145a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:58711eeb636151e8aa20f68c757f9cdb1c7f145a
 
 下载BT种子 [副總理孫春蘭來武漢被困在家裡40多天的小區居民們怒吼：「全部都是假的」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d62e096f775ae87fdb223d42948082977191aa75.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】上门抓捕黎智英等三人能平息抗议吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78491bff07d59e14e7ea16d98b4480dc95d388b2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:78491bff07d59e14e7ea16d98b4480dc95d388b2
-
-下载BT种子 [【禁闻】世卫专家组组长自曝赴中国调查内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b148717bfc9227fd30f2ecd64931d9ac2a2a6ec2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b148717bfc9227fd30f2ecd64931d9ac2a2a6ec2
 
 下载BT种子 [【禁闻】《约在春天相见》创作者：盼中国春天来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d56b172043611c9d07d6fce00d0c99e6b0264565.torrent)
 
