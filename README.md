@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zz3wb8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5tfFns)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠病毒全球疫情梵蒂岡現首宗病例伊朗累計超過4700人感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd3d2628553d8cb2a688504e399ac9dd4676095f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cd3d2628553d8cb2a688504e399ac9dd4676095f
+
+下载BT种子 [疫情導致學校停課日本家長喜憂參半.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28453ba639c3e0ecf57373d651ff25e8b4663870.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28453ba639c3e0ecf57373d651ff25e8b4663870
+
+下载BT种子 [旅美獨立學者吴祚来：中共沒能控制疫情海外華人需要經歷脫離中共洗腦和傷害的過程.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9d18b185527bba8821b9c8bbd92184c57e95b8f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f9d18b185527bba8821b9c8bbd92184c57e95b8f
+
+下载BT种子 [中共媒體與5G威脅蓬佩奧埃斯珀回應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba2ceae0aa2ff2a74dd4fde19b5d90132f3e00b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ba2ceae0aa2ff2a74dd4fde19b5d90132f3e00b
 
 下载BT种子 [金正恩厉害了！要把中国人那样。普京也蛮横。习近平不敢吱声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbdad751c7a8e93d16c675c21306df10ea90faa.torrent)
 
@@ -612,18 +628,6 @@
 下载BT种子 [《石濤.News》「武漢崩則湖北潰湖北潰則中共亡」習近平復工豪賭遭遇‘人民戰爭’式拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7ebf3152333fa0c04aa76ce586d79103fc6479a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d7ebf3152333fa0c04aa76ce586d79103fc6479a
-
-下载BT种子 [【环球直击】2月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d2c6c8d170caaff969840177af62a769b087ab1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1d2c6c8d170caaff969840177af62a769b087ab1
-
-下载BT种子 [当真出了一件大事！就在3月1日。习近平效法千古一帝。俄罗斯这样对待中国人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3f063f995023d633eaaa20f554ac55ec40185d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e3f063f995023d633eaaa20f554ac55ec40185d2
-
-下载BT种子 [【时事小品】携毒入京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf83c6fc3246e45c00a481cdf30c94189d4997d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf83c6fc3246e45c00a481cdf30c94189d4997d0
 
 下载BT种子 [【严真点评】外交部大实话：新冠病毒疫情蔓延全球中共对外大撒币对内却玩起了逼捐的把戏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f83151acaaaff6e655199d6e19f7ca5f1dab6406.torrent)
 
