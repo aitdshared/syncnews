@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O0kpVk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d6uH7Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [半壁江山戴黄标，满朝文武皆影帝！出路或崩溃？（20200305第712期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8245eb68e0e50837eae790fb8a1277072fae8ab1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8245eb68e0e50837eae790fb8a1277072fae8ab1
 
 下载BT种子 [半壁江山戴黄标，满朝文武皆影帝！出路和系统崩溃（20200305第712期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28ced5d249d7298d28d9d2114c93a8a5c4ed0d8c.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [给大家唱首歌，《约在春天相见》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7a924b12667ee0c6f607da39826dfa227aa56c3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b7a924b12667ee0c6f607da39826dfa227aa56c3
-
-下载BT种子 [🚓3人出獄離武漢，警車護送！意大利救3人，世衛唯推瑞德西韋，黨愛灌中藥？病毒可家居表面存多日，眼感染新證；港犬舔到毒，或非感染；確診國5天翻倍，世衛：風險非常高！俄華人遭嚴查新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/133150e7a9a489d034485ce6d9315fa8aaa6f058.torrent)
-
-磁力链接 magnet:?xt=urn:btih:133150e7a9a489d034485ce6d9315fa8aaa6f058
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
