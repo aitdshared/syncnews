@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bH82Uk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IgecAs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43cb8ae52debc36a26ef36f1efac5061f83ab2ce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43cb8ae52debc36a26ef36f1efac5061f83ab2ce
 
 下载BT种子 [界立建講述萬里大逃亡經歷後其父親已被中共拘禁：我絕不可能向中共低頭和噤聲！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b31cf2f65cbdd14f8cc6bdc1f1ee941bd900ac5b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [南卡造勢集會川普承諾做足防疫準備.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be9d3c441034eac0de4fff1e95d6a3d1ca736466.torrent)
 
 磁力链接 magnet:?xt=urn:btih:be9d3c441034eac0de4fff1e95d6a3d1ca736466
-
-下载BT种子 [徐州患者出院被高調慶祝不料複查又被確診再度封樓隔離包括歡迎儀式的民眾和記者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e130e2ee0fe5a04cf0fdb791c1857d5bb248aa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:79e130e2ee0fe5a04cf0fdb791c1857d5bb248aa
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
