@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3K1o5a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W2VvsZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩厉害了！要把中国人那样。普京也蛮横。习近平不敢吱声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cbdad751c7a8e93d16c675c21306df10ea90faa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3cbdad751c7a8e93d16c675c21306df10ea90faa
 
 下载BT种子 [【环球直击】3月6日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cb5bf721310ce8cfa1c4a94732039f1ecd898b2.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【严真点评】外交部大实话：新冠病毒疫情蔓延全球中共对外大撒币对内却玩起了逼捐的把戏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f83151acaaaff6e655199d6e19f7ca5f1dab6406.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f83151acaaaff6e655199d6e19f7ca5f1dab6406
-
-下载BT种子 [一周经济回顾（2020年3月1日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35e460609d2368e883763551704b6d69a1c68efc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35e460609d2368e883763551704b6d69a1c68efc
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
