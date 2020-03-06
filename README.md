@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/09Opeq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/njZGsp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [陳秋實危急！武漢方艙翻轉？党向全世界要感謝，清華郭于華：統治方式比病毒更毒！（老北京茶館第262集20200305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c90bac8dc7ae64ef5e524c9cf85e65439910ac16.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c90bac8dc7ae64ef5e524c9cf85e65439910ac16
 
 下载BT种子 [不当爹，永远也无法体会到的一些事情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fd9024d0cff7d1fe761ba0e910b75b121a80e9d.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【新闻周刊】第721期（2020229）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/500d88f4dc5985cccaaf9b5946f669e50a373504.torrent)
 
 磁力链接 magnet:?xt=urn:btih:500d88f4dc5985cccaaf9b5946f669e50a373504
-
-下载BT种子 [哈爾濱封城，滿天烏鴉飛，北京疫情加重？深圳口罩搖號！2天感染十幾萬人？鍾南山暗示什麼？李澤華計算武漢死了多少人，俄官方歧視華人，一線醫生為武漢人哭泣，徵文活動新聞看點李沐陽.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8b19d239e0e26dbbceed433ed137eaca150ec2e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b8b19d239e0e26dbbceed433ed137eaca150ec2e
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
