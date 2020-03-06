@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5tfFns)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LQ21SU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [旅加武漢人：在武漢的15位親友感染多人相繼去世中共官方嚴重瞞報疫情釀成人禍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa8d654d2b17b9ebe02db4bf570f33bcd6ad2500.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa8d654d2b17b9ebe02db4bf570f33bcd6ad2500
 
 下载BT种子 [新冠病毒全球疫情梵蒂岡現首宗病例伊朗累計超過4700人感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd3d2628553d8cb2a688504e399ac9dd4676095f.torrent)
 
@@ -624,14 +628,6 @@
 下载BT种子 [《石濤聚焦》「最新：德國暴增歐洲淪陷源自義大利？」澳洲出現死亡日本相對穩定-受益推遲習總訪問韓國持續卻很集中伊朗影響北美台灣出現隨街倒地身亡（0103）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56bbd0240d2c7337a245a4e14e18bbe40c42e63b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:56bbd0240d2c7337a245a4e14e18bbe40c42e63b
-
-下载BT种子 [《石濤.News》「武漢崩則湖北潰湖北潰則中共亡」習近平復工豪賭遭遇‘人民戰爭’式拒絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7ebf3152333fa0c04aa76ce586d79103fc6479a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d7ebf3152333fa0c04aa76ce586d79103fc6479a
-
-下载BT种子 [【严真点评】外交部大实话：新冠病毒疫情蔓延全球中共对外大撒币对内却玩起了逼捐的把戏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f83151acaaaff6e655199d6e19f7ca5f1dab6406.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f83151acaaaff6e655199d6e19f7ca5f1dab6406
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
