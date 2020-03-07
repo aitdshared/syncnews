@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2Wykbs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2pkk32)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】3月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb3e02814248a8fa1d9c1af5403e3ed3c3d7b755.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bb3e02814248a8fa1d9c1af5403e3ed3c3d7b755
 
 下载BT种子 [《石濤聚焦》「病毒有靈性或更具旨意」一家四口以武漢海鮮城為家居住至今無任何狀況「社媒喧囂不解猜猜」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c57989517600e000a0b41e93b6a2e85ebbce261.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [终于出了大事！就在3月1日，国家主席跟副主席摊牌。谁是取代习近平的人选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0042789894a221a7063d1f0c41c77036581ac575.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0042789894a221a7063d1f0c41c77036581ac575
-
-下载BT种子 [【环球直击】3月2日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9542cabba506899ddd03f09b81a2646c99e8d935.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9542cabba506899ddd03f09b81a2646c99e8d935
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
