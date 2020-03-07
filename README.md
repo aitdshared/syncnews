@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vFalyj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pFs92p)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「WHO偏袒中共全球質疑」泰國代表出席WHO會議當面酸爆嘲諷👎世衛總幹事譚德塞網路瘋傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a22a218c6f4367a16d5db24363cd18bd76b0dc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:30a22a218c6f4367a16d5db24363cd18bd76b0dc
 
 下载BT种子 [【环球直击】3月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ce04eb5ccf572d9525ad75af0ba45a75b0d104a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [紐約時代廣場談疫情來自世界各國的遊客如何看待這場疫情？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea4d66daaffc2444c32afc2d35d0f23db4f125d8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ea4d66daaffc2444c32afc2d35d0f23db4f125d8
-
-下载BT种子 [新冠肺炎蔓延逾70國韓國新增599例伊朗官方通吿暴增523例印尼首次出現病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
