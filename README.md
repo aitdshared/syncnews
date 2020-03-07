@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IIyMWA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vFalyj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ce04eb5ccf572d9525ad75af0ba45a75b0d104a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2ce04eb5ccf572d9525ad75af0ba45a75b0d104a
+
+下载BT种子 [Optional熔岩之上挑戰極限高空走鋼絲跨越活火山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4393a2f6b2af5b192fb79f86448ed8a802986ba5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4393a2f6b2af5b192fb79f86448ed8a802986ba5
 
 下载BT种子 [《石濤.News》「武漢書記王忠林：感恩總書記感恩共產黨」武漢人是英雄（習總）的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c3b7aaa05355405378f740de161d54fa3087b4f.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [新冠肺炎蔓延逾70國韓國新增599例伊朗官方通吿暴增523例印尼首次出現病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:51123a7c2e8a78bcf0744ad68d11bc58d63fb9f8
-
-下载BT种子 [武漢重症40多萬！獄中疫情再擴大！北京疫下「三戰」，中共玩「誰是真正兇手」，網安業者看到真相後的心理掙扎當局暗渡陳倉欲通過「外國人永居條例」，第39條可能引起「動亂」？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/feafcac7f3a432517fbc61655dcf59df32ebe8ca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:feafcac7f3a432517fbc61655dcf59df32ebe8ca
-
-下载BT种子 [《石濤聚焦》「美媒質詢彭斯：為什麼川普總統忍受習近平的謊言欺騙」美國務卿推文「大幅減少中共國5大媒體駐美人員數量-減少60人」限制中共國媒體簽證期限.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae00249aebabedffe420e2f7603e6edf941e9d29.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ae00249aebabedffe420e2f7603e6edf941e9d29
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
