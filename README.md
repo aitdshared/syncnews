@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PtQNcF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6t5CSU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [海外新冠病例破2萬世衛籲各國加緊防控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/134c62756e39bbc5f39d6ce23b6f645981109b79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:134c62756e39bbc5f39d6ce23b6f645981109b79
+
+下载BT种子 [中國強推復工美專家﹕疫情恐再惡化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48f5d4e48b60d8f93653f72bf0563c69a1689ef3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:48f5d4e48b60d8f93653f72bf0563c69a1689ef3
+
+下载BT种子 [李文亮被追授先進人物網民要求中共道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/045aa23ccbc7898709b451f27b6f6cc0ee323bf2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:045aa23ccbc7898709b451f27b6f6cc0ee323bf2
 
 下载BT种子 [韭菜降級“雜草”，習近平戰“疫”還有危機？中國和世界，誰欠誰一個道歉？楊建立、江峰做客自由亞洲電台（江峰漫談特別節目20200306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2068bae7a86c6a8ae60e4adc932c6a46f14c2535.torrent)
 
@@ -616,18 +628,6 @@
 下载BT种子 [🔥有人要製造百萬人感染？紐約首例確診武漢肺炎，華人囤物資，當局稱勿恐慌；專訪：當前意大利華人真實處境；世衛公布中國考察報告；香港115人被捕新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f091f62dfa6e41a55022c849aa5b5f3f8834b23.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1f091f62dfa6e41a55022c849aa5b5f3f8834b23
-
-下载BT种子 [《濤哥侃封神》「封神演義第二十八回西伯討伐崇侯虎」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e68f639b8da0cd7bdb816357479428cbd2c94f79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e68f639b8da0cd7bdb816357479428cbd2c94f79
-
-下载BT种子 [【中国禁闻】3月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6694b5b5ed5289357bd90a8a4cb9101ad023a05c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6694b5b5ed5289357bd90a8a4cb9101ad023a05c
-
-下载BT种子 [習近平捐款洩密？大國戰役藏預言被緊急下架！鐘南山替黨甩鍋，黃亮發表我的認罪書！（老北京茶館第259集20200301）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b349f9fecdc6b0e2533a8636381ffed1521ac6c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b349f9fecdc6b0e2533a8636381ffed1521ac6c
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
