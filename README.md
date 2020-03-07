@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gAdH8c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/55IpLO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韭菜降級“雜草”，習近平戰“疫”還有危機？中國和世界，誰欠誰一個道歉？楊建立、江峰做客自由亞洲電台（江峰漫談特別節目20200306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2068bae7a86c6a8ae60e4adc932c6a46f14c2535.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2068bae7a86c6a8ae60e4adc932c6a46f14c2535
 
 下载BT种子 [王岐山与习近平闹掰习近平走错棋就是从这里开始的(政论天下第127集20200306)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/644bad38cd6d0f1a772d354c0b17addae920a4af.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [習近平捐款洩密？大國戰役藏預言被緊急下架！鐘南山替黨甩鍋，黃亮發表我的認罪書！（老北京茶館第259集20200301）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b349f9fecdc6b0e2533a8636381ffed1521ac6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3b349f9fecdc6b0e2533a8636381ffed1521ac6c
-
-下载BT种子 [【禁闻】3月1日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ce79138d889f08a99ee55280672bdb5828d5025.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7ce79138d889f08a99ee55280672bdb5828d5025
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
