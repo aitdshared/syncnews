@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/N2Q6GD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KHyjAf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共與世卫如何面對疫情新冠肺炎疫情因何在世界蔓延？中国解密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10dcafb5841d193da753c0674d0d13260302c04d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:10dcafb5841d193da753c0674d0d13260302c04d
+
+下载BT种子 [【全球新闻】3月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f36280e2c87811fe5fb7895b61d23d3f16747648.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f36280e2c87811fe5fb7895b61d23d3f16747648
 
 下载BT种子 [習特使孫春蘭武漢受驚！民眾高呼“全部假的”！蓬佩奧：你黨的工具不好用了！（老北京茶館第263集20200306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f36a99c28067c44cd5da4be71b60800a9ea2617a.torrent)
 
@@ -613,10 +621,6 @@
 
 磁力链接 magnet:?xt=urn:btih:ea2013d2f4d0957a9176c6cab83d180549aa9a96
 
-下载BT种子 [美中新冷戰參議員﹕正面臨來自中共日益增長的威脅美國需以全球戰略應對.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35c58f26387f7b6350b0dcf49a617d9488f5ccfb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35c58f26387f7b6350b0dcf49a617d9488f5ccfb
-
 下载BT种子 [為中共領導層歌功頌德的《大國戰疫》引全網抨擊突然下架了？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2cad6c96426c25b1d32c47ae6d8936418e981f3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c2cad6c96426c25b1d32c47ae6d8936418e981f3
@@ -624,10 +628,6 @@
 下载BT种子 [美國「超級星期二」初選前布蒂吉格退出競選川普：選票將流向拜登.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25f89d09f9ff1a9d5a5ae5a5f5deb0be2615e72b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:25f89d09f9ff1a9d5a5ae5a5f5deb0be2615e72b
-
-下载BT种子 [终于出了大事？3月1日，国家主席与副主席摊牌！谁是取代习近平的人选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5710063cf1aa44639228a0679e09d992ceb239f5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5710063cf1aa44639228a0679e09d992ceb239f5
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
