@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ru94NP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gAdH8c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [王岐山与习近平闹掰习近平走错棋就是从这里开始的(政论天下第127集20200306)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/644bad38cd6d0f1a772d354c0b17addae920a4af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:644bad38cd6d0f1a772d354c0b17addae920a4af
 
 下载BT种子 [朝鮮激烈抗疫，對中國人可射殺！中共要世界感謝？第二波疫情已到？網友要死磕共產黨，孫春蘭作秀遭遇尷尬，央視造假穿幫，1000多個肺的背後，華春瑩老公死了！【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5bfdb13fba9d2c51c60d21df02f2d6b01393628.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】3月1日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ce79138d889f08a99ee55280672bdb5828d5025.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7ce79138d889f08a99ee55280672bdb5828d5025
-
-下载BT种子 [【禁闻】3月1日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/393a756fc004659eec161fe0ff1583b0fc9df8e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:393a756fc004659eec161fe0ff1583b0fc9df8e4
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
