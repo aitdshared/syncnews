@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4QgI0A)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1wsXbA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [💢公安抓人！中國爆發示威；武漢內定5.1復工，湖北其他城擬3.10；首承認：1月份三千醫護染新冠病毒；伊朗確診或達兩萬八；美疫情逼近華府，保險涵蓋檢疫費；搭飛機保潔事項新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee158295e1989f38cd1ad36efe93d6b7b8da557a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee158295e1989f38cd1ad36efe93d6b7b8da557a
 
 下载BT种子 [公开文睿的工作室，看看我的视频是怎么做出来的，介绍一下那个空调.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73bab1c498f7c8541702d6b4f32bbbc3f5da5c50.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「美國出現韓國大邱式爆發：西雅圖死6個」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dccae89b3f936b227c2b042e134437654e95a021.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dccae89b3f936b227c2b042e134437654e95a021
-
-下载BT种子 [【微视频】中共掩盖肺炎病毒变异自媒体怎么玩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a00ea2a4915c31a272fdaed1613dbc8c4e99a031.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a00ea2a4915c31a272fdaed1613dbc8c4e99a031
 
 下载BT种子 [【禁闻】工人曝复工窘境：没处住条件差恐感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7245f9cc616f7c29d2c2a79be07fdf8c9e280242.torrent)
 
