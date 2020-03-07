@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pmgXnC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uoosp1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30959907ad32f8be2087ecaf076ca08e79ffb3db.torrent)
+
+磁力链接 magnet:?xt=urn:btih:30959907ad32f8be2087ecaf076ca08e79ffb3db
+
+下载BT种子 [【禁闻】传中共军机天津坠毁网络热议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e16c98a9aec405ca78700d0dff8dce1389ae7b81.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e16c98a9aec405ca78700d0dff8dce1389ae7b81
+
+下载BT种子 [【禁闻】二月武汉疫情之外中国的另一场战役.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28beb19d18b5f8d4130de159ac2ef569b865d096.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28beb19d18b5f8d4130de159ac2ef569b865d096
 
 下载BT种子 [【中國禁聞】3月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2104e29c29c778c148d03909fa14635a8a716d5.torrent)
 
@@ -616,10 +628,6 @@
 下载BT种子 [川普亲信告知习近平美国怀疑病毒源自实验室；彭斯说美国CDC专家同意中国政府判断到底是怎么回事？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddc46dea57a6f55f2d0898def39c68a20e8c0e3e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ddc46dea57a6f55f2d0898def39c68a20e8c0e3e
-
-下载BT种子 [新冠病毒伊朗66人喪生韓國確診4335例朝鮮疫情中發射不明飛行器.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ecd89f6a2583c3c79e40195b110d254762b28d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7ecd89f6a2583c3c79e40195b110d254762b28d2
 
 下载BT种子 [美國法學博士章家敦：美國和中共已經開戰真正病毒源頭在於共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea2013d2f4d0957a9176c6cab83d180549aa9a96.torrent)
 
