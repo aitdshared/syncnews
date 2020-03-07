@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uUlKKc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2Wykbs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「病毒有靈性或更具旨意」一家四口以武漢海鮮城為家居住至今無任何狀況「社媒喧囂不解猜猜」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c57989517600e000a0b41e93b6a2e85ebbce261.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c57989517600e000a0b41e93b6a2e85ebbce261
+
+下载BT种子 [《石濤聚焦》「WHO主任：武漢病毒🦠不會在夏季消失習總復工成賭博殺人」美國已亡15人華盛頓與耶魯準備封校紐約州社區爆發英國社區擴散義大利單日死亡49德法超過日本.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/242718112cb42ac79a7c175bcf419bbdbc0506b8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:242718112cb42ac79a7c175bcf419bbdbc0506b8
 
 下载BT种子 [海外新冠病例破2萬世衛籲各國加緊防控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/134c62756e39bbc5f39d6ce23b6f645981109b79.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【环球直击】3月2日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9542cabba506899ddd03f09b81a2646c99e8d935.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9542cabba506899ddd03f09b81a2646c99e8d935
-
-下载BT种子 [【解讀】中共名醫移植肺臟治新冠病患，暴露四大驚人疑點（2020.3.2）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e1c00785908299840e252fd940425faa08e3dff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e1c00785908299840e252fd940425faa08e3dff
-
-下载BT种子 [🔥有人要製造百萬人感染？紐約首例確診武漢肺炎，華人囤物資，當局稱勿恐慌；專訪：當前意大利華人真實處境；世衛公布中國考察報告；香港115人被捕新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f091f62dfa6e41a55022c849aa5b5f3f8834b23.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1f091f62dfa6e41a55022c849aa5b5f3f8834b23
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
