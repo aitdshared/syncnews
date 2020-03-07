@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1wsXbA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bxKJnT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平要調查病毒起源了？中共甩鍋3部曲；專家詳解病毒詭異：復工下民眾面臨大風險；疫苗和藥物開發前景如何？唐靖远董宇红熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfa5f88d36e9187e9edafd80e9999a7a7409f69d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dfa5f88d36e9187e9edafd80e9999a7a7409f69d
 
 下载BT种子 [💢公安抓人！中國爆發示威；武漢內定5.1復工，湖北其他城擬3.10；首承認：1月份三千醫護染新冠病毒；伊朗確診或達兩萬八；美疫情逼近華府，保險涵蓋檢疫費；搭飛機保潔事項新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee158295e1989f38cd1ad36efe93d6b7b8da557a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「美國出現韓國大邱式爆發：西雅圖死6個」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dccae89b3f936b227c2b042e134437654e95a021.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dccae89b3f936b227c2b042e134437654e95a021
-
-下载BT种子 [【禁闻】工人曝复工窘境：没处住条件差恐感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7245f9cc616f7c29d2c2a79be07fdf8c9e280242.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7245f9cc616f7c29d2c2a79be07fdf8c9e280242
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
