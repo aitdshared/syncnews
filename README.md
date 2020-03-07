@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m2TeyQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xq46LD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「泉州病毒隔離飯店倒塌救援人員無保護救援」美國務卿「武漢病毒源自中共國」「中共掩蓋真相疫情坑苦了美國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1c4a2d63b49a3bb834e94856a6307f592f49b45.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e1c4a2d63b49a3bb834e94856a6307f592f49b45
 
 下载BT种子 [《石濤聚焦》「WHO偏袒中共全球質疑」泰國代表出席WHO會議當面酸爆嘲諷👎世衛總幹事譚德塞網路瘋傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a22a218c6f4367a16d5db24363cd18bd76b0dc.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【中国禁闻】3月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5d147158a322634606e738a440f74b835c48a5b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e5d147158a322634606e738a440f74b835c48a5b
-
-下载BT种子 [紐約時代廣場談疫情來自世界各國的遊客如何看待這場疫情？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea4d66daaffc2444c32afc2d35d0f23db4f125d8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea4d66daaffc2444c32afc2d35d0f23db4f125d8
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
