@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M8Qp6B)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oxkFKT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】疫情冲击中国企业裁员减薪失业潮来袭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20ef6adba5348919310941006abbce0ee7936bba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:20ef6adba5348919310941006abbce0ee7936bba
+
+下载BT种子 [【禁闻】“复工不复产”中国中小企业的艰辛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/707cf2d082c4246b5224fc9fd790655bab2e4db6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:707cf2d082c4246b5224fc9fd790655bab2e4db6
+
+下载BT种子 [【禁闻】3月6日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42b3a037ff4b78746ca30e6b483e84b0ac6fdc27.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42b3a037ff4b78746ca30e6b483e84b0ac6fdc27
 
 下载BT种子 [【禁闻】3月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30959907ad32f8be2087ecaf076ca08e79ffb3db.torrent)
 
@@ -616,26 +628,6 @@
 下载BT种子 [【禁闻】箝制言论中共施行“最严网络整肃措施”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0337ab1effc4101614712426e48b5f0cca19d56.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a0337ab1effc4101614712426e48b5f0cca19d56
-
-下载BT种子 [3·1新规上路，互联网“大镇反”到来？在华外国人绿卡引吐槽，焦点在内不在外（20200302第709期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bbafc1389126b2b5fd27232b2023371b8efd7c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7bbafc1389126b2b5fd27232b2023371b8efd7c1
-
-下载BT种子 [《石濤聚焦》「輪迴：80年前東京奧運會因‘武漢會戰’取消」習近平4月份訪日被推遲年末日本避免了「一帶一路」與「新時代習近平思想」的政治文件簽署「自救之舉」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25f768374ab978cf37e9f55836b1f889b45c209a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:25f768374ab978cf37e9f55836b1f889b45c209a
-
-下载BT种子 [川普亲信告知习近平美国怀疑病毒源自实验室；彭斯说美国CDC专家同意中国政府判断到底是怎么回事？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddc46dea57a6f55f2d0898def39c68a20e8c0e3e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ddc46dea57a6f55f2d0898def39c68a20e8c0e3e
-
-下载BT种子 [美國法學博士章家敦：美國和中共已經開戰真正病毒源頭在於共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea2013d2f4d0957a9176c6cab83d180549aa9a96.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea2013d2f4d0957a9176c6cab83d180549aa9a96
-
-下载BT种子 [為中共領導層歌功頌德的《大國戰疫》引全網抨擊突然下架了？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2cad6c96426c25b1d32c47ae6d8936418e981f3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c2cad6c96426c25b1d32c47ae6d8936418e981f3
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
