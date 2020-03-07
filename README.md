@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qnZxvM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qnHWLo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《台北法案》的辣招、习总战略挂科；巨婴的黄昏是什么？（20200306第713期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/966201d695851ee0248028a3da69e3e5f85e7107.torrent)
+
+磁力链接 magnet:?xt=urn:btih:966201d695851ee0248028a3da69e3e5f85e7107
 
 下载BT种子 [《石濤聚焦》「人類菁英遭遇病毒混亂痛苦無解」確診超過10萬歐美持續失控之狀川普批出過百億現金應對85國染病習總堅稱病毒為【人類冠狀病毒2019-人類命運共同體】恐懼非典-SARS2.0.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9075344a0b49c9deea16a5842a2478f7f690a73.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】张文宏否定病毒源自国外打脸钟南山？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fbeae93aa4bece3ceb5e3298c022877d6d4541a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5fbeae93aa4bece3ceb5e3298c022877d6d4541a
-
-下载BT种子 [【禁闻】首例新冠肺移植肺源来自哪里？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70c9819508d51f115841ece965b6a2955833b02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c70c9819508d51f115841ece965b6a2955833b02
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
