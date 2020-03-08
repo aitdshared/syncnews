@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C9A3A9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NOmAbC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月8日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddee2b6af475c9b31191f46a5ce581925ec0b25c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ddee2b6af475c9b31191f46a5ce581925ec0b25c
 
 下载BT种子 [【严真点评】外交部大实话：“感恩教育”激起民愤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70279efe2b3193377fe71ce346d103c18c5467e0.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [旅居荷蘭的武漢人：弟弟陈和建被武漢警察活活打死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ed43c71dddf62695a4c20490af26b9ec12cf51b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2ed43c71dddf62695a4c20490af26b9ec12cf51b
-
-下载BT种子 [中藥防疫？雲南逼師生服「大鍋葯」惹議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/322e3c23d2c2c2aa62afda679009c96ce6550c15.torrent)
-
-磁力链接 magnet:?xt=urn:btih:322e3c23d2c2c2aa62afda679009c96ce6550c15
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
