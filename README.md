@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eK4Nuu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JL1QYF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「上海寶鋼大爆炸網友-給習總沖喜」習總訪日被推遲無法簽署包涵“一帶一路”與“人類命運共同體”的「第五份政治文件」是習近平歷史性倒血楣日本與安倍自救的因由（0803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d05225ca975812100f32fd5faa9e4fd4b2cd24.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39d05225ca975812100f32fd5faa9e4fd4b2cd24
 
 下载BT种子 [《石濤聚焦》「美死亡19軍人染病27州緊急狀態NBA與NHL極可能閉門比賽」WHO以政治理由拒絕宣佈「大流行」習總及時贊助2000萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72f2779f3fb51205feacb4cbc4089c39b17da88f.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「武漢坐落‘神秘的北緯30度線上’」南韓大邱與伊朗德黑蘭坐落‘死亡的北緯35度’.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8adaab1ecc14fb2aed679696ac689d9cd3c33aa0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8adaab1ecc14fb2aed679696ac689d9cd3c33aa0
-
-下载BT种子 [《石濤.News》「推背圖56完整預言：武漢病毒-非典2.0」源自金母木公（仙人東王公和西王母）之造化無干戈兵器之世界大戰海疆萬里禍連天「神仙造化之遊戲」（0303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/035a89754eca164f92f2f7a8c8a6b0bbb98ccdfd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:035a89754eca164f92f2f7a8c8a6b0bbb98ccdfd
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
