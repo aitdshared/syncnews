@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pLy8cU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C9A3A9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【严真点评】外交部大实话：“感恩教育”激起民愤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70279efe2b3193377fe71ce346d103c18c5467e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70279efe2b3193377fe71ce346d103c18c5467e0
 
 下载BT种子 [【时事小品】孙春兰视察武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0be52f38638989d7d32e29178e48ed51f7db1aaf.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [中藥防疫？雲南逼師生服「大鍋葯」惹議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/322e3c23d2c2c2aa62afda679009c96ce6550c15.torrent)
 
 磁力链接 magnet:?xt=urn:btih:322e3c23d2c2c2aa62afda679009c96ce6550c15
-
-下载BT种子 [《石濤聚焦》「美聯儲意外減息半厘市場大亂過山車」武漢病毒痛擊華爾街菁英自尊彭斯領導全美抗疫小組-白宮祈禱為先疫苗6週後製成最快年底投放市場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5e22414b3d1f971b399a3c6f85e2fa69bebcb7a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5e22414b3d1f971b399a3c6f85e2fa69bebcb7a
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
