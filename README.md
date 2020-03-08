@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4B6PAR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KWLKoW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -624,10 +624,6 @@
 下载BT种子 [拐點真來了！人民領袖習近平下贊己詔！可怕的零新增真相！（老北京茶館第260集20200302）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92cc12371b140bc5dedba9d4ce0df0eabdd57a77.torrent)
 
 磁力链接 magnet:?xt=urn:btih:92cc12371b140bc5dedba9d4ce0df0eabdd57a77
-
-下载BT种子 [【一線採訪】爸爸走了媽媽又住院我天天跑去易感染的醫院只能碰運氣了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/794126917522a267e821f31854a590826da17141.torrent)
-
-磁力链接 magnet:?xt=urn:btih:794126917522a267e821f31854a590826da17141
 
 下载BT种子 [【禁闻】新冠患者等5天换双肺供体来源存疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4f5ed36fb5bd913c9b07aa6b5f3a897c1589f4.torrent)
 
