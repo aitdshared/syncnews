@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RuKU0A)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WeZo1F)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】港人建构黄色经济圈对抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/826206bb3c8c550c0164a85c297208168cfaee7e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:826206bb3c8c550c0164a85c297208168cfaee7e
+
+下载BT种子 [【禁闻】“甩锅”国外中共称武肺病毒不来源于中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af92b546d542b47d3d6c8807338c4905143daf7b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:af92b546d542b47d3d6c8807338c4905143daf7b
 
 下载BT种子 [《石濤聚焦》「義大利最早切斷與中國的航空卻是歐洲病毒傳播中心」陸軍總參長與2大區長確診最發達14個省封城至4.3含米蘭威尼斯「最先簽署一帶一路接受華為的發達國家—與中共關係遠近成疫情好壞根本」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/745a1d931dc261264586f8cb938906f6aa3cf5c0.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【全球疫情直擊】日韓伊朗疫情嚴峻病例暴增高層死亡周巧兒感染港富豪圈人心惶惶武肺移植器官來源探秘武漢監獄疫情持續大爆發台灣再添無症狀感染者紐約州市長：政府透明盡在掌控無須恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/214854be10d116474b673d44cb1993d4d5b89138.torrent)
 
 磁力链接 magnet:?xt=urn:btih:214854be10d116474b673d44cb1993d4d5b89138
-
-下载BT种子 [【大陸人發聲】大災面前中共沒有救援卻在搶奪人民發國難財我們不復工耗死中共死磕到底.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f24eaa6862d07a6849b60ce143cc89d61c4ac0a3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f24eaa6862d07a6849b60ce143cc89d61c4ac0a3
-
-下载BT种子 [【禁闻】纳瓦罗：警惕中共操控联合国的野心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e4d4fe0704ea145430feff4af85a016f0cee465.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8e4d4fe0704ea145430feff4af85a016f0cee465
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
