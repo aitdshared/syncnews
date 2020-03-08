@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KyNN4k)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/q62n8X)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [王沪宁甩锅到底！新华社奇文：美国欠中国一个道歉，世界欠中国一声感谢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d325f74e95c796a1e49e10778b79389486f28e6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9d325f74e95c796a1e49e10778b79389486f28e6
 
 下载BT种子 [【禁闻】洛杉矶街头现“法轮大法好”车队.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b73e4c360ac76294f4770bd937f9adf3e77ec04f.torrent)
 
@@ -624,14 +628,6 @@
 下载BT种子 [美国硬怼！吊销60党媒记者；“病夫”大战与傻白甜反击（20200303第710期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e63393622771d77705dac30ccdec3e85f71db72.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1e63393622771d77705dac30ccdec3e85f71db72
-
-下载BT种子 [【禁闻】宣传大于防疫中共借疫情扩展全球野心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a293364794a23de5d3a7a729ee1b4a4a203145d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a293364794a23de5d3a7a729ee1b4a4a203145d
-
-下载BT种子 [【禁闻】率先共享病毒基因上海P3实验室被关.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/916a10cddfda7ffd73407213978df72aa018db84.torrent)
-
-磁力链接 magnet:?xt=urn:btih:916a10cddfda7ffd73407213978df72aa018db84
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
