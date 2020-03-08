@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WeZo1F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SKy1KA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月8日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0db7399b275c4cea5c9569107c12db69a991567.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0db7399b275c4cea5c9569107c12db69a991567
 
 下载BT种子 [【禁闻】港人建构黄色经济圈对抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/826206bb3c8c550c0164a85c297208168cfaee7e.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】率先共享病毒基因上海P3实验室被关.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/916a10cddfda7ffd73407213978df72aa018db84.torrent)
 
 磁力链接 magnet:?xt=urn:btih:916a10cddfda7ffd73407213978df72aa018db84
-
-下载BT种子 [【全球疫情直擊】日韓伊朗疫情嚴峻病例暴增高層死亡周巧兒感染港富豪圈人心惶惶武肺移植器官來源探秘武漢監獄疫情持續大爆發台灣再添無症狀感染者紐約州市長：政府透明盡在掌控無須恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/214854be10d116474b673d44cb1993d4d5b89138.torrent)
-
-磁力链接 magnet:?xt=urn:btih:214854be10d116474b673d44cb1993d4d5b89138
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
