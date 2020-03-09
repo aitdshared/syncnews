@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/toz1r3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O9YoQ6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月8号疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e0d6865ecfdc060087175499674619175f28fd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c0e0d6865ecfdc060087175499674619175f28fd
 
 下载BT种子 [【禁闻】助武肺逝者家属索赔中国律师成立顾问团.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/068e84605f93c508cfbb684c343cd6a6901a7192.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】各地确诊病例零增长网友揭真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d270a7aa1b9f3e60f9ef5c2da9eb94d6caae6aa7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d270a7aa1b9f3e60f9ef5c2da9eb94d6caae6aa7
-
-下载BT种子 [中共發布緊急通知超過4千億蝗蟲恐襲西藏雲南新疆.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a9beb456f8fd553df778815b06872769e6a1fec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a9beb456f8fd553df778815b06872769e6a1fec
 
 下载BT种子 [應對疫情美聯儲採取了08年以來最大規模的降息措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38d207a1074d8c94018d00aff6471ea88f1747ee.torrent)
 
