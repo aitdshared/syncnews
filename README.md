@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8CUYno)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8uy2ME)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】助武肺逝者家屬索賠中國律師成立顧問團2.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0afc4777b3648a1da62cd240fb8594a1da2ee84.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b0afc4777b3648a1da62cd240fb8594a1da2ee84
 
 下载BT种子 [烏龍！習家軍玩“感恩”加入黑習陣營，習近平保党陷高級黑迴圈？華春瑩丈夫你到底是誰……（老北京茶館第264集20200308）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b36c4c5078d63dcbbf0ccb871a56b4652172923.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】3月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa7dacc08c47758d84f93cf0efbd305b207a3bfe.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aa7dacc08c47758d84f93cf0efbd305b207a3bfe
-
-下载BT种子 [疫情蔓延全球79國伊朗確診23名國會議員感染美囯或出更多入境禁令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77449868cc4329671c6d9558505f277033478d6d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77449868cc4329671c6d9558505f277033478d6d
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
