@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qXRIe9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oGTgjF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：美股開盤暴跌交易被迫中止15分鐘」道股跌2000點標普跌7%出發熔斷機制納斯達跌近10%「川普盛讚習近平白左菁英親共認錢」違背天滅中共之天象「神啟示人需醒」（0903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075d555f3830e349423a34b273eeb91dd0698e67.torrent)
+
+磁力链接 magnet:?xt=urn:btih:075d555f3830e349423a34b273eeb91dd0698e67
 
 下载BT种子 [【解讀】打臉充胖？中共捐世衛2000萬；七大宣傳力量，轉移病毒到海外；黨媒拍電視劇抗疫（2020.3.9）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9961449d851e732f085a121d10bc10290c96216.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第二十八回西伯兵伐崇侯虎」姜子牙以文王受白旄黃鉞授權之由清君側盼紂王悔過從善討伐崇侯虎（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84588d4534e0583603e1491ed602067f829083fb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:84588d4534e0583603e1491ed602067f829083fb
-
-下载BT种子 [鐘南山主持火線入黨，川普轟走60党媒記者！伊朗醫院堆滿屍體，抄作業引發口水戰！（老北京茶館第261集20200303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/faff865cf4025cc1d604cc628312009d420de706.torrent)
-
-磁力链接 magnet:?xt=urn:btih:faff865cf4025cc1d604cc628312009d420de706
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
