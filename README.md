@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RXwGlA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nMNwgV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】路透：中共用处理猪瘟手法处理武汉肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6933e9a770cca30080627d7d8cad5e100491c4e4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6933e9a770cca30080627d7d8cad5e100491c4e4
 
 下载BT种子 [【禁闻】中共再改口称1月湖北医护感染超3千.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32c858357198416fc59355f7e0dabd891e5d7d33.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】监狱疫情爆发在押律师家属焦虑问询无门.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04df599f7bb14e8a5e4d6a52d78ed5028c16eb6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:04df599f7bb14e8a5e4d6a52d78ed5028c16eb6b
-
-下载BT种子 [【禁闻】党媒称“日子像蜜甜”北京人举报王沪宁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/813b15d4044da155d577e9d43bf4d091af993fcf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:813b15d4044da155d577e9d43bf4d091af993fcf
 
 下载BT种子 [《石濤聚焦》「安倍國會狂咳中媒爆棚習總指令-查病毒源頭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/286f8154beefd695c15a2e9e65bccc8d44fd3871.torrent)
 
