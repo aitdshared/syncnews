@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DmwMnb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R7yviN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [㊙️美媒：白宮認為病毒源自武漢實驗室，瘟疫或致中共垮台；當局開拆華南海鮮市場；外媒稱台灣「反共」疫情受控；意大利大封鎖涉1600萬人；權威專家：年底前別旅行，個人防感染3要點新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a712239d141d0c1d06bce182b1e1d2e38428b6e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a712239d141d0c1d06bce182b1e1d2e38428b6e
 
 下载BT种子 [【中国禁闻】3月8日完整版2mp4.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c8d93539c10228530fc30ba5ec83ad85252d6bc.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [史上最严的互联网新规出台;美国形同驱逐中国记者;中共自称“最大赢家”,其体制优势还不如北韩(政论天下第124集20200303)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1daed232af3c62bfd65be5dfc6567f89a815e217.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1daed232af3c62bfd65be5dfc6567f89a815e217
-
-下载BT种子 [供銷社來了！美國出手，共媒裁員60人！方艙醫院關閉？「兩個一千萬」北京賭誰死？媒體死亡的代價！伊朗醫院屍體遍地！川普挑明病毒來源！華南海鮮市場拆了？流浪武漢街頭20天，頭髮白一半【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8752c84b0d636365947388737a00c77a8687965.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d8752c84b0d636365947388737a00c77a8687965
 
 下载BT种子 [【中國禁聞】3月3日完整版-1.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27a937b1262f2bf7e3b81e60c55607263fda40ae.torrent)
 
