@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wykYSu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ljKD7Y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [王忠林翻车、任大炮开火，另类甩锅藏叛心！（20200309第714期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dceefae34b9c5b2f84f0359c5df5cfc23c046734.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dceefae34b9c5b2f84f0359c5df5cfc23c046734
 
 下载BT种子 [【微视频】中共讨要的“感谢”唯独中国人不能给.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf2c64a7eeebf61939a7ec1b0bc228f8822d883b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤.News》「推背圖57大疫過後三尺童子滅中共」武漢病毒乃王母造化「物极必反以毒制毒」坎离相克见天倪将燎原之火【毛澤東“星星之火可以燎原”】扑灭净尽而厄运自此终矣「天滅中共生與滅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02fc71415d25cd269e31027a7f66f7522e6dc430.torrent)
 
 磁力链接 magnet:?xt=urn:btih:02fc71415d25cd269e31027a7f66f7522e6dc430
-
-下载BT种子 [《石濤聚焦》「台灣防疫優秀德法俄競相效仿」感謝WHO保中共台灣甩其一個多月今日台灣喊話全世界「台灣可以幫助全球為了每一個人的健康安全」中華民國大選拒絕中共台灣人救了自己與中華民族.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fe20d66d621192e9f17789ed39f100ef6eb5304.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6fe20d66d621192e9f17789ed39f100ef6eb5304
 
 下载BT种子 [《石濤聚焦》「安倍國會狂咳中媒爆棚習總指令-查病毒源頭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/286f8154beefd695c15a2e9e65bccc8d44fd3871.torrent)
 
