@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IyzMrg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E7nAXD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《瀕死經驗》「好萊塢的壞男孩兒-Gary」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69eb903466889fcc01950f4bb074a1b88e9ecd5b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:69eb903466889fcc01950f4bb074a1b88e9ecd5b
 
 下载BT种子 [《石濤聚焦》「石油暴跌25%川普驚慌菁英混亂」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1b1d740c3f59e0eab52d34e2d53577e58e03db4.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】外国人永居获超国民待遇新条例惹争议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84a065b9155eb916c481b548d618679e19ad57af.torrent)
 
 磁力链接 magnet:?xt=urn:btih:84a065b9155eb916c481b548d618679e19ad57af
-
-下载BT种子 [【禁闻】报告：去年12月“人传人”就成微信敏感词.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08a3884961104b1cc33b805a50ec6a697bafc2fa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:08a3884961104b1cc33b805a50ec6a697bafc2fa
 
 下载BT种子 [《石濤聚焦》「安倍國會狂咳中媒爆棚習總指令-查病毒源頭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/286f8154beefd695c15a2e9e65bccc8d44fd3871.torrent)
 
