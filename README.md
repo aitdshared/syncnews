@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E7nAXD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RhNjCs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共再改口称1月湖北医护感染超3千.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32c858357198416fc59355f7e0dabd891e5d7d33.torrent)
+
+磁力链接 magnet:?xt=urn:btih:32c858357198416fc59355f7e0dabd891e5d7d33
 
 下载BT种子 [《瀕死經驗》「好萊塢的壞男孩兒-Gary」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69eb903466889fcc01950f4bb074a1b88e9ecd5b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】党媒称“日子像蜜甜”北京人举报王沪宁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/813b15d4044da155d577e9d43bf4d091af993fcf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:813b15d4044da155d577e9d43bf4d091af993fcf
-
-下载BT种子 [【禁闻】外国人永居获超国民待遇新条例惹争议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84a065b9155eb916c481b548d618679e19ad57af.torrent)
-
-磁力链接 magnet:?xt=urn:btih:84a065b9155eb916c481b548d618679e19ad57af
 
 下载BT种子 [《石濤聚焦》「安倍國會狂咳中媒爆棚習總指令-查病毒源頭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/286f8154beefd695c15a2e9e65bccc8d44fd3871.torrent)
 
