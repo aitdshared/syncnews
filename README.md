@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aZBsdJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sIjPaI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】要武汉市民感恩党引众怒高层急令删稿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51a739624daa6ce47bf14816a16cafcc156c5b31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51a739624daa6ce47bf14816a16cafcc156c5b31
+
+下载BT种子 [【禁闻】3月8日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2df93a669122e01505074027767dd4335fc8498.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b2df93a669122e01505074027767dd4335fc8498
 
 下载BT种子 [【禁闻】3月8号疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e0d6865ecfdc060087175499674619175f28fd.torrent)
 
@@ -613,10 +621,6 @@
 
 磁力链接 magnet:?xt=urn:btih:77449868cc4329671c6d9558505f277033478d6d
 
-下载BT种子 [【禁闻】3月3日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f5eeb263567268381282f7506d1fbfafb08bded.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f5eeb263567268381282f7506d1fbfafb08bded
-
 下载BT种子 [美新冠疫情聽證參議員關切檢測能力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cfb94044d89691f24b001e3ebceb0b27323a6a9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1cfb94044d89691f24b001e3ebceb0b27323a6a9
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】各地确诊病例零增长网友揭真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d270a7aa1b9f3e60f9ef5c2da9eb94d6caae6aa7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d270a7aa1b9f3e60f9ef5c2da9eb94d6caae6aa7
-
-下载BT种子 [應對疫情美聯儲採取了08年以來最大規模的降息措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38d207a1074d8c94018d00aff6471ea88f1747ee.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38d207a1074d8c94018d00aff6471ea88f1747ee
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
