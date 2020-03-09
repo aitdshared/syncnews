@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FaKMcZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/byqfqo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [華府智庫：警惕中共知識產權盜竊（一）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2742dba76a2cd25ab2dec0d1908d45a3a6e1ac9f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2742dba76a2cd25ab2dec0d1908d45a3a6e1ac9f
+
+下载BT种子 [福建泉州隔離酒店倒塌71人受困官方證實曾改變了原本結構的承重量.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16bb1d09418382add29fe1f9748fd67eca90f68b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:16bb1d09418382add29fe1f9748fd67eca90f68b
+
+下载BT种子 [替中共高層是否甩鍋？鍾南山說早5天採取隔離感染人數可能只有現在的13引爭議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e775623a9b6db172b2f9e18bdc7ae4f05314e08f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e775623a9b6db172b2f9e18bdc7ae4f05314e08f
+
+下载BT种子 [應對中共當前危險委員會：多半美國選民對中共立場決定大選投票.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2497de73715abc0f749d95a06c0cf7b700971df1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2497de73715abc0f749d95a06c0cf7b700971df1
+
+下载BT种子 [國際油價創29年最大單日跌幅美股啟動熔斷機制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcc59b47dabb982aaa4c13770f69fe38e210a227.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fcc59b47dabb982aaa4c13770f69fe38e210a227
 
 下载BT种子 [香港市民悼念周梓樂陳彥霖港警再暴力驅趕與會市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a464a53aa151b7f909608d4d41b8c72b71a3a9e2.torrent)
 
@@ -605,29 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:5373a60e87104c7c289a352211b025465bf54f22
 
-下载BT种子 [武漢封城逾40天居民：每天活在恐懼中嚴酷封閉家中快斷糧未獲任何救濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97859d97eb857b439659cf8d76f9fb4e64fda10e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97859d97eb857b439659cf8d76f9fb4e64fda10e
-
 下载BT种子 [貴州教師談論疫情武漢一天就死500人被拘十天取消教師資格.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46807e0e1f1ad141a0a20478b0e6fc9b06b3c15a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:46807e0e1f1ad141a0a20478b0e6fc9b06b3c15a
-
-下载BT种子 [新冠病毒持續傳播世衛：全球新冠病毒致命率上調至3.4%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbc5f72961d1f7ec2e3483d153cf5fbdf6e54b04.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dbc5f72961d1f7ec2e3483d153cf5fbdf6e54b04
-
-下载BT种子 [高调表扬周市长，李克强公开叫板习近平！钟南山带头宣誓保密。伊朗高官集体圆了中国梦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d0a32285f997a6b6c469b0b755ce8e5e1b4730.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9d0a32285f997a6b6c469b0b755ce8e5e1b4730
-
-下载BT种子 [⚡️紐約華人走路突倒地！親歷者揭俄防疫狠招；伊朗屍體滿醫院，行人倒斃；武漢肺炎痊癒者頻「還陽」；東京奧運80年前因武漢取消；真來了！中國下令嚴防蝗蟲入境新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc21934d24ba04025cd379087562c7a4425b3afd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bc21934d24ba04025cd379087562c7a4425b3afd
-
-下载BT种子 [【解讀】揭中共疫情造假，為復工造勢；非洲豬瘟、蝗蟲大軍復活；名醫自曝器官供體多（2020.3.4）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80c5cf42a634271060dcc747b988a2ea508364eb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:80c5cf42a634271060dcc747b988a2ea508364eb
 
 下载BT种子 [【禁闻】一个月内六名法轮功学员被迫害离世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48fa4bdcdc1bc94ee481ed1aacb0f65ab9d03e1.torrent)
 
