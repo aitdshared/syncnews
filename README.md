@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MILuXd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YAc1r1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [国歌被禁？美国学者鉴定：习近平病得不轻！感恩论刷屏，王某一夜成网红.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f60b8ecaf3c1a46e3d255b64e1d817833055273.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f60b8ecaf3c1a46e3d255b64e1d817833055273
 
 下载BT种子 [🇷🇺疫情曝普京假友中真反共；意大利封全國！傳文在寅共產信徒，靠中共上台；武漢某院3.11清空患者；新冠病毒可飛4.5米，飄半小時；故意散假消息，揭五毛7陰招；反送中滿9個月新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe78444a3a5e2266e2fca5caaf5ee61c0eb48a91.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第二十九回斬侯虎文王托孤」子牙書信明善惡黑虎折服寧得罪宗族也不願失信天下崇黑虎設計拿兄長（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca6a3f5fda62e74b0211b7b3ebb990ca6b739410.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ca6a3f5fda62e74b0211b7b3ebb990ca6b739410
-
-下载BT种子 [【中國禁聞】3月4日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fd171ca5cc9b578a14329f7650680ade70cab29.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3fd171ca5cc9b578a14329f7650680ade70cab29
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
