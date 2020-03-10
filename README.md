@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nsktGg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bPnfDv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共推庞大投资计划专家制造新危机.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6f7903330ea354406f04aa05cace192feb81d73.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c6f7903330ea354406f04aa05cace192feb81d73
+
+下载BT种子 [封城逃亡無床位，意大利複製武漢？病毒長眼，親共遭殃！罵習是「小丑」，李克強手下「無意洩密」？護照&人民幣將作廢？雪地蛇行，小蟲伴雪飛，冠狀冰雹來襲，地震雲滿空【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92604bc6ca5dce6176c956a2eff6df5a0fad3a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a92604bc6ca5dce6176c956a2eff6df5a0fad3a3
 
 下载BT种子 [【禁闻】台湾研发出武肺快筛试剂中共迅速抢功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d6185f9f9d98cdc739b98ff988830c9ac749c84.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [韩国媒体大赞台湾，台湾“好想赢韩国”变身“轻松赢韩国”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0da1f057235f07f60c5cf10e044f8e2af4da9524.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0da1f057235f07f60c5cf10e044f8e2af4da9524
-
-下载BT种子 [世衛調高死亡率，病毒已突變，傳染力更強！有人迂迴向習問責？北京五大短板，日子難熬。復工女性倒在車間，武鋼從沒停產，青山區疫情爆發，網友發現新增病例為「0」的背後有問題！【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58731b9c9aed3961eae67dfe5f7a5f198d1afc20.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58731b9c9aed3961eae67dfe5f7a5f198d1afc20
 
 下载BT种子 [【禁闻】中共推健康码监控疫情还是控制民众？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95b180ae1155048cf98e66c224d6d68a6e79a0b2.torrent)
 
