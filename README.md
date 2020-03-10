@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4p6sVI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ay7Mdr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】武漢一位出院婆婆親身見識醫院的恐怖：很多活著患者被裹四層屍袋直接拖到火葬場燒掉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f720eb7a0bfa6c0d50d5387d628409ffe73754ed.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f720eb7a0bfa6c0d50d5387d628409ffe73754ed
 
 下载BT种子 [【禁闻】美专家点名中共靠谎言生存的审查机构..mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc74d840aeddf9d8dc9e58970e4e607c1a56fdaa.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】台抗疫经验登国际期刊专家：他国可借鉴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/397bf70c1db8bb55faa72856fdeff6757928afcf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:397bf70c1db8bb55faa72856fdeff6757928afcf
-
-下载BT种子 [【禁闻】孙春兰武汉视察社区居民怒吼：全是假的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfe9ef951a6a02bcd3cf7d6e14f07523c7e8f348.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfe9ef951a6a02bcd3cf7d6e14f07523c7e8f348
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
