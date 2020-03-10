@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9tn0Cu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5rb4Ag)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [國際油價和股市大跌美股啟動新熔斷機制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbcef13157ab57c2862962433c550b9a0403a888.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fbcef13157ab57c2862962433c550b9a0403a888
+
+下载BT种子 [美國洛杉磯再添兩例武漢肺炎可能來自社區傳染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6ea9369a20091084244a244109a517a285d2354.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e6ea9369a20091084244a244109a517a285d2354
+
+下载BT种子 [意大利總理宣佈全境封鎖伊朗高官再死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3a649f05a9bc5fb8cdc42bf26b771dd9636e371.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f3a649f05a9bc5fb8cdc42bf26b771dd9636e371
 
 下载BT种子 [【禁闻】中共推庞大投资计划专家制造新危机.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6f7903330ea354406f04aa05cace192feb81d73.torrent)
 
@@ -604,10 +616,6 @@
 下载BT种子 [取代華為美加速尋求5G替代供應商.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96b30bf61739fd645f1a87c88cd34bc9b061d9d3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:96b30bf61739fd645f1a87c88cd34bc9b061d9d3
-
-下载BT种子 [川普：公衆在美國國內旅行是安全的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0310b61a4bc3125e3c80bb770c10f56a75a12a3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e0310b61a4bc3125e3c80bb770c10f56a75a12a3
 
 下载BT种子 [【真理部的荒誕故事】港首辦公室的「抗病毒」怪波.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e7f6ee5c935b0fce32abdd2e40e90f5e88405a3.torrent)
 
