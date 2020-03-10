@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9pi2K5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A1bywV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習突訪武漢公安進屋監控市民樓頂上站滿了狙擊手待命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02a2cb33141fffe6c4e408b48d926aef0da0ef38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:02a2cb33141fffe6c4e408b48d926aef0da0ef38
+
+下载BT种子 [醫生家屬爆料：漢陽數個小區再爆大規模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c254399d33865330ab77f5aa1f65201acb0fe540.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c254399d33865330ab77f5aa1f65201acb0fe540
 
 下载BT种子 [【全球新闻】意大利总理宣布全境封锁伊朗高官再死亡(3月9日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4e67d8dee5dc453be02963c0de6531bab6ac0e9.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [目前美國包括撤僑有100多起確診白宮疫情記者會各部門專家：風險仍很低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6baad64ba6067c115fd83284db19f6a03f0f53a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6baad64ba6067c115fd83284db19f6a03f0f53a0
-
-下载BT种子 [美國83億美元緊急資金對抗新冠用於醫療疫苗研發及應對海外疫情等.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b79d086fa066b3d8e5c3e8bcb063502695b89f7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b79d086fa066b3d8e5c3e8bcb063502695b89f7f
-
-下载BT种子 [外交搏击，有一事中共帮了美国大忙？四套班子摆阵势，习李王各拥司令部.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43e5cafe6873951f8f06b47683107de1319d761a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43e5cafe6873951f8f06b47683107de1319d761a
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
