@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jknppH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nnGmgv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [茶館黃標奇案！譚德塞段子來啦！茶友曝光醫院新動作，大淫婦北京拉誰下水？（老北京茶館第265集20200309）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff7f6d8825924d2910c5c59368a1f687e8af2392.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff7f6d8825924d2910c5c59368a1f687e8af2392
 
 下载BT种子 [華南海鮮市場拆除與新一輪政治動向；距離中共遠近與感染機會大小有關係麼？任志強的砲聲能傳多遠？（江峰漫談20200309第132期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af23bee97e922b0c69e871615f8aabdf7978def2.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美國接連出手，大外宣是否會大縮水？下一步拿I簽證的中共權貴家屬懸了？加州宣布緊急狀態，居民們慌嗎？蕭恩吳建民熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19ff31129120cfef1ef21e21a38b84df06111692.torrent)
 
 磁力链接 magnet:?xt=urn:btih:19ff31129120cfef1ef21e21a38b84df06111692
-
-下载BT种子 [3月不返岗、6月不干活，迎来新中国？习总“赞己诏”大翻车，被谁算计？（20200304第711期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86a0fc049be185cf071d9e6bb7a60be30fd39177.torrent)
-
-磁力链接 magnet:?xt=urn:btih:86a0fc049be185cf071d9e6bb7a60be30fd39177
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
