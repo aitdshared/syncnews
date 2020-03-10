@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LoMd2B)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uqijPr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對病毒傳播川普：保護美國公衆及經濟姆努欽：政府將對在家隔離和家屬提供幫助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12f9663aa03e29228d21165a83d8dfffe1f57a14.torrent)
+
+磁力链接 magnet:?xt=urn:btih:12f9663aa03e29228d21165a83d8dfffe1f57a14
+
+下载BT种子 [華府智庫：警惕中共知識產權盜竊（二）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb5b6830c5cfce43638bf6dd47020bc1c1107243.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb5b6830c5cfce43638bf6dd47020bc1c1107243
+
+下载BT种子 [孫楊被禁賽8年遭黨媒抨擊網友被黨拋棄!.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e0e8ded79ccb13eaec361ac03d2ab3b5a0f3255.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e0e8ded79ccb13eaec361ac03d2ab3b5a0f3255
 
 下载BT种子 [習突訪武漢公安進屋監控市民樓頂上站滿了狙擊手待命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02a2cb33141fffe6c4e408b48d926aef0da0ef38.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [《石濤聚焦》「武漢病毒感染者近10萬81國被掩蓋後死亡3300」美軍聯繫會議-30天內全球大爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acb3a42ea78fe1f7a9a5ab8af8db2dcdeed44b8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4acb3a42ea78fe1f7a9a5ab8af8db2dcdeed44b8
-
-下载BT种子 [蘇州公安強制開工：感染了換另一批人繼續幹人多的是.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fcfb2290c2de8a7d0bede86f1b1302924f8cd5a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4fcfb2290c2de8a7d0bede86f1b1302924f8cd5a
-
-下载BT种子 [武漢一家方艙醫院證實近期出院的較多患者又復發重新入院引發公眾恐慌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b42f1c513f97b041abd069144eedfaf6dc170c54.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b42f1c513f97b041abd069144eedfaf6dc170c54
-
-下载BT种子 [目前美國包括撤僑有100多起確診白宮疫情記者會各部門專家：風險仍很低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6baad64ba6067c115fd83284db19f6a03f0f53a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6baad64ba6067c115fd83284db19f6a03f0f53a0
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
