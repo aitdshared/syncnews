@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xGiLPe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/POv8f1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】意大利总理宣布全境封锁伊朗高官再死亡(3月9日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4e67d8dee5dc453be02963c0de6531bab6ac0e9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b4e67d8dee5dc453be02963c0de6531bab6ac0e9
 
 下载BT种子 [【獨家】活摘器官更多爆料，三名網友爆料實例見證；武漢肺炎蔓延，YouTubers成受災戶；各國疫情輕重不同，透露奇特規律？（2020.3.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e4759dddc8d4c88e92ba29ac4fa8cfd9027b2dd.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [外交搏击，有一事中共帮了美国大忙？四套班子摆阵势，习李王各拥司令部.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43e5cafe6873951f8f06b47683107de1319d761a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:43e5cafe6873951f8f06b47683107de1319d761a
-
-下载BT种子 [外交搏击，有一事中共帮了美国大忙！四套班子乱江城，习李王权力混战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34ce9f40c64004271ba960ef0f13aecc0b989d93.torrent)
-
-磁力链接 magnet:?xt=urn:btih:34ce9f40c64004271ba960ef0f13aecc0b989d93
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
