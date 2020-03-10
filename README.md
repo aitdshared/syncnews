@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tKZpkL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cdSUsj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [意大利達9千多例全國封鎖首爾爆發群聚感染朝鮮境內近萬人被隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be5a572915a0364064168c4bc4490b016cd08269.torrent)
+
+磁力链接 magnet:?xt=urn:btih:be5a572915a0364064168c4bc4490b016cd08269
+
+下载BT种子 [中共開展感恩教育武漢市民：一切災難都是共產黨造成它們應該為此謝罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ebb9a08db134afbf5400166bc6b627ed744e5c04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ebb9a08db134afbf5400166bc6b627ed744e5c04
 
 下载BT种子 [應對病毒傳播川普：保護美國公衆及經濟姆努欽：政府將對在家隔離和家屬提供幫助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12f9663aa03e29228d21165a83d8dfffe1f57a14.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [韓病例逾6千限購口罩日本推遲習近平訪日將對從中國和韓國入境的旅客隔離14天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2a7ed7b0e8a5fb6ed4b08806725019e4ba9a282.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d2a7ed7b0e8a5fb6ed4b08806725019e4ba9a282
-
-下载BT种子 [中國朝鮮族網民自曝利用上千個帳號操縱韓國網絡輿論韓國社會擔憂中共網絡水軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1df3557f877fe89d371e9d10715db4071b29230b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1df3557f877fe89d371e9d10715db4071b29230b
-
-下载BT种子 [《石濤聚焦》「武漢病毒感染者近10萬81國被掩蓋後死亡3300」美軍聯繫會議-30天內全球大爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acb3a42ea78fe1f7a9a5ab8af8db2dcdeed44b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4acb3a42ea78fe1f7a9a5ab8af8db2dcdeed44b8
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
