@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ay7Mdr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ebFfRi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平终于来了！满街群众演员。突现一条大标语！某国前总统把话说穿了：就是那么回事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a87074a4e84e2dc002d78df388b6733d3e44abbd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a87074a4e84e2dc002d78df388b6733d3e44abbd
 
 下载BT种子 [【一線採訪】武漢一位出院婆婆親身見識醫院的恐怖：很多活著患者被裹四層屍袋直接拖到火葬場燒掉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f720eb7a0bfa6c0d50d5387d628409ffe73754ed.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [半壁江山戴黄标，满朝文武皆影帝！出路和系统崩溃（20200305第712期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28ced5d249d7298d28d9d2114c93a8a5c4ed0d8c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:28ced5d249d7298d28d9d2114c93a8a5c4ed0d8c
-
-下载BT种子 [【禁闻】台抗疫经验登国际期刊专家：他国可借鉴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/397bf70c1db8bb55faa72856fdeff6757928afcf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:397bf70c1db8bb55faa72856fdeff6757928afcf
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
