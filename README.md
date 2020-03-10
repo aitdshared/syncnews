@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mhhfYl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rTpuSk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美股熔斷崩盤義大利攻陷歐盟習總恰時出頭武漢-人類大救星」樓頂狙擊手住戶內身著防護服的警察大批黑口罩便衣進小區「習總冒死拚權力中南海有人要他命病毒依舊所有人知道習總造假」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0458e27736ad2e82e783cd26357f94c8e8ff88bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0458e27736ad2e82e783cd26357f94c8e8ff88bf
 
 下载BT种子 [《石濤聚焦》「美股熔斷崩盤義大利攻陷歐盟習總恰時出頭武漢-人類大救星」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9eeae4eac800853618a70e56daacd06e6868dd7.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】3月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e83af9bdb7fe5ad4fc2af007cdd412a7447964a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1e83af9bdb7fe5ad4fc2af007cdd412a7447964a
-
-下载BT种子 [《石濤聚焦》「中共國首席生化武器專家女少將陳薇‘親使第一針疫苗’全網瘋傳」王滬寧瘋了！習近平傻了-剛剛帶罩視察完軍事醫學科學院疫苗就扎到武漢抗疫總指揮身上「中共的速度習總的力量王滬寧的手段」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc40689fc11cdb4decec766b77849bef1e471e25.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc40689fc11cdb4decec766b77849bef1e471e25
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
