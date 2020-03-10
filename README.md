@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xj3r4V)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jTaxoA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月10日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab70abd179d7dcebad3e990972fd326f00b01317.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ab70abd179d7dcebad3e990972fd326f00b01317
 
 下载BT种子 [【禁闻】美专家点名中共靠谎言生存的审查机构.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11e2930f6b79cfba1ac85d056b44d9f90cabdab5.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【一線採訪】武漢辛女士：官方死亡數據太可笑我每天都看到有病亡的被抬出來真的太多還有跳樓的上吊的真的太多了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b883872d046eeb1f14b06287fdf496e6c2144808.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b883872d046eeb1f14b06287fdf496e6c2144808
-
-下载BT种子 [【禁闻】3月5日新冠肺炎疫情改变海外华人对中国看法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa69af62c09d6622de9d761e1853a0199b916bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daa69af62c09d6622de9d761e1853a0199b916bd
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
