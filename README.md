@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Y4CQS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/biLWpt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：川普幕僚長與同飛機者有狀況自己拒絕測試」川普減稅和保險公司承擔所有美國人相關費用推動股市全美近755死亡29死亡率4%「5名政府官員與議員自我隔離」（1003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d83737802f973dab89e1ba39ccf03f9e8b756ba5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d83737802f973dab89e1ba39ccf03f9e8b756ba5
+
+下载BT种子 [《石濤聚焦》「習總武漢行職業群眾隨身帶」現場視頻「可以喊了嗎？」「這次是我離習主席最近的一次！」加州華人紛紛買槍防身義大利確診過萬死亡率高達6%（1003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da8999703a84d501ed99d22084ac68c307b962fc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:da8999703a84d501ed99d22084ac68c307b962fc
 
 下载BT种子 [中共拉鍾南山為黨輸血分析：鍾南山變成了中南海危急时刻將其信譽一次清空.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de7d4c84e211233164d93515da267a32f3659a5f.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [染疫郵輪返回舊金山北加新增兩例社區感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ba30ca445fd5a72ab15c15d9bd4d64faff7cbae.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5ba30ca445fd5a72ab15c15d9bd4d64faff7cbae
-
-下载BT种子 [美國LAX篩檢人員染疫AT&T員工染病關門消毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d487193d8099028cd091733ce742fdf150b91bb6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d487193d8099028cd091733ce742fdf150b91bb6
-
-下载BT种子 [【禁闻】云南强推“大锅药”抗疫中医师：草菅人命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccef04571e726ca786fece7bf9ecd0c6826a324c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ccef04571e726ca786fece7bf9ecd0c6826a324c
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
