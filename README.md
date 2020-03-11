@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TfdwGx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rjgpLC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美股、油价双闪崩！中共或成火力交汇点；全球衰退风险和甩不掉的锅（20200311第715期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/860fc03eb881966078aaa3a211748922270e1794.torrent)
+
+磁力链接 magnet:?xt=urn:btih:860fc03eb881966078aaa3a211748922270e1794
 
 下载BT种子 [【环球直击】河南长葛爆发疫情中共操控疫情抹黑美国（3月11日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1591f956ef86e964e67008ebaaabe2649f27e9e9.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [李文亮被追授先進人物網民要求中共道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/045aa23ccbc7898709b451f27b6f6cc0ee323bf2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:045aa23ccbc7898709b451f27b6f6cc0ee323bf2
-
-下载BT种子 [韭菜降級“雜草”，習近平戰“疫”還有危機？中國和世界，誰欠誰一個道歉？楊建立、江峰做客自由亞洲電台（江峰漫談特別節目20200306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2068bae7a86c6a8ae60e4adc932c6a46f14c2535.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2068bae7a86c6a8ae60e4adc932c6a46f14c2535
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
