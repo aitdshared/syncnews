@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8OTypb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GbgCDK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：川普幕僚與同飛機者有狀況自己拒絕測試」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a70ac6c58a3374592031b598da5d4c39ee9c685.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a70ac6c58a3374592031b598da5d4c39ee9c685
 
 下载BT种子 [【禁闻】防中共“甩锅”蓬佩奥坚称：武汉肺炎病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f81d2cfb0977649e30a6a1af9aa89e759919b222.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中國疫苗早就有，只有高層在用？康復患者猝死，最短傳染16秒，寵物開始傳染？病毒狡猾將與人類共存，可致腦炎？疫情4月結束？也說說李躍華醫生，武漢人獨家爆料【新聞看點李沐陽】（20200305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b49f2d6845d333dca5a6283a9e1a4fe7634c433d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b49f2d6845d333dca5a6283a9e1a4fe7634c433d
-
-下载BT种子 [世界衛生組織統計數據8成新病例來自這3個囯家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40af487b61545d93a78237130e62a30b27ac0882.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40af487b61545d93a78237130e62a30b27ac0882
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
