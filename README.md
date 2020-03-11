@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xCZZFH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DKWUHf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】習近平去武漢背後三重宣示；中共不是中國人系列分析（2）：馬列子孫的身份困境熱點互動03102020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/842ace75afcf65158da971f35b490b62f982ef6a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:842ace75afcf65158da971f35b490b62f982ef6a
 
 下载BT种子 [【禁闻】习近平武汉视察居民一家入驻一警察.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c56d4079d199e4b059eb4f64383b2f4d01463d45.torrent)
 
@@ -620,14 +624,6 @@
 下载BT种子 [不当爹，永远也无法体会到的一些事情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fd9024d0cff7d1fe761ba0e910b75b121a80e9d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7fd9024d0cff7d1fe761ba0e910b75b121a80e9d
-
-下载BT种子 [YouTube回应“黄标”事件；一次造假不到位的视察；飞往北京上海的多部航班被停飞（政论天下第126集20200305）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c57b2d0b22b9417bf1d1cf0c1148d30aa5fde60a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c57b2d0b22b9417bf1d1cf0c1148d30aa5fde60a
-
-下载BT种子 [【中國禁聞】3月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43cb8ae52debc36a26ef36f1efac5061f83ab2ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43cb8ae52debc36a26ef36f1efac5061f83ab2ce
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
