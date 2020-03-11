@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9LtB1t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Y4CQS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共拉鍾南山為黨輸血分析：鍾南山變成了中南海危急时刻將其信譽一次清空.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de7d4c84e211233164d93515da267a32f3659a5f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de7d4c84e211233164d93515da267a32f3659a5f
+
+下载BT种子 [武漢肺炎蔓延逾百國意大利感染人數破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/044c3e6d8c9edc754b97ed941441d4e9fce71d31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:044c3e6d8c9edc754b97ed941441d4e9fce71d31
+
+下载BT种子 [川普政府再出手美股大幅反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4e3a0c7da87e02eb705d287166487afe0edc862.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4e3a0c7da87e02eb705d287166487afe0edc862
 
 下载BT种子 [《石濤聚焦》「突發：川普幕僚與同飛機者有狀況自己拒絕測試」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a70ac6c58a3374592031b598da5d4c39ee9c685.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【禁闻】云南强推“大锅药”抗疫中医师：草菅人命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccef04571e726ca786fece7bf9ecd0c6826a324c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ccef04571e726ca786fece7bf9ecd0c6826a324c
-
-下载BT种子 [印度洋底“午夜區”透明潛艇探索未知領域.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7889d0f5ffff2f42db82de59c3ad7499c41a81b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7889d0f5ffff2f42db82de59c3ad7499c41a81b6
-
-下载BT种子 [專家：紐約防疫得當民眾可正常工作娛樂生活.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fe8cca7a8d5d86dcb8c9014ca81c3c2b1494a7e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7fe8cca7a8d5d86dcb8c9014ca81c3c2b1494a7e
-
-下载BT种子 [中國疫苗早就有，只有高層在用？康復患者猝死，最短傳染16秒，寵物開始傳染？病毒狡猾將與人類共存，可致腦炎？疫情4月結束？也說說李躍華醫生，武漢人獨家爆料【新聞看點李沐陽】（20200305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b49f2d6845d333dca5a6283a9e1a4fe7634c433d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b49f2d6845d333dca5a6283a9e1a4fe7634c433d
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
