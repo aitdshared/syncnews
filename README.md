@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ksn1UG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F3f1e2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對疫情川普政府商討經濟計劃彭斯：保險公司同意免除病毒測試費用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e62734b3807643f88437453d9254b96532bab311.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e62734b3807643f88437453d9254b96532bab311
+
+下载BT种子 [加州州長紐森罕見稱讚川普防控疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b6d35d9f8886af45a633f196baf419633f7acb6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b6d35d9f8886af45a633f196baf419633f7acb6
+
+下载BT种子 [華府智庫：警惕中共知識產權盜竊（三）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64993fc80ac214d1f62befbc79caae9103447471.torrent)
+
+磁力链接 magnet:?xt=urn:btih:64993fc80ac214d1f62befbc79caae9103447471
 
 下载BT种子 [【环球直击】3月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2d48940f96ee5aad3ef27656bef97fcbf293380.torrent)
 
@@ -620,10 +632,6 @@
 下载BT种子 [疫情導致學校停課日本家長喜憂參半.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28453ba639c3e0ecf57373d651ff25e8b4663870.torrent)
 
 磁力链接 magnet:?xt=urn:btih:28453ba639c3e0ecf57373d651ff25e8b4663870
-
-下载BT种子 [旅美獨立學者吴祚来：中共沒能控制疫情海外華人需要經歷脫離中共洗腦和傷害的過程.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9d18b185527bba8821b9c8bbd92184c57e95b8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f9d18b185527bba8821b9c8bbd92184c57e95b8f
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
