@@ -21,21 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qJTafu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MiJHxQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [美國共產主義受難者基金會國會山新聞發布會于溟：被中共關押中三次抽血.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da9ae4b1a21d1aa678203d5a23d7038291232c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3da9ae4b1a21d1aa678203d5a23d7038291232c8
-
-下载BT种子 [習近平視察武漢市民打橫幅訴真相呼籲市民都站出來發聲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea15e5547d5a68a85d04769a0d79d8de007acab6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea15e5547d5a68a85d04769a0d79d8de007acab6
 
 下载BT种子 [應對疫情川普政府商討經濟計劃彭斯：保險公司同意免除病毒測試費用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e62734b3807643f88437453d9254b96532bab311.torrent)
 
