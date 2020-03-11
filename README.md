@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MiJHxQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xrMPtH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [意大利確診超1萬伊朗累計死亡近400英國衛生部一名官員被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef25424a122dfdaa39ef3aa89138ebe3d55761a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef25424a122dfdaa39ef3aa89138ebe3d55761a0
+
+下载BT种子 [河南長葛爆發疫情警察挨家挨戶查手機封鎖消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7acfd136c595d107b7f5472ebe225da7ac2dcdc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7acfd136c595d107b7f5472ebe225da7ac2dcdc
+
+下载BT种子 [中共一份誘導紅色自媒體抹黑美國的「疫情期間涉美宣傳指導綱要問答」在網上傳出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4280808e99c59a5d815548f79a2652718c293ff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4280808e99c59a5d815548f79a2652718c293ff
+
+下载BT种子 [美國共產主義受難者基金會國會山新聞發布會于溟：被中共關押中三次抽血.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da9ae4b1a21d1aa678203d5a23d7038291232c8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3da9ae4b1a21d1aa678203d5a23d7038291232c8
+
+下载BT种子 [習近平視察武漢市民打橫幅訴真相呼籲市民都站出來發聲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea15e5547d5a68a85d04769a0d79d8de007acab6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ea15e5547d5a68a85d04769a0d79d8de007acab6
 
 下载BT种子 [應對疫情川普政府商討經濟計劃彭斯：保險公司同意免除病毒測試費用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e62734b3807643f88437453d9254b96532bab311.torrent)
 
@@ -604,34 +624,6 @@
 下载BT种子 [《石濤聚焦》「人類菁英遭遇病毒混亂痛苦無解」確診超過10萬歐美持續失控之狀川普批出過百億現金應對85國染病習總堅稱病毒為【人類冠狀病毒2019-人類命運共同體】恐懼非典-SARS2.0.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9075344a0b49c9deea16a5842a2478f7f690a73.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b9075344a0b49c9deea16a5842a2478f7f690a73
-
-下载BT种子 [「石濤的聲音」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/807032639878e49ceba37da8807d047a99935c77.torrent)
-
-磁力链接 magnet:?xt=urn:btih:807032639878e49ceba37da8807d047a99935c77
-
-下载BT种子 [《石濤.News》「習近平近期視察武漢-挑戰死亡威脅？」配料已現：孫春蘭視察遇抗議官媒改說人話湖北赤壁等2城解封原湖北書記蔣超良人大官位被砍-習總推責「歐美疫情快速擴散習總-人類領袖樹立良機」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58711eeb636151e8aa20f68c757f9cdb1c7f145a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58711eeb636151e8aa20f68c757f9cdb1c7f145a
-
-下载BT种子 [副總理孫春蘭來武漢被困在家裡40多天的小區居民們怒吼：「全部都是假的」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d62e096f775ae87fdb223d42948082977191aa75.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d62e096f775ae87fdb223d42948082977191aa75
-
-下载BT种子 [【蕭茗訪談】為什麼中共拒絕讓美國專家來華？班農：大瘟疫！武漢肺炎已失控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6831bdd570f7ba98c5c8324c77d698baa69e1fbb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6831bdd570f7ba98c5c8324c77d698baa69e1fbb
-
-下载BT种子 [旅加武漢人：在武漢的15位親友感染多人相繼去世中共官方嚴重瞞報疫情釀成人禍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa8d654d2b17b9ebe02db4bf570f33bcd6ad2500.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aa8d654d2b17b9ebe02db4bf570f33bcd6ad2500
-
-下载BT种子 [新冠病毒全球疫情梵蒂岡現首宗病例伊朗累計超過4700人感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd3d2628553d8cb2a688504e399ac9dd4676095f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cd3d2628553d8cb2a688504e399ac9dd4676095f
-
-下载BT种子 [疫情導致學校停課日本家長喜憂參半.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28453ba639c3e0ecf57373d651ff25e8b4663870.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28453ba639c3e0ecf57373d651ff25e8b4663870
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
