@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1DC1i6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YXNGQK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2d48940f96ee5aad3ef27656bef97fcbf293380.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a2d48940f96ee5aad3ef27656bef97fcbf293380
 
 下载BT种子 [介绍我的车，在韩国给车加油的过程，边走边聊，看看当下韩国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85c7af2707d68ddf12e70acf8dd21f804b05ab79.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [旅美獨立學者吴祚来：中共沒能控制疫情海外華人需要經歷脫離中共洗腦和傷害的過程.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9d18b185527bba8821b9c8bbd92184c57e95b8f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f9d18b185527bba8821b9c8bbd92184c57e95b8f
-
-下载BT种子 [中共媒體與5G威脅蓬佩奧埃斯珀回應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba2ceae0aa2ff2a74dd4fde19b5d90132f3e00b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4ba2ceae0aa2ff2a74dd4fde19b5d90132f3e00b
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
