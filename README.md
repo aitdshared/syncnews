@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XwcQ4d)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E9gsv8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平前脚刚走，世界生卫组织即宣布“全球大溜行”；川普的经济刺激与中共的二次甩锅（政论天下第130集20200311）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b841ec2b53fbbae09c78d140fcf06d668953fc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b841ec2b53fbbae09c78d140fcf06d668953fc6
+
+下载BT种子 [于溟先生爆光第一手錄像證據在國會山佐證“中共活摘器官”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbc542d52507166613ef05fdead69deb442e485c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fbc542d52507166613ef05fdead69deb442e485c
 
 下载BT种子 [【一線採訪】武漢肝病病患命危被拒收治女兒害怕母亲感染病毒向外界求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361f9a49ad36080788afb50a25df9ee753221c1a.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [《石濤聚焦》「WHO主任：武漢病毒🦠不會在夏季消失習總復工成賭博殺人」美國已亡15人華盛頓與耶魯準備封校紐約州社區爆發英國社區擴散義大利單日死亡49德法超過日本.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/242718112cb42ac79a7c175bcf419bbdbc0506b8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:242718112cb42ac79a7c175bcf419bbdbc0506b8
-
-下载BT种子 [海外新冠病例破2萬世衛籲各國加緊防控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/134c62756e39bbc5f39d6ce23b6f645981109b79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:134c62756e39bbc5f39d6ce23b6f645981109b79
-
-下载BT种子 [李文亮被追授先進人物網民要求中共道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/045aa23ccbc7898709b451f27b6f6cc0ee323bf2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:045aa23ccbc7898709b451f27b6f6cc0ee323bf2
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
