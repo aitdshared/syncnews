@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Dqjv0T)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W8INzm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微視頻】美國防治武漢肺炎的試劑與疫苗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4bdf6c8c34b05ad64393cac2ee9acd30696fc04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4bdf6c8c34b05ad64393cac2ee9acd30696fc04
 
 下载BT种子 [比台灣治愈率高一倍！？“康復者”批發出院，竟然是為了這個；世衛組織宣布“全球大流行”，配合習近平的“中國很精彩、世界很狼狽”（江峰漫談20200311第134期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87df32e3107174849bba9fb43eeaf91b1ea3dce4.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [新冠病毒致股市動蕩美國股市再度下跌專家分析及應對.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf00b7564f5dd3d43663c140ee8155cacc4518e0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bf00b7564f5dd3d43663c140ee8155cacc4518e0
-
-下载BT种子 [北京市民实名举报王沪宁！中南海何时清君侧？习近平为何独独倚重他.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c04d98e58fa20068766090f2bbb675b56a0fc94a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c04d98e58fa20068766090f2bbb675b56a0fc94a
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
