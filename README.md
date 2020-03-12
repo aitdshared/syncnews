@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7gX5zm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hRkW2e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共能撑过2020年吗？从三个方面分析这个问题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49fa86ed6723c99e35dcb225e6b96a18b03339d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:49fa86ed6723c99e35dcb225e6b96a18b03339d5
+
+下载BT种子 [【禁聞】3月11日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2be4fa3af386d28159f08fafc7ae8e08b3fd4200.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2be4fa3af386d28159f08fafc7ae8e08b3fd4200
+
+下载BT种子 [【禁聞】習近平視察武漢評：怕失民心政治作秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2831786a6d8a0abf8798801fff5b67e37ffac068.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2831786a6d8a0abf8798801fff5b67e37ffac068
 
 下载BT种子 [【全球新闻】3月11日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7691cc5cca832ae145aa5df1be9fd8ede83a8586.torrent)
 
@@ -612,10 +624,6 @@
 下载BT种子 [公开文睿的工作室，看看我的视频是怎么做出来的，介绍一下那个空调.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73bab1c498f7c8541702d6b4f32bbbc3f5da5c50.torrent)
 
 磁力链接 magnet:?xt=urn:btih:73bab1c498f7c8541702d6b4f32bbbc3f5da5c50
-
-下载BT种子 [【禁闻】疫情冲击中国企业裁员减薪失业潮来袭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20ef6adba5348919310941006abbce0ee7936bba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20ef6adba5348919310941006abbce0ee7936bba
 
 下载BT种子 [【禁闻】“复工不复产”中国中小企业的艰辛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/707cf2d082c4246b5224fc9fd790655bab2e4db6.torrent)
 
