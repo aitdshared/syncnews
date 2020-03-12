@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sM3m03)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1d6JkK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一線採訪】武漢市民：對疫情的調研和普查完全沒做到位收治就更不會了母親在養老院被確診一直沒有收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c9bef249d5dfde6293014f43b8637f35579e7c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8c9bef249d5dfde6293014f43b8637f35579e7c7
+
+下载BT种子 [【百姓自拍】習近平離開武漢後湖北孝感社區為民生爆發群體抗議居民憤怒高喊“下課”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0e47c7785aca227812cfd5c476eafefbf366acd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0e47c7785aca227812cfd5c476eafefbf366acd
 
 下载BT种子 [應對疫情川普強調病毒起源於中國頒布30天歐洲旅行禁令將全力保護美國人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5bc723ee1800a33314f3ef7826b34168a10ca1c.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第二十九回斬侯虎文王托孤」黑虎設計捕兄長善惡到頭終有報「善者福惡者禍」文王至忠巨善難見血緊隨侯虎同歸西「見善不怠行義勿疑去非勿處」修身之道治國安民之大略（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae7e4ee3f0fb6a798f1e97cf0e440f8f865ca6db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ae7e4ee3f0fb6a798f1e97cf0e440f8f865ca6db
-
-下载BT种子 [出去走走，看看当下的韩国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/557e413b690e3e083ef4464d00660e4f029bb8a4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:557e413b690e3e083ef4464d00660e4f029bb8a4
-
-下载BT种子 [硅谷关闭;“二王”给习近平挖坑,智商多低才会掉進去从贪天之功说说修行人的谦卑与感恩(政论天下第128集20200307)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e729cdd80c218eafd70614e495c520885e0afcf8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e729cdd80c218eafd70614e495c520885e0afcf8
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
