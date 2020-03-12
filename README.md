@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2q8eg3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Id9Qo2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對疫情川普強調病毒起源於中國頒布30天歐洲旅行禁令將全力保護美國人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5bc723ee1800a33314f3ef7826b34168a10ca1c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d5bc723ee1800a33314f3ef7826b34168a10ca1c
 
 下载BT种子 [《石濤聚焦》「定數2月21日南韓義大利爆發美國第一例-川普被習總當猴兒騙了」川普給美國帶來麻煩的話「我希望代表美國人民感謝習主席」全美43州1.3千人38人亡最壞1.5億人感染現3.5%死亡率.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ed440e6d5f79716b4ad528490ad179053954a30.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [硅谷关闭;“二王”给习近平挖坑,智商多低才会掉進去从贪天之功说说修行人的谦卑与感恩(政论天下第128集20200307)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e729cdd80c218eafd70614e495c520885e0afcf8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e729cdd80c218eafd70614e495c520885e0afcf8
-
-下载BT种子 [【新闻周刊】第722期（202037）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db46775fe8c9454525f1d27d4d2db3567ff1fc80.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db46775fe8c9454525f1d27d4d2db3567ff1fc80
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
