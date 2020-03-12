@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/H0Sb4t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h7NZx2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [華府智庫：警惕中共知識產權盜竊（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f25c96f7d46f8d71f49edb94cd93055cdcd31449.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f25c96f7d46f8d71f49edb94cd93055cdcd31449
+
+下载BT种子 [大陸雜誌刊「發哨人」習訪武漢當天遭中共封殺網民智慧轉發抗議中共的輿論控管.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97319d717017b9efc5cbd045a1ef652e89f45d47.torrent)
+
+磁力链接 magnet:?xt=urn:btih:97319d717017b9efc5cbd045a1ef652e89f45d47
+
+下载BT种子 [意大利確診病例破萬伊朗內閣多人感染西班牙內閣成員確診感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4ee3422ef7ffc578d54ba5ec7f65d1eedf82194.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4ee3422ef7ffc578d54ba5ec7f65d1eedf82194
 
 下载BT种子 [【环球直击】3月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/807d28fa1ac4bd204b02833f1a99314530903c48.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【一線採訪】北京劉先生：北京疫情猛烈每天都新增感染物價飛漲北京還有可能封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46d5163396c302ba6c2810617f8a87459be701fd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:46d5163396c302ba6c2810617f8a87459be701fd
-
-下载BT种子 [《石濤聚焦》「泉州病毒隔離飯店倒塌救援人員無保護救援」美國務卿「武漢病毒源自中共國」「中共掩蓋真相疫情坑苦了美國」（0703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5b62e1410976d28154b46df6dd24b0b3a18a0ea.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d5b62e1410976d28154b46df6dd24b0b3a18a0ea
-
-下载BT种子 [《石濤聚焦》「泉州病毒隔離飯店倒塌救援人員無保護救援」美國務卿「武漢病毒源自中共國」「中共掩蓋真相疫情坑苦了美國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1c4a2d63b49a3bb834e94856a6307f592f49b45.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e1c4a2d63b49a3bb834e94856a6307f592f49b45
-
-下载BT种子 [《石濤聚焦》「WHO偏袒中共全球質疑」泰國代表出席WHO會議當面酸爆嘲諷👎世衛總幹事譚德塞網路瘋傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a22a218c6f4367a16d5db24363cd18bd76b0dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:30a22a218c6f4367a16d5db24363cd18bd76b0dc
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
