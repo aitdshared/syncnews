@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3TXtth)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ftwkGm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🈲遼寧爆甲肝疫情，可控！石正麗「否定」美國製造病毒；新冠病毒非人造證據找到？華南市場住4人吃什麼？揭世衛譚德塞老底；日本防疫國家發錢；曝中共網軍反美教科書；武漢北京等地疫情真相新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f32be5fe694047fab90d95fa23d554c51ecef9f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7f32be5fe694047fab90d95fa23d554c51ecef9f
 
 下载BT种子 [【禁聞】3月11日退黨精選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93dccc930e1d590d7e05c16de0fe7e25571ade36.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】3月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ce04eb5ccf572d9525ad75af0ba45a75b0d104a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2ce04eb5ccf572d9525ad75af0ba45a75b0d104a
-
-下载BT种子 [Optional熔岩之上挑戰極限高空走鋼絲跨越活火山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4393a2f6b2af5b192fb79f86448ed8a802986ba5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4393a2f6b2af5b192fb79f86448ed8a802986ba5
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
