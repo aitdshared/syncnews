@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h7NZx2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kbkktN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢市民發視頻稱：醫院都爆滿沒有床位病人都進不去中共隱瞞疫情下令各界復工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e13fa2c04c526d780c579fa2c0c67565470faeaa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e13fa2c04c526d780c579fa2c0c67565470faeaa
 
 下载BT种子 [華府智庫：警惕中共知識產權盜竊（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f25c96f7d46f8d71f49edb94cd93055cdcd31449.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [別期待病毒😈夏天消失！習要求如期脫貧，北京連遭怒罵，美國連環出擊，數萬麻雀攔路，隔離酒店倒塌，中共末日將至？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ea7569a2ac554a7f4b1f69cd32cb892de9fe69b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7ea7569a2ac554a7f4b1f69cd32cb892de9fe69b
-
-下载BT种子 [【一線採訪】北京劉先生：北京疫情猛烈每天都新增感染物價飛漲北京還有可能封城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46d5163396c302ba6c2810617f8a87459be701fd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:46d5163396c302ba6c2810617f8a87459be701fd
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
