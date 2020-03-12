@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tK1lxd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3TXtth)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】3月11日退黨精選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93dccc930e1d590d7e05c16de0fe7e25571ade36.torrent)
+
+磁力链接 magnet:?xt=urn:btih:93dccc930e1d590d7e05c16de0fe7e25571ade36
 
 下载BT种子 [【禁聞】美媒：武漢病毒針對共產黨而來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/815d8daf32dff7bc85bed7b1db8721735c679ce1.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [Optional熔岩之上挑戰極限高空走鋼絲跨越活火山.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4393a2f6b2af5b192fb79f86448ed8a802986ba5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4393a2f6b2af5b192fb79f86448ed8a802986ba5
-
-下载BT种子 [《石濤.News》「武漢書記王忠林：感恩總書記感恩共產黨」武漢人是英雄（習總）的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c3b7aaa05355405378f740de161d54fa3087b4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2c3b7aaa05355405378f740de161d54fa3087b4f
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
