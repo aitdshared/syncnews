@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x9WoOl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mxxdZY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月12日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5662492866f20e2b851859649a67358a59be741b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5662492866f20e2b851859649a67358a59be741b
 
 下载BT种子 [《石濤.News》「川普被打懵被威脅：病毒源自中國封歐30天」美股坍塌再熔斷跌幅10%35年最慘NBA遭致神意懲罰意甲德甲西甲全終止加拿大總理自閉湯姆漢克斯英法意巴部長染病（1203）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c42759ff7473b76a024c3343e6cdd9cfbf978d3.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [大戏登场！任大炮再度开炮，明证习王决裂！王岐山成反习阵营领军人？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eb96ae2547c1ad39d240adb422a99203e44bdec.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3eb96ae2547c1ad39d240adb422a99203e44bdec
-
-下载BT种子 [【Jason快評】疫情橫掃世界，最壞會出現什麼情況？川普在美國疫情數據上造假了？熱點互動03072020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61648e18abb720ec0a5f3a32cb3f881f5b5a62ca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:61648e18abb720ec0a5f3a32cb3f881f5b5a62ca
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
