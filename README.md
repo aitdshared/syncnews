@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W8INzm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JYaGdV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】「甩鍋」病源中共宣傳機器火力全開.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87d0a6e8271797caf1488eb5fdeed269579cc31e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:87d0a6e8271797caf1488eb5fdeed269579cc31e
 
 下载BT种子 [【微視頻】美國防治武漢肺炎的試劑與疫苗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4bdf6c8c34b05ad64393cac2ee9acd30696fc04.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤.News》「武漢書記王忠林：感恩總書記感恩共產黨」武漢人是英雄（習總）的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c3b7aaa05355405378f740de161d54fa3087b4f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2c3b7aaa05355405378f740de161d54fa3087b4f
-
-下载BT种子 [新冠病毒已蔓延至91個國家意大利民主黨領袖確診感染伊朗暴增1076例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20eabe03fbb5fb0d5ae06c7a9f1a67c05f53ce88.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20eabe03fbb5fb0d5ae06c7a9f1a67c05f53ce88
 
 下载BT种子 [武漢民間志願者：自掏腰包無償奉獻卻處處受到政府刁難大半都被停了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c61f464e5b055f7cf0965d0d35cffb74e479176.torrent)
 
