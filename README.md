@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sFoVE5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vE4Jmg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情衝擊醫藥供應鏈美專家籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da279ccab9108f2a41aa0cc1c4e36be6f18ef1d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3da279ccab9108f2a41aa0cc1c4e36be6f18ef1d
+
+下载BT种子 [川普：旅行禁令會影響經濟但生命更重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ce3079bc22e52c9f041c2fe19c382d22782ca9f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1ce3079bc22e52c9f041c2fe19c382d22782ca9f
+
+下载BT种子 [意大利伊朗疫情爆最大增幅西班牙封四鎮伊朗疫情源頭庫姆出現了萬人塚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7da903f7a94a50d93c108f0e9b15c6f9ae374e52.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7da903f7a94a50d93c108f0e9b15c6f9ae374e52
 
 下载BT种子 [川普簽法案禁止用聯邦資金買華為設備.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ace2b9cbdf168319cddc7787a38e57492b6964fe.torrent)
 
@@ -612,22 +624,6 @@
 下载BT种子 [滯留在美國加州外海的至尊公主號遊輪獲准停靠加州奧克蘭進行檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9976595cdbb1f50e3291ae01d6c83b7d8f02569c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9976595cdbb1f50e3291ae01d6c83b7d8f02569c
-
-下载BT种子 [《石濤聚焦》「突發：美股開盤暴跌交易被迫中止15分鐘」道股跌2000點標普跌7%出發熔斷機制納斯達跌近10%「川普盛讚習近平白左菁英親共認錢」違背天滅中共之天象「神啟示人需醒」（0903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075d555f3830e349423a34b273eeb91dd0698e67.torrent)
-
-磁力链接 magnet:?xt=urn:btih:075d555f3830e349423a34b273eeb91dd0698e67
-
-下载BT种子 [【解讀】打臉充胖？中共捐世衛2000萬；七大宣傳力量，轉移病毒到海外；黨媒拍電視劇抗疫（2020.3.9）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9961449d851e732f085a121d10bc10290c96216.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c9961449d851e732f085a121d10bc10290c96216
-
-下载BT种子 [各地商家上街请愿！王书记强求感恩，只因习主席需要那种风光？还去不去.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dfc2afa9e9ea38309421c2c1b92ded95b624fe8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6dfc2afa9e9ea38309421c2c1b92ded95b624fe8
-
-下载BT种子 [晒一下近期的工资，收入大幅降低，分享摆脱经济困境的一些思考.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e630a6a00028d05646d3d92f5c2ed4584000a048.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e630a6a00028d05646d3d92f5c2ed4584000a048
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
