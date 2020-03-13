@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q6Fmpg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vpj2Om)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [劊子手的三個排比，隱瞞疫情的領導是誰？疫情被隱瞞始末，葉挺之子斥中共「法西斯」，網友與當局的生死對決，為保習不被感染，武漢這樣消毒，90後受到的最大刺激「忍不下去了」【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09d126819ebb8aff3b6909567c7e88490cc74473.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09d126819ebb8aff3b6909567c7e88490cc74473
 
 下载BT种子 [欧州封禁,股市暴跌,美国如何应对前所未有的状况(政论天下第131集20200312)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4777a5bb780fe594342e57e34684c03f4fb87743.torrent)
 
