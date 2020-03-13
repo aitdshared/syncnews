@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iFT8XH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qR300X)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統初步確診等待二次結果」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf56a6f8955c1cd287ae9332a18c926756713f9f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf56a6f8955c1cd287ae9332a18c926756713f9f
 
 下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統被確診」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc654f316425b05d7acddb14638ecd905668e410.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [國際油價創29年最大單日跌幅美股啟動熔斷機制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcc59b47dabb982aaa4c13770f69fe38e210a227.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fcc59b47dabb982aaa4c13770f69fe38e210a227
-
-下载BT种子 [香港市民悼念周梓樂陳彥霖港警再暴力驅趕與會市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a464a53aa151b7f909608d4d41b8c72b71a3a9e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a464a53aa151b7f909608d4d41b8c72b71a3a9e2
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
