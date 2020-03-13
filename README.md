@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OqcmU9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1i0pp0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月12日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45bf1f3787c6327ec096eb42cf161d33d9ab1092.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45bf1f3787c6327ec096eb42cf161d33d9ab1092
+
+下载BT种子 [【禁闻】垃圾车运肉武汉人怒：还要全员感恩？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5a415aa681b7d97332108f0c8d5897626755e3e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f5a415aa681b7d97332108f0c8d5897626755e3e
+
+下载BT种子 [【禁闻】美最新人权报告批中共迫害法轮功学员.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78d02c38255d732da0520c019744efc3bf754888.torrent)
+
+磁力链接 magnet:?xt=urn:btih:78d02c38255d732da0520c019744efc3bf754888
+
+下载BT种子 [【禁闻】3月12日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eda41864dca8f23b8c7dd6eb791b98112cb22bd8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eda41864dca8f23b8c7dd6eb791b98112cb22bd8
 
 下载BT种子 [【禁闻】世卫组织赤化泰国代表辣讽谭德塞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f71f83a0001d3de5cafb39dcbd218b44e719222.torrent)
 
@@ -608,14 +624,6 @@
 下载BT种子 [【禁闻】中共再改口称1月湖北医护感染超3千.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32c858357198416fc59355f7e0dabd891e5d7d33.torrent)
 
 磁力链接 magnet:?xt=urn:btih:32c858357198416fc59355f7e0dabd891e5d7d33
-
-下载BT种子 [《瀕死經驗》「好萊塢的壞男孩兒-Gary」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69eb903466889fcc01950f4bb074a1b88e9ecd5b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69eb903466889fcc01950f4bb074a1b88e9ecd5b
-
-下载BT种子 [《石濤聚焦》「石油暴跌25%川普驚慌菁英混亂」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1b1d740c3f59e0eab52d34e2d53577e58e03db4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1b1d740c3f59e0eab52d34e2d53577e58e03db4
 
 下载BT种子 [王忠林翻车、任大炮开火，另类甩锅藏叛心！（20200309第714期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dceefae34b9c5b2f84f0359c5df5cfc23c046734.torrent)
 
