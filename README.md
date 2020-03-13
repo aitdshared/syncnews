@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xx4ptM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5JxVlt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [湖北部分縣市解封居民憑「綠碼」通行恢復生產生活縣城依然是死城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72e34b8a25b45d1cf5e1f4f7be23be050a3c1867.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72e34b8a25b45d1cf5e1f4f7be23be050a3c1867
+
+下载BT种子 [中共企圖「改寫」疫情歷史賴病毒給美國國際譁然學者揭動機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dba24eda37beec0b3f2395046746ce8f1056a7d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2dba24eda37beec0b3f2395046746ce8f1056a7d
+
+下载BT种子 [芬蘭華裔：中共隱瞞疫情肯定是瘟疫全球大爆發的第一責任人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9a24ae515ce65b024aeba16a5d46738477b406b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9a24ae515ce65b024aeba16a5d46738477b406b
 
 下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統初步確診等待二次結果」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf56a6f8955c1cd287ae9332a18c926756713f9f.torrent)
 
@@ -605,10 +617,6 @@
 
 磁力链接 magnet:?xt=urn:btih:70d0873294ffe9252487dee2e0ea71a9e96c49b6
 
-下载BT种子 [華府智庫：警惕中共知識產權盜竊（一）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2742dba76a2cd25ab2dec0d1908d45a3a6e1ac9f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2742dba76a2cd25ab2dec0d1908d45a3a6e1ac9f
-
 下载BT种子 [福建泉州隔離酒店倒塌71人受困官方證實曾改變了原本結構的承重量.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16bb1d09418382add29fe1f9748fd67eca90f68b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:16bb1d09418382add29fe1f9748fd67eca90f68b
@@ -616,14 +624,6 @@
 下载BT种子 [替中共高層是否甩鍋？鍾南山說早5天採取隔離感染人數可能只有現在的13引爭議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e775623a9b6db172b2f9e18bdc7ae4f05314e08f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e775623a9b6db172b2f9e18bdc7ae4f05314e08f
-
-下载BT种子 [應對中共當前危險委員會：多半美國選民對中共立場決定大選投票.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2497de73715abc0f749d95a06c0cf7b700971df1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2497de73715abc0f749d95a06c0cf7b700971df1
-
-下载BT种子 [國際油價創29年最大單日跌幅美股啟動熔斷機制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcc59b47dabb982aaa4c13770f69fe38e210a227.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fcc59b47dabb982aaa4c13770f69fe38e210a227
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
