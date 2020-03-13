@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QezGiH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Nq7dh7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】3月12日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d637272894d8b672f14290797ae13735bba6d905.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d637272894d8b672f14290797ae13735bba6d905
+
+下载BT种子 [【禁聞】應對武漢肺炎川普發表全國講話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/172e842bb3477de8433a15653707d705825e86df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:172e842bb3477de8433a15653707d705825e86df
 
 下载BT种子 [【全球新闻】3月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21409468410d35c034b0ed20f58efa33f83463b1.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [【禁聞】助武肺逝者家屬索賠中國律師成立顧問團2.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0afc4777b3648a1da62cd240fb8594a1da2ee84.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b0afc4777b3648a1da62cd240fb8594a1da2ee84
-
-下载BT种子 [烏龍！習家軍玩“感恩”加入黑習陣營，習近平保党陷高級黑迴圈？華春瑩丈夫你到底是誰……（老北京茶館第264集20200308）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b36c4c5078d63dcbbf0ccb871a56b4652172923.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b36c4c5078d63dcbbf0ccb871a56b4652172923
-
-下载BT种子 [中共再捐2000万美元是为了“必也正名乎”叫什么名字更加恰当兼谈另类解决思路(政论天下第129集20200308)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0accdca13693d58a0dc935c64a27ba4527f0e365.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0accdca13693d58a0dc935c64a27ba4527f0e365
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
