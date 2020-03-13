@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2RJ7lc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dJwWf4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美最新人權報告批中共迫害法輪功學員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/994f4f677413beeb01304f548cf064177bdd1ad1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:994f4f677413beeb01304f548cf064177bdd1ad1
 
 下载BT种子 [劊子手的三個排比，隱瞞疫情的領導是誰？疫情被隱瞞始末，葉挺之子斥中共「法西斯」，網友與當局的生死對決，為保習不被感染，武漢這樣消毒，90後受到的最大刺激「忍不下去了」【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09d126819ebb8aff3b6909567c7e88490cc74473.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「義大利最早切斷與中國的航空卻是歐洲病毒傳播中心」陸軍總參長與2大區長確診最發達14個省封城至4.3含米蘭威尼斯「最先簽署一帶一路接受華為的發達國家—與中共關係遠近成疫情好壞根本」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/745a1d931dc261264586f8cb938906f6aa3cf5c0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:745a1d931dc261264586f8cb938906f6aa3cf5c0
-
-下载BT种子 [《石濤聚焦》「上海寶鋼大爆炸網友-給習總沖喜」習總訪日被推遲無法簽署包涵“一帶一路”與“人類命運共同體”的「第五份政治文件」是習近平歷史性倒血楣日本與安倍自救的因由（0803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d05225ca975812100f32fd5faa9e4fd4b2cd24.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39d05225ca975812100f32fd5faa9e4fd4b2cd24
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
