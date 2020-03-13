@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/86AMBW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uIwX6j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「湖北官網發布又刪的奇文」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf22d454f2096072891b53ccb213e456a4a5923d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf22d454f2096072891b53ccb213e456a4a5923d
 
 下载BT种子 [多次暗示习近平责任，钟南山失宠！作家方方遭人举报？外交部同志全力挣脱那个称号.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91b9b340757b2e2817853eb973b52113094900a8.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【时事小品】孙春兰视察武汉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0be52f38638989d7d32e29178e48ed51f7db1aaf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0be52f38638989d7d32e29178e48ed51f7db1aaf
-
-下载BT种子 [一周经济回顾武汉肺炎美国制药供应链拉警报.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52122eff30981be7c24135cf97b2c53f84edb0ca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:52122eff30981be7c24135cf97b2c53f84edb0ca
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
