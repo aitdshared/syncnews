@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m22a9n)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4ydJgt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】3月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21409468410d35c034b0ed20f58efa33f83463b1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:21409468410d35c034b0ed20f58efa33f83463b1
 
 下载BT种子 [“是美军带到中国的！”中共外交部惹恼川普？默克尔称德国将有5000万人受影響，美国NBA停赛，汤姆·汉克斯确诊，国会议员在家辦公，這一切離普通人有多远？（江峰漫談20200312第135期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6d472aabd319e0b13941aa18aa76d684bb3994d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共再捐2000万美元是为了“必也正名乎”叫什么名字更加恰当兼谈另类解决思路(政论天下第129集20200308)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0accdca13693d58a0dc935c64a27ba4527f0e365.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0accdca13693d58a0dc935c64a27ba4527f0e365
-
-下载BT种子 [【禁闻】要武汉市民感恩党引众怒高层急令删稿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51a739624daa6ce47bf14816a16cafcc156c5b31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51a739624daa6ce47bf14816a16cafcc156c5b31
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
