@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/waRBIr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CsNyzZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [FOX新聞揭中共甩鍋疫情美政府將如何應對？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07cc46dc02c4fbbe0873a814f06421502196334d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07cc46dc02c4fbbe0873a814f06421502196334d
 
 下载BT种子 [【环球直击】3月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ad946e915b5137cbe9dc254813ed9221aa21706.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [晒一下近期的工资，收入大幅降低，分享摆脱经济困境的一些思考.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e630a6a00028d05646d3d92f5c2ed4584000a048.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e630a6a00028d05646d3d92f5c2ed4584000a048
-
-下载BT种子 [㊙️美媒：白宮認為病毒源自武漢實驗室，瘟疫或致中共垮台；當局開拆華南海鮮市場；外媒稱台灣「反共」疫情受控；意大利大封鎖涉1600萬人；權威專家：年底前別旅行，個人防感染3要點新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a712239d141d0c1d06bce182b1e1d2e38428b6e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a712239d141d0c1d06bce182b1e1d2e38428b6e
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
