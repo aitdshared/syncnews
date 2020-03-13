@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kKZirK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iFT8XH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統被確診」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc654f316425b05d7acddb14638ecd905668e410.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc654f316425b05d7acddb14638ecd905668e410
 
 下载BT种子 [疫情衝擊醫藥供應鏈美專家籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da279ccab9108f2a41aa0cc1c4e36be6f18ef1d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [香港市民悼念周梓樂陳彥霖港警再暴力驅趕與會市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a464a53aa151b7f909608d4d41b8c72b71a3a9e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a464a53aa151b7f909608d4d41b8c72b71a3a9e2
-
-下载BT种子 [滯留在美國加州外海的至尊公主號遊輪獲准停靠加州奧克蘭進行檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9976595cdbb1f50e3291ae01d6c83b7d8f02569c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9976595cdbb1f50e3291ae01d6c83b7d8f02569c
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
