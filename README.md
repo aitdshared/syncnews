@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5JxVlt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DaSBvp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [重大事态！中共对美国宣战？外交部发言人点火。那些他没说的秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e57deaa762696c046ed8cde26880c0afc94ab63.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e57deaa762696c046ed8cde26880c0afc94ab63
 
 下载BT种子 [湖北部分縣市解封居民憑「綠碼」通行恢復生產生活縣城依然是死城.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72e34b8a25b45d1cf5e1f4f7be23be050a3c1867.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [福建泉州隔離酒店倒塌71人受困官方證實曾改變了原本結構的承重量.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16bb1d09418382add29fe1f9748fd67eca90f68b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:16bb1d09418382add29fe1f9748fd67eca90f68b
-
-下载BT种子 [替中共高層是否甩鍋？鍾南山說早5天採取隔離感染人數可能只有現在的13引爭議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e775623a9b6db172b2f9e18bdc7ae4f05314e08f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e775623a9b6db172b2f9e18bdc7ae4f05314e08f
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
