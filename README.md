@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Yqf8bB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bOqYv8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美官員：中共瞞報武漢肺炎疫情全球受害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31af34eb96603171e5f6433b23c122d5ffe23eaf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:31af34eb96603171e5f6433b23c122d5ffe23eaf
+
+下载BT种子 [【禁聞】「都是假的」習近平視察武漢的怪異細節.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/515dc517a9c502dc62aec545b756d648953efd1f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:515dc517a9c502dc62aec545b756d648953efd1f
+
+下载BT种子 [5【禁聞】3月12日退黨精選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9abd320acfa5d35e15952ae45559e91651b100d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9abd320acfa5d35e15952ae45559e91651b100d8
 
 下载BT种子 [特朗普宣佈斷航，世衛承認大流行！習近平人類命運共同體實現？黨媒建築現啟示錄大淫婦真容！（老北京茶館第267集20200312）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3546e3160a6fe75d5699cc6954b818a2383dac58.torrent)
 
@@ -612,14 +624,6 @@
 下载BT种子 [【禁闻】洛杉矶街头现“法轮大法好”车队.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b73e4c360ac76294f4770bd937f9adf3e77ec04f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b73e4c360ac76294f4770bd937f9adf3e77ec04f
-
-下载BT种子 [【环球直击】3月8日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0db7399b275c4cea5c9569107c12db69a991567.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a0db7399b275c4cea5c9569107c12db69a991567
-
-下载BT种子 [【禁闻】港人建构黄色经济圈对抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/826206bb3c8c550c0164a85c297208168cfaee7e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:826206bb3c8c550c0164a85c297208168cfaee7e
 
 下载BT种子 [【禁闻】“甩锅”国外中共称武肺病毒不来源于中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af92b546d542b47d3d6c8807338c4905143daf7b.torrent)
 
