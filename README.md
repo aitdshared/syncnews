@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vpj2Om)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2RJ7lc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -624,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「上海寶鋼大爆炸網友-給習總沖喜」習總訪日被推遲無法簽署包涵“一帶一路”與“人類命運共同體”的「第五份政治文件」是習近平歷史性倒血楣日本與安倍自救的因由（0803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d05225ca975812100f32fd5faa9e4fd4b2cd24.torrent)
 
 磁力链接 magnet:?xt=urn:btih:39d05225ca975812100f32fd5faa9e4fd4b2cd24
-
-下载BT种子 [《石濤聚焦》「美死亡19軍人染病27州緊急狀態NBA與NHL極可能閉門比賽」WHO以政治理由拒絕宣佈「大流行」習總及時贊助2000萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72f2779f3fb51205feacb4cbc4089c39b17da88f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:72f2779f3fb51205feacb4cbc4089c39b17da88f
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
