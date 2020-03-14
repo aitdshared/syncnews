@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OfUj6k)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VmyDhJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢肺炎海外確診近6萬世衛：歐洲已成爲另一個疫情中心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb9ff714433acffd5d36130dd9f2cde8871dff51.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb9ff714433acffd5d36130dd9f2cde8871dff51
+
+下载BT种子 [川普宣布進入全國緊急狀態启动高達500億美元資金對抗武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cbf82d5f8423c998e57319ff132eba76b2aecf3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cbf82d5f8423c998e57319ff132eba76b2aecf3
+
+下载BT种子 [中共密令曝光，甩鍋蓄謀已久，戰狼部兩狼相向，唱雙簧到外交層面，李文亮還曝光了「驚天真相」：江漢區插手了！蔡莉對醫護人員「兇殘無情」，女兒最早開寶馬7系【新聞看點】（20200313）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f123e10058c320974c07cd2b087d3dfb63879fe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f123e10058c320974c07cd2b087d3dfb63879fe
 
 下载BT种子 [加州武漢肺炎感染人數達198例舊金山與聖塔克拉拉已宣佈緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fb70c6ae9f44fdf6886f1d1a1d221bf369be187.torrent)
 
@@ -620,10 +632,6 @@
 下载BT种子 [美國洛杉磯再添兩例武漢肺炎可能來自社區傳染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6ea9369a20091084244a244109a517a285d2354.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e6ea9369a20091084244a244109a517a285d2354
-
-下载BT种子 [意大利總理宣佈全境封鎖伊朗高官再死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3a649f05a9bc5fb8cdc42bf26b771dd9636e371.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f3a649f05a9bc5fb8cdc42bf26b771dd9636e371
 
 下载BT种子 [封城逃亡無床位，意大利複製武漢？病毒長眼，親共遭殃！罵習是「小丑」，李克強手下「無意洩密」？護照&人民幣將作廢？雪地蛇行，小蟲伴雪飛，冠狀冰雹來襲，地震雲滿空【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92604bc6ca5dce6176c956a2eff6df5a0fad3a3.torrent)
 
