@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tElte9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/01rO7W)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】陸媒接力揭露武漢中心醫院打壓吹哨人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79bd4829da4bd33b2e683eea4770014d5c1c02d9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:79bd4829da4bd33b2e683eea4770014d5c1c02d9
 
 下载BT种子 [西半球最高觀景台曼哈頓天際線新“邊緣”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3446a4a92119cdcb69da7f5a3ec276cfdc6321e.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [🇷🇺疫情曝普京假友中真反共；意大利封全國！傳文在寅共產信徒，靠中共上台；武漢某院3.11清空患者；新冠病毒可飛4.5米，飄半小時；故意散假消息，揭五毛7陰招；反送中滿9個月新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe78444a3a5e2266e2fca5caaf5ee61c0eb48a91.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fe78444a3a5e2266e2fca5caaf5ee61c0eb48a91
-
-下载BT种子 [茶館黃標奇案！譚德塞段子來啦！茶友曝光醫院新動作，大淫婦北京拉誰下水？（老北京茶館第265集20200309）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff7f6d8825924d2910c5c59368a1f687e8af2392.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff7f6d8825924d2910c5c59368a1f687e8af2392
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
