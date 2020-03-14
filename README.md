@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pY84m1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hDFeUa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [最高级别“中标人”，总统或总理夫人？任志强失联、发言人甩锅美军闯祸，有好戏看（20200313第717期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7778732df6af7f7169b691b085c4e102137bfab4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7778732df6af7f7169b691b085c4e102137bfab4
 
 下载BT种子 [《石濤聚焦》「川普直回趙立堅”他們知道（病毒）從哪兒來的我們也清楚“-現場錄像」駐美大使崔天凱被美國務院召見抗議美國會議員稱趙立堅「中國共產黨的小丑」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70f8e7b3d124721b9ea694856b730d504959a4a2.torrent)
 
@@ -617,17 +621,9 @@
 
 磁力链接 magnet:?xt=urn:btih:af23bee97e922b0c69e871615f8aabdf7978def2
 
-下载BT种子 [【禁闻】美律师中共禁3M口罩输美是忘恩负义B.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1af8c0d02a169adafd03c6ab9e77681a0a89af74.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1af8c0d02a169adafd03c6ab9e77681a0a89af74
-
 下载BT种子 [【禁闻】路透：中共用处理猪瘟手法处理武汉肺炎B.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa3d8b3b36100f3f3952e7d366b1e94fed55084.torrent)
 
 磁力链接 magnet:?xt=urn:btih:daa3d8b3b36100f3f3952e7d366b1e94fed55084
-
-下载BT种子 [【禁闻】美律师中共禁3M口罩输美是忘恩负义.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f9c4e2018a5235e0db39a3b59d1d513e8937897.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0f9c4e2018a5235e0db39a3b59d1d513e8937897
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
