@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dXxvRP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FgS6Bb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《瀕死經濟》「豪門恩怨朱門恩怨達拉斯男主角拉里哈格曼」每個人都是獨一無二的一種內在的旋律融合與天弦般深沈的宇宙力量中「宇宙能量是愛超越時間永恆無盡」生命之本意—愛❤️（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb63f7175d38507368736324183deb9d1172cbbb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb63f7175d38507368736324183deb9d1172cbbb
+
+下载BT种子 [美国进入紧急状态！川普40小时内两次讲话，商业天才完救股市；中国贸易协议跑不掉；川普回答记者问藏玄机；美国疫情前景依然严峻；.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7882c2a8f46004e32a5ff22e1dc243d6217484d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7882c2a8f46004e32a5ff22e1dc243d6217484d
+
+下载BT种子 [【禁聞】疫情「被消失」中共急甩病源用意何在？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a454012534fe51d12d96950c2a56922da0b19eef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a454012534fe51d12d96950c2a56922da0b19eef
+
+下载BT种子 [【禁聞】世衛組織赤化泰國代表辣諷譚德塞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4de842b3918372af181f60b03b036a95ec6065ad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4de842b3918372af181f60b03b036a95ec6065ad
 
 下载BT种子 [【禁聞】大疫中失雙親武漢青山區爆孤兒隔離點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6df8e09df062716996e9b5f60dff32de78c67d3.torrent)
 
@@ -608,26 +624,6 @@
 下载BT种子 [孫楊被禁賽8年遭黨媒抨擊網友被黨拋棄!.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e0e8ded79ccb13eaec361ac03d2ab3b5a0f3255.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e0e8ded79ccb13eaec361ac03d2ab3b5a0f3255
-
-下载BT种子 [習突訪武漢公安進屋監控市民樓頂上站滿了狙擊手待命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02a2cb33141fffe6c4e408b48d926aef0da0ef38.torrent)
-
-磁力链接 magnet:?xt=urn:btih:02a2cb33141fffe6c4e408b48d926aef0da0ef38
-
-下载BT种子 [醫生家屬爆料：漢陽數個小區再爆大規模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c254399d33865330ab77f5aa1f65201acb0fe540.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c254399d33865330ab77f5aa1f65201acb0fe540
-
-下载BT种子 [【全球新闻】意大利总理宣布全境封锁伊朗高官再死亡(3月9日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4e67d8dee5dc453be02963c0de6531bab6ac0e9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b4e67d8dee5dc453be02963c0de6531bab6ac0e9
-
-下载BT种子 [【獨家】活摘器官更多爆料，三名網友爆料實例見證；武漢肺炎蔓延，YouTubers成受災戶；各國疫情輕重不同，透露奇特規律？（2020.3.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e4759dddc8d4c88e92ba29ac4fa8cfd9027b2dd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e4759dddc8d4c88e92ba29ac4fa8cfd9027b2dd
-
-下载BT种子 [【全球疫情直擊】親共惹大禍海外疫情擴散有因清醒認識中共台灣抗疫天助之中共輸血拉醫護入黨鐘南山花樣甩鍋至尊公主號停靠加州奧克蘭檢疫紐約市長：紐約不是中國無需取消大型活動台灣防疫全球獲讚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b141a922be3acb90c015abce9537b415d22a80ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b141a922be3acb90c015abce9537b415d22a80ce
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
