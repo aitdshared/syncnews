@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KVsxy4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jfcP0y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國疫情衝擊商家紐約大法拉盛商會推貸款計畫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e90ce8dfd8c9f9af29c74292ec64ea42a37b88.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07e90ce8dfd8c9f9af29c74292ec64ea42a37b88
+
+下载BT种子 [加拿大國會通過美墨加貿易協議美墨祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6264fb6152d162b62b9c212282c421d9848779d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6264fb6152d162b62b9c212282c421d9848779d2
+
+下载BT种子 [紐約州全美最多確診政府加速病患檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a49a61e5ae25e6ce3c0dff66c55dec3267000c58.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a49a61e5ae25e6ce3c0dff66c55dec3267000c58
+
+下载BT种子 [武漢肺炎中國大陸以外達6萬7千多人西班牙單日增2千多意大利確診和死亡人數最高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e104913df653b15519911d3dd3ecc2398160f4a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e104913df653b15519911d3dd3ecc2398160f4a0
 
 下载BT种子 [港佔中人士陳健民出獄爭取民主不後悔這是爭取民主的代價.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e92cf26ba97e066e9af80bfb4399ba3a204e949a.torrent)
 
@@ -608,30 +624,6 @@
 下载BT种子 [【禁闻】3月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4f2f3915a321a1066a4cf824449ed9afc385388.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b4f2f3915a321a1066a4cf824449ed9afc385388
-
-下载BT种子 [习近平终于来了！满街群众演员。突现一条大标语！某国前总统把话说穿了：就是那么回事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a87074a4e84e2dc002d78df388b6733d3e44abbd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a87074a4e84e2dc002d78df388b6733d3e44abbd
-
-下载BT种子 [【一線採訪】武漢一位出院婆婆親身見識醫院的恐怖：很多活著患者被裹四層屍袋直接拖到火葬場燒掉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f720eb7a0bfa6c0d50d5387d628409ffe73754ed.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f720eb7a0bfa6c0d50d5387d628409ffe73754ed
-
-下载BT种子 [【禁闻】美专家点名中共靠谎言生存的审查机构..mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc74d840aeddf9d8dc9e58970e4e607c1a56fdaa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bc74d840aeddf9d8dc9e58970e4e607c1a56fdaa
-
-下载BT种子 [【环球直击】3月10日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab70abd179d7dcebad3e990972fd326f00b01317.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ab70abd179d7dcebad3e990972fd326f00b01317
-
-下载BT种子 [【禁闻】美专家点名中共靠谎言生存的审查机构.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11e2930f6b79cfba1ac85d056b44d9f90cabdab5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:11e2930f6b79cfba1ac85d056b44d9f90cabdab5
-
-下载BT种子 [《石濤聚焦》「港媒：習總用中共國人之命豪賭其‘小丑🤡之皇帝權位’」3月10日武漢醫院測試最新視頻爆光：武漢病毒只有驗血才真正確診「習總染毒危險性驟升」章立凡-押注中共價值觀與身價者覺醒習總最大危機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d8798582cad0f45d4cafa4daa9f1136b920632a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8d8798582cad0f45d4cafa4daa9f1136b920632a
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
