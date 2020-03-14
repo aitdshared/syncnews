@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kogydN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q655ZS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [趙立堅「甩鍋」美軍，川普回應；疫情未消，中共為何升級對美信息戰？南華早報最新文章爆驚人內幕！發哨人文章因同樣原因被刪陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84120ec87df371dfb51f829175adb85d8049fcbf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:84120ec87df371dfb51f829175adb85d8049fcbf
 
 下载BT种子 [疫情下的一家人父絕望中自殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9b8e64c0e8f1d21d566c38a80bdeb9ef045af63.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共開展感恩教育武漢市民：一切災難都是共產黨造成它們應該為此謝罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ebb9a08db134afbf5400166bc6b627ed744e5c04.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ebb9a08db134afbf5400166bc6b627ed744e5c04
-
-下载BT种子 [華府智庫：警惕中共知識產權盜竊（二）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb5b6830c5cfce43638bf6dd47020bc1c1107243.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eb5b6830c5cfce43638bf6dd47020bc1c1107243
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
