@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/erV2rZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pY84m1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普直回趙立堅”他們知道（病毒）從哪兒來的我們也清楚“-現場錄像」駐美大使崔天凱被美國務院召見抗議美國會議員稱趙立堅「中國共產黨的小丑」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70f8e7b3d124721b9ea694856b730d504959a4a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70f8e7b3d124721b9ea694856b730d504959a4a2
 
 下载BT种子 [《石濤聚焦》「川普宣佈緊急狀態PK習總17萬人大會-小丑」市場信心倍增大漲2000點收市川普-無畏病毒尊重下屬用人不疑坦承不足勇氣承擔「但依然表現與習總不錯」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eeaefdbb1a75d4ba8438d90c1e679aec6a53f105.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】美律师中共禁3M口罩输美是忘恩负义.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f9c4e2018a5235e0db39a3b59d1d513e8937897.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0f9c4e2018a5235e0db39a3b59d1d513e8937897
-
-下载BT种子 [【中国禁闻】3月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69f1571e68957ddb1e3c0dc0e17c94986728bdbc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69f1571e68957ddb1e3c0dc0e17c94986728bdbc
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
