@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1gW8eo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zj83n6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c8e39a3217f9bdd42dfd083514aeeee4c81368c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2c8e39a3217f9bdd42dfd083514aeeee4c81368c
 
 下载BT种子 [韩国失业大潮已经开始，很多韩国中产或将陷入贫困.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee629519db8705b6517d31b73bfc6a06016b4410.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【全球疫情直擊】親共惹大禍海外疫情擴散有因清醒認識中共台灣抗疫天助之中共輸血拉醫護入黨鐘南山花樣甩鍋至尊公主號停靠加州奧克蘭檢疫紐約市長：紐約不是中國無需取消大型活動台灣防疫全球獲讚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b141a922be3acb90c015abce9537b415d22a80ce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b141a922be3acb90c015abce9537b415d22a80ce
-
-下载BT种子 [国歌被禁？美国学者鉴定：习近平病得不轻！感恩论刷屏，王某一夜成网红.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f60b8ecaf3c1a46e3d255b64e1d817833055273.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f60b8ecaf3c1a46e3d255b64e1d817833055273
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
