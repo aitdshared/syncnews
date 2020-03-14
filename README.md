@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iA3L4G)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JsMaq0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】大疫中失双亲武汉青山区爆孤儿隔离点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc057f579d4fd413b27ec0f686b8bba92ea4496.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bcc057f579d4fd413b27ec0f686b8bba92ea4496
+
+下载BT种子 [3月13日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a55198a9b519a69621f2c81c481a5fe6af6fbea.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a55198a9b519a69621f2c81c481a5fe6af6fbea
 
 下载BT种子 [【禁闻】应对武汉肺炎川普发表全国讲话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f80790cad39a5c7630e779830253c3f7dc7a2498.torrent)
 
@@ -613,25 +621,9 @@
 
 磁力链接 magnet:?xt=urn:btih:f3a649f05a9bc5fb8cdc42bf26b771dd9636e371
 
-下载BT种子 [【禁闻】中共推庞大投资计划专家制造新危机.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6f7903330ea354406f04aa05cace192feb81d73.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6f7903330ea354406f04aa05cace192feb81d73
-
 下载BT种子 [封城逃亡無床位，意大利複製武漢？病毒長眼，親共遭殃！罵習是「小丑」，李克強手下「無意洩密」？護照&人民幣將作廢？雪地蛇行，小蟲伴雪飛，冠狀冰雹來襲，地震雲滿空【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92604bc6ca5dce6176c956a2eff6df5a0fad3a3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a92604bc6ca5dce6176c956a2eff6df5a0fad3a3
-
-下载BT种子 [【禁闻】台湾研发出武肺快筛试剂中共迅速抢功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d6185f9f9d98cdc739b98ff988830c9ac749c84.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4d6185f9f9d98cdc739b98ff988830c9ac749c84
-
-下载BT种子 [【微视频】中共讨要的“感谢”唯独中国人不能给.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf2c64a7eeebf61939a7ec1b0bc228f8822d883b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bf2c64a7eeebf61939a7ec1b0bc228f8822d883b
-
-下载BT种子 [《石濤聚焦》「國民黨新主席就職拒絕‘九二共識’習總拒發賀電」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2272c116790defbd9ced678ae41d067b0419d403.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2272c116790defbd9ced678ae41d067b0419d403
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
