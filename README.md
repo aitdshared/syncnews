@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I7stG5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/USDRLF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0261cb02266da1917bd34be44de4c57eae9827a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0261cb02266da1917bd34be44de4c57eae9827a2
 
 下载BT种子 [《石濤.News》「王滬寧主持”習近平⋯拯救了中國正在拯救世界“」中共國媒體“習總-人類命運共同體的救世主”外交“武漢病毒-美國亡我之心不死之最新陰謀”WHO-2000萬買入小丑-弄權欺騙世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97f50f1041d34abd18d968770e2b53ac6f8e3bac.torrent)
 
