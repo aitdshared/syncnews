@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7lqZln)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/faHxtx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [監獄疫情持續大爆發武漢在押人員確診806例被認為只是真相的冰山一角.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70596e2023027e8e6b1b7eabb5562d1678f52fc5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70596e2023027e8e6b1b7eabb5562d1678f52fc5
 
 下载BT种子 [【时事小品】可以喊了吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd51f5890bc98ec3f94f902385bf8dafc087416.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第三十回周紀激反武成王」妲己報仇借紂王受惑之身貪色之意調戲黃飛虎之妻逼反武成王君臣大戰午門紂王不敵敗陣（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/472faae232a7fd546faf8b7254bca75cc6f80194.torrent)
 
 磁力链接 magnet:?xt=urn:btih:472faae232a7fd546faf8b7254bca75cc6f80194
-
-下载BT种子 [《瀕死經驗》「CBS名劇“犯罪現場”男主角-威廉·彼德森：每個人都渴望著那種光明-充滿愛平和」一個極具尊嚴不可抗拒的聲音：還沒到你的時間你必須回去把剩下的事情做完“（1003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d180eb35f6986d7138f2f4513591c40741929b8a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d180eb35f6986d7138f2f4513591c40741929b8a
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
