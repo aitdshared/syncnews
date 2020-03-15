@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2wmZhN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BnaQUc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普旅行禁令扩大到英国和爱尔兰，考虑限制美国国内旅行。西班牙将效法意大利封国；新冠肺炎死亡率和另外几个谜团；为什么中国可能二次爆发？（政论天下第133集第二部分20200314）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca48f6764271d14389c073e5283268c4f518a7f1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca48f6764271d14389c073e5283268c4f518a7f1
+
+下载BT种子 [《石濤.News》「紐時：昨天任志強被抓了」王岐山‘拒絕“參加17萬人大會-公開與習總決裂任大炮被抓之由「展示新衣的皇帝-實為赤身裸體的小丑」「強調信念-消滅所有不讓我當皇帝的人」（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22560891a737f39e62cb9a044dbcecbbbd0a9c28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:22560891a737f39e62cb9a044dbcecbbbd0a9c28
 
 下载BT种子 [新冠肺炎擴散全球更多國家染疫澳大利亞禁止伊朗人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69c81962794bd89da3bde89ce5a8b9bff6087a28.torrent)
 
@@ -609,10 +617,6 @@
 
 磁力链接 magnet:?xt=urn:btih:ea15e5547d5a68a85d04769a0d79d8de007acab6
 
-下载BT种子 [應對疫情川普政府商討經濟計劃彭斯：保險公司同意免除病毒測試費用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e62734b3807643f88437453d9254b96532bab311.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e62734b3807643f88437453d9254b96532bab311
-
 下载BT种子 [加州州長紐森罕見稱讚川普防控疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b6d35d9f8886af45a633f196baf419633f7acb6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9b6d35d9f8886af45a633f196baf419633f7acb6
@@ -620,10 +624,6 @@
 下载BT种子 [華府智庫：警惕中共知識產權盜竊（三）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64993fc80ac214d1f62befbc79caae9103447471.torrent)
 
 磁力链接 magnet:?xt=urn:btih:64993fc80ac214d1f62befbc79caae9103447471
-
-下载BT种子 [【环球直击】3月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2d48940f96ee5aad3ef27656bef97fcbf293380.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a2d48940f96ee5aad3ef27656bef97fcbf293380
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
