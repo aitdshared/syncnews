@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OuQiOi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l7ntFF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美国紧急召见中国大使！习近平秘密扣押副主席亲信。红三代痛斥某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/499f789cfcaf6a1a074d170f5ebf1ede9636a42f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:499f789cfcaf6a1a074d170f5ebf1ede9636a42f
 
 下载BT种子 [《石濤.News》「習近平⋯拯救了中國正在拯救世界」黨媒“習總-人類命運共同體的救世主”外交“栽贓美國”WHO“習總之奴僕欺騙世界”「13日武漢武勝路全家亡急診醫院拒收酒店自隔5百一天」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1af3519092c1d0e5d9cc033a25c0d26756a13c.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [武漢肺炎蔓延逾百國意大利感染人數破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/044c3e6d8c9edc754b97ed941441d4e9fce71d31.torrent)
 
 磁力链接 magnet:?xt=urn:btih:044c3e6d8c9edc754b97ed941441d4e9fce71d31
-
-下载BT种子 [川普政府再出手美股大幅反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4e3a0c7da87e02eb705d287166487afe0edc862.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4e3a0c7da87e02eb705d287166487afe0edc862
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
