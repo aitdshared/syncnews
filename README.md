@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/faHxtx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fXDc9R)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠肺炎全球蔓延海外感染近15萬人伊朗全國幾乎都被病毒攻陷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ea0580edf0983d67aa2325d42415c525eee45c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2ea0580edf0983d67aa2325d42415c525eee45c3
 
 下载BT种子 [監獄疫情持續大爆發武漢在押人員確診806例被認為只是真相的冰山一角.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70596e2023027e8e6b1b7eabb5562d1678f52fc5.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [習近平考察武漢兩件事：摘桃子+甩鍋；川普2020連任的勝算好牌被中共好故事打爛，翻臉在即，中美衝突新熱點不期而至（江峰漫談20200311第133期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9382200b50bd7a63ade8aaf84d02a80b1e6c7cc9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9382200b50bd7a63ade8aaf84d02a80b1e6c7cc9
-
-下载BT种子 [《濤哥侃封神》「封神演義第三十回周紀激反武成王」妲己報仇借紂王受惑之身貪色之意調戲黃飛虎之妻逼反武成王君臣大戰午門紂王不敵敗陣（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/472faae232a7fd546faf8b7254bca75cc6f80194.torrent)
-
-磁力链接 magnet:?xt=urn:btih:472faae232a7fd546faf8b7254bca75cc6f80194
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
