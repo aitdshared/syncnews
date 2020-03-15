@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wi76h2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7lqZln)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【时事小品】可以喊了吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd51f5890bc98ec3f94f902385bf8dafc087416.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6bd51f5890bc98ec3f94f902385bf8dafc087416
+
+下载BT种子 [【严真点评】外交部大实话新冠病毒源头是美国？一场精心策划的甩锅信息战悄然上演.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab66758004df79d01137af85df07779304946ad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fab66758004df79d01137af85df07779304946ad
 
 下载BT种子 [結束敘利亞戰事土俄簽永久性停火協議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4af443a8e44bbfdb1bf144ef12343588c094c6e.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [《瀕死經驗》「CBS名劇“犯罪現場”男主角-威廉·彼德森：每個人都渴望著那種光明-充滿愛平和」一個極具尊嚴不可抗拒的聲音：還沒到你的時間你必須回去把剩下的事情做完“（1003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d180eb35f6986d7138f2f4513591c40741929b8a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d180eb35f6986d7138f2f4513591c40741929b8a
-
-下载BT种子 [【全球新闻】3月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cb7387f0d559344d30fac659ec5e6511a29a8e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0cb7387f0d559344d30fac659ec5e6511a29a8e1
-
-下载BT种子 [【中国禁闻】3月10日完整版。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c303400cf2aba39ed4e70b6758d75dd4d990dcd3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c303400cf2aba39ed4e70b6758d75dd4d990dcd3
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
