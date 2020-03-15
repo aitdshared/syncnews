@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LwYzKK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4cLDNO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京甩鍋惹怒川普，美進入緊急狀態，500億抗疫會封城嗎？孝感小孩餓死十天後被發現，硚口一家「已經完了」，湖北再次封路！哈爾濱10台大巴拉人隔離！中國人怒吼「共產黨下課」！【新聞看點李沐陽03.14】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/beb93e159b5adf5f48d7f090f8333df98a600de1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:beb93e159b5adf5f48d7f090f8333df98a600de1
 
 下载BT种子 [美国紧急召见中国大使！习近平秘密扣押副主席亲信。红三代痛斥某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/499f789cfcaf6a1a074d170f5ebf1ede9636a42f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共拉鍾南山為黨輸血分析：鍾南山變成了中南海危急时刻將其信譽一次清空.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de7d4c84e211233164d93515da267a32f3659a5f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de7d4c84e211233164d93515da267a32f3659a5f
-
-下载BT种子 [武漢肺炎蔓延逾百國意大利感染人數破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/044c3e6d8c9edc754b97ed941441d4e9fce71d31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:044c3e6d8c9edc754b97ed941441d4e9fce71d31
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
