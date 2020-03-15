@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tPj5AB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Azz6G4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美国求助钟南山？中国网友喊不帮！习近平再出狠手，打压副主席连襟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42be9ae11a5ddd46f0bc2c8bb8aa282204af10b4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42be9ae11a5ddd46f0bc2c8bb8aa282204af10b4
 
 下载BT种子 [【百姓聲音】武漢醫生爆內幕：方艙大規模「清零」可怕實情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6166bce3f634328ab5be365b81ec0b0503e71a18.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [意大利確診超1萬伊朗累計死亡近400英國衛生部一名官員被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef25424a122dfdaa39ef3aa89138ebe3d55761a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ef25424a122dfdaa39ef3aa89138ebe3d55761a0
-
-下载BT种子 [中共一份誘導紅色自媒體抹黑美國的「疫情期間涉美宣傳指導綱要問答」在網上傳出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4280808e99c59a5d815548f79a2652718c293ff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4280808e99c59a5d815548f79a2652718c293ff
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
