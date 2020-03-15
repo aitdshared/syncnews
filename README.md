@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QnC6qO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FvyUty)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「神奇：武漢病毒拒絕所有拋棄共產主義的國家」是否與共產黨同價值觀是關鍵：台灣與香港PK南韓義大利伊朗西班牙澳洲加國與中共鬧翻-救了自己「德國高感染低死亡-瘟神很細膩」（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99a1ea9d72574852e0b812403b7f0349feba5420.torrent)
+
+磁力链接 magnet:?xt=urn:btih:99a1ea9d72574852e0b812403b7f0349feba5420
 
 下载BT种子 [《石濤聚焦》「川普定今天3.15——國家禱告日祈求神保護美國」PK習總造神「紅色文化教育課」學校強推“毛澤東思想戰勝瘟神”媒體盛讚“習總具足-金三胖般的智慧”（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2088c72077f61a4ca6ea88fdd53e0664d742248.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共一份誘導紅色自媒體抹黑美國的「疫情期間涉美宣傳指導綱要問答」在網上傳出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4280808e99c59a5d815548f79a2652718c293ff.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4280808e99c59a5d815548f79a2652718c293ff
-
-下载BT种子 [美國共產主義受難者基金會國會山新聞發布會于溟：被中共關押中三次抽血.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da9ae4b1a21d1aa678203d5a23d7038291232c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3da9ae4b1a21d1aa678203d5a23d7038291232c8
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
