@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xKhQvq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sF4IXo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新冠肺炎擴散全球更多國家染疫澳大利亞禁止伊朗人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69c81962794bd89da3bde89ce5a8b9bff6087a28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:69c81962794bd89da3bde89ce5a8b9bff6087a28
 
 下载BT种子 [我们应该如何祈祷？从川普的全国祈祷日说起（政论天下第133集第一部分20200314）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a51f48d82f0e7094b118d8ddca27e3a7752af1.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】3月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2d48940f96ee5aad3ef27656bef97fcbf293380.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a2d48940f96ee5aad3ef27656bef97fcbf293380
-
-下载BT种子 [介绍我的车，在韩国给车加油的过程，边走边聊，看看当下韩国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85c7af2707d68ddf12e70acf8dd21f804b05ab79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85c7af2707d68ddf12e70acf8dd21f804b05ab79
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
