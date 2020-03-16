@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OVg31F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AaOd5r)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美聯儲降息川普：儲備充足民眾無需囤糧無需大量搶購.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f334a5a6a4598be129e24198cce2925c6ce68531.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f334a5a6a4598be129e24198cce2925c6ce68531
 
 下载BT种子 [海外留學生回國：沒飯沒水兩天沒吃飯覺也都沒有睡我要人權.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3612f5a6713d33ff3da91a14490525476380cf7.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [中共能撑过2020年吗？从三个方面分析这个问题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49fa86ed6723c99e35dcb225e6b96a18b03339d5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:49fa86ed6723c99e35dcb225e6b96a18b03339d5
-
-下载BT种子 [【禁聞】3月11日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2be4fa3af386d28159f08fafc7ae8e08b3fd4200.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2be4fa3af386d28159f08fafc7ae8e08b3fd4200
 
 下载BT种子 [【禁聞】習近平視察武漢評：怕失民心政治作秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2831786a6d8a0abf8798801fff5b67e37ffac068.torrent)
 
