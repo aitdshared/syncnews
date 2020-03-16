@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YbZRdO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d3xd1E)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第三十一回聞太師驅兵追襲」太師追殺真君施援手人活情誼中只記利字頭黃飛虎死難逢生路放生遇死神（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dc6e4ac5f2ae8b2ee22a6de0326f81493531aa1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9dc6e4ac5f2ae8b2ee22a6de0326f81493531aa1
 
 下载BT种子 [【中國禁聞】3月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb51ca50f43a46c89913db00a138d411102f31e5.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [习近平亲临一线，出现“双日奇闻”；大国体的优势、和另些人的“以妄为常”（20200311第716期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f53269f8251cf4a504af3288eeb5756a8bfdc3ae.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f53269f8251cf4a504af3288eeb5756a8bfdc3ae
-
-下载BT种子 [《石濤聚焦》「川普醒了：武漢病毒是全世界的敵人」全球突破110國12萬感染亡近4.5千義大利亡近千保持6.6%死亡率全美37州感染過千亡33人「股市天塌菁英重創」（1103）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5af2c3ae0e5c532152dc41a48ac9bb9eb4e2a650.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5af2c3ae0e5c532152dc41a48ac9bb9eb4e2a650
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
