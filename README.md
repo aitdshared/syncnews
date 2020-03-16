@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RFchL3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JgpRqm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平面臨史上最大坑！特朗普明說：習知道病毒來源！趙立堅開腦洞，肺炎病毒中情局造？（老北京茶館第268集20200315）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42e2387518f57b321a9915ff58d6b399bdf0f4ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42e2387518f57b321a9915ff58d6b399bdf0f4ae
+
+下载BT种子 [【禁闻】方舱患者带毒出院民忧再爆大规模感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9efe453e56f111258a8ed3e9d4b824f9afb97e6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c9efe453e56f111258a8ed3e9d4b824f9afb97e6
 
 下载BT种子 [【禁闻】尸体曾无人处理《人物》反证共青团造谣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90349158a690346c7eb3fe61e7fba4f7e624a13d.torrent)
 
@@ -616,10 +624,6 @@
 下载BT种子 [习近平前脚刚走，世界生卫组织即宣布“全球大溜行”；川普的经济刺激与中共的二次甩锅（政论天下第130集20200311）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b841ec2b53fbbae09c78d140fcf06d668953fc6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7b841ec2b53fbbae09c78d140fcf06d668953fc6
-
-下载BT种子 [于溟先生爆光第一手錄像證據在國會山佐證“中共活摘器官”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbc542d52507166613ef05fdead69deb442e485c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fbc542d52507166613ef05fdead69deb442e485c
 
 下载BT种子 [【一線採訪】武漢肝病病患命危被拒收治女兒害怕母亲感染病毒向外界求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361f9a49ad36080788afb50a25df9ee753221c1a.torrent)
 
