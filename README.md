@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SA7kDu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JERHCl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb7445a83b19e5dc1fc018fd3025b38b34dac9d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb7445a83b19e5dc1fc018fd3025b38b34dac9d7
+
+下载BT种子 [大新闻！美国求助钟南山？中国网友喊不帮！习近平再出狠手，打压副主席连襟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ad2a6703a434e5a6b719debe1b708cd79ddfc99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ad2a6703a434e5a6b719debe1b708cd79ddfc99
 
 下载BT种子 [【禁闻】疫情高峰已过？专家揭中共两大阴谋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/975b717bd22af7a61f017bb20f3b23ed1d143f99.torrent)
 
@@ -616,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「世衛最終宣佈：武漢病毒肺炎非典2.0為‘全球大流行’」含義：全球失控大擴散社區持續重症與死亡消滅病毒🦠代替控疫更多旅行與貿易限制「在劫難逃鼠年天滅中共生與滅」（1103）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9388592f8effd707a6d6ac8c33c6d32d39794719.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9388592f8effd707a6d6ac8c33c6d32d39794719
-
-下载BT种子 [【中國解密】中共掩蓋武漢病毒源頭而展開宣傳戰中共如何占領一半的蒙古.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e8c3430a114b9b1e59ac1cda3986812393efb69.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8e8c3430a114b9b1e59ac1cda3986812393efb69
 
 下载BT种子 [《石濤.News》「台灣土地廟現神蹟祈求國人平安擲出罕見立筊」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e61a858e7dac7976211c68f0a885432fdbbc4dea.torrent)
 
