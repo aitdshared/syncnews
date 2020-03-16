@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wC3hjJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KHZh1A)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月16日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14bdf690802ca3cd268172eec462901b7f7e33a4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:14bdf690802ca3cd268172eec462901b7f7e33a4
 
 下载BT种子 [我说我的韩国语比韩国人好，韩国朋友很生气，一起看看他们的留言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d84164c9831809221fd93c47dd93728fa9fd2d33.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [習近平訪武漢，驚現靈異現象！市民曲線喊“全是假的！”華南海鮮市場現病毒剋星？（老北京茶館第266集20200311）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de0a512067b478666704a39d693a6e4500ecbeac.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de0a512067b478666704a39d693a6e4500ecbeac
-
-下载BT种子 [武漢醫院人滿為患，漢陽小區疫情大爆發，湖北升級嚴控離漢離鄂通道！目睹無數慘劇的艾芬醫生提前交代後事，卻難承受一句「謝謝」？醫護傷亡慘重的撕心裂肺！習武漢作秀童謠問世【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e939acf4880ea0117cf7a8ead75411f1f2cef406.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e939acf4880ea0117cf7a8ead75411f1f2cef406
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
