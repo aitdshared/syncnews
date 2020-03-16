@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NIgLkr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5hkYHO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對疫情影響美政府或提供航空業協助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a7059e7c54d98bf4b096ca2dd045e0aaddfe6b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a7059e7c54d98bf4b096ca2dd045e0aaddfe6b2
+
+下载BT种子 [武漢肺炎蔓延迅猛歐洲多國現封國狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/903e7208109839f746aead8ad5b24738ac6df5e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:903e7208109839f746aead8ad5b24738ac6df5e3
 
 下载BT种子 [【禁闻】中共隐瞒疫情美国民众提起集体诉讼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd3dd097a97bc8dc018744f78c378cb76f4e080.torrent)
 
@@ -612,10 +620,6 @@
 下载BT种子 [華府智庫：警惕中共知識產權盜竊（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f25c96f7d46f8d71f49edb94cd93055cdcd31449.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f25c96f7d46f8d71f49edb94cd93055cdcd31449
-
-下载BT种子 [大陸雜誌刊「發哨人」習訪武漢當天遭中共封殺網民智慧轉發抗議中共的輿論控管.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97319d717017b9efc5cbd045a1ef652e89f45d47.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97319d717017b9efc5cbd045a1ef652e89f45d47
 
 下载BT种子 [意大利確診病例破萬伊朗內閣多人感染西班牙內閣成員確診感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4ee3422ef7ffc578d54ba5ec7f65d1eedf82194.torrent)
 
