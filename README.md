@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I1aXBz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MLZr6w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢多區爆感染案例多地解封又封禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88571038ed57bed2526644b048f1ba192ec92f4f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:88571038ed57bed2526644b048f1ba192ec92f4f
 
 下载BT种子 [《石濤.News》「神奇預言書‘鐵板圖’白羽鳥撞山-即刻兌現中」習近平PK五座山山山含水應對天水「王岐山鐘南山小湯山火神山雷神山」（1603）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b492366bdeef74a025318d624875c3401f3b47c.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [总书记真实访问记。谁跟委员长过不去？中国网民接力赛，赢了某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dafdd2addbe1d04303d8a28111ed5a8de2e8da86.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dafdd2addbe1d04303d8a28111ed5a8de2e8da86
-
-下载BT种子 [《瀕死經驗》「唐納德薩瑟蘭在《死亡之門》中的陳述」我漂浮在身體上方被柔和的藍光包圍著⋯滑向一條長長的隧道「誠實面對自己真實的另一面—那是真實完整的自己」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6016d4d27be933a6ff49a5fa86068e0172978571.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6016d4d27be933a6ff49a5fa86068e0172978571
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
