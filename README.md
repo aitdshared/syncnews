@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tsprxu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lnzMK8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢郊區建大型方艙醫院疑掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb5eab891c9c508940033dce196ce20e37299202.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb5eab891c9c508940033dce196ce20e37299202
 
 下载BT种子 [美聯儲降息川普：儲備充足民眾無需囤糧無需大量搶購.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f334a5a6a4598be129e24198cce2925c6ce68531.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共能撑过2020年吗？从三个方面分析这个问题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49fa86ed6723c99e35dcb225e6b96a18b03339d5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:49fa86ed6723c99e35dcb225e6b96a18b03339d5
-
-下载BT种子 [【禁聞】習近平視察武漢評：怕失民心政治作秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2831786a6d8a0abf8798801fff5b67e37ffac068.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2831786a6d8a0abf8798801fff5b67e37ffac068
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
