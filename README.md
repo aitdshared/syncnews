@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZkZhqj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bKJ30F)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】尸体曾无人处理《人物》反证共青团造谣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90349158a690346c7eb3fe61e7fba4f7e624a13d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:90349158a690346c7eb3fe61e7fba4f7e624a13d
+
+下载BT种子 [【禁闻】川普病毒从哪来中美都知道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36566b5d2d67bc00141de0f67ae9a35f4640183c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:36566b5d2d67bc00141de0f67ae9a35f4640183c
 
 下载BT种子 [【禁闻】对抗武肺疫情川普宣布提前国家祷告日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a9b58540384c0e7e5914d55719a1da7634c0cbb.torrent)
 
@@ -616,22 +624,6 @@
 下载BT种子 [【一線採訪】武漢肝病病患命危被拒收治女兒害怕母亲感染病毒向外界求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361f9a49ad36080788afb50a25df9ee753221c1a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:361f9a49ad36080788afb50a25df9ee753221c1a
-
-下载BT种子 [美股、油价双闪崩！中共或成火力交汇点；全球衰退风险和甩不掉的锅（20200311第715期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/860fc03eb881966078aaa3a211748922270e1794.torrent)
-
-磁力链接 magnet:?xt=urn:btih:860fc03eb881966078aaa3a211748922270e1794
-
-下载BT种子 [【环球直击】河南长葛爆发疫情中共操控疫情抹黑美国（3月11日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1591f956ef86e964e67008ebaaabe2649f27e9e9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1591f956ef86e964e67008ebaaabe2649f27e9e9
-
-下载BT种子 [《石濤聚焦》「世衛最終宣佈：武漢病毒肺炎非典2.0為‘全球大流行’」含義：全球失控大擴散社區持續重症與死亡消滅病毒🦠代替控疫更多旅行與貿易限制「在劫難逃鼠年天滅中共生與滅」（1103）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9388592f8effd707a6d6ac8c33c6d32d39794719.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9388592f8effd707a6d6ac8c33c6d32d39794719
-
-下载BT种子 [《石濤.News》「台灣土地廟現神蹟祈求國人平安擲出罕見立筊」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e61a858e7dac7976211c68f0a885432fdbbc4dea.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e61a858e7dac7976211c68f0a885432fdbbc4dea
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
