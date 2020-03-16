@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zlHgTs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/im4oU3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】疫情高峰已过？专家揭中共两大阴谋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/975b717bd22af7a61f017bb20f3b23ed1d143f99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:975b717bd22af7a61f017bb20f3b23ed1d143f99
 
 下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第叄回姬昌解圍進妲己「從來女色多亡國自古權奸不到頭豈是紂王求妲己應知天意屬東周」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/94c7ce98bf051a579a95bbe1a75084436998ff8f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤.News》「台灣土地廟現神蹟祈求國人平安擲出罕見立筊」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e61a858e7dac7976211c68f0a885432fdbbc4dea.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e61a858e7dac7976211c68f0a885432fdbbc4dea
-
-下载BT种子 [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c4a53ea6c3c1ded550ce02e2ac1b93325ea6e80.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c4a53ea6c3c1ded550ce02e2ac1b93325ea6e80
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
