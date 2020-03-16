@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/axL6IP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2OpdST)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普發布全民防疫指南15天遏制病毒蔓延.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52978e127b7a162c3a6589fd9830141d322076b3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52978e127b7a162c3a6589fd9830141d322076b3
 
 下载BT种子 [應對疫情影響美政府或提供航空業協助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a7059e7c54d98bf4b096ca2dd045e0aaddfe6b2.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [華府智庫：警惕中共知識產權盜竊（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f25c96f7d46f8d71f49edb94cd93055cdcd31449.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f25c96f7d46f8d71f49edb94cd93055cdcd31449
-
-下载BT种子 [意大利確診病例破萬伊朗內閣多人感染西班牙內閣成員確診感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4ee3422ef7ffc578d54ba5ec7f65d1eedf82194.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4ee3422ef7ffc578d54ba5ec7f65d1eedf82194
 
 下载BT种子 [【环球直击】3月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/807d28fa1ac4bd204b02833f1a99314530903c48.torrent)
 
