@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MLZr6w)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/btReIG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [小川普硬杠中共发言人！美联储猛招救市为何引发大跌？甩锅美国的真实目的有这个（20200316第718期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf821b7c1563598a2ffee78b0a8c98ef04005b10.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf821b7c1563598a2ffee78b0a8c98ef04005b10
 
 下载BT种子 [武漢多區爆感染案例多地解封又封禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88571038ed57bed2526644b048f1ba192ec92f4f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [比台灣治愈率高一倍！？“康復者”批發出院，竟然是為了這個；世衛組織宣布“全球大流行”，配合習近平的“中國很精彩、世界很狼狽”（江峰漫談20200311第134期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87df32e3107174849bba9fb43eeaf91b1ea3dce4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:87df32e3107174849bba9fb43eeaf91b1ea3dce4
-
-下载BT种子 [总书记真实访问记。谁跟委员长过不去？中国网民接力赛，赢了某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dafdd2addbe1d04303d8a28111ed5a8de2e8da86.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dafdd2addbe1d04303d8a28111ed5a8de2e8da86
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
