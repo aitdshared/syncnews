@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d3xd1E)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wC3hjJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [我说我的韩国语比韩国人好，韩国朋友很生气，一起看看他们的留言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d84164c9831809221fd93c47dd93728fa9fd2d33.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d84164c9831809221fd93c47dd93728fa9fd2d33
 
 下载BT种子 [《濤哥侃封神》「封神演義第三十一回聞太師驅兵追襲」太師追殺真君施援手人活情誼中只記利字頭黃飛虎死難逢生路放生遇死神（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dc6e4ac5f2ae8b2ee22a6de0326f81493531aa1.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [武漢醫院人滿為患，漢陽小區疫情大爆發，湖北升級嚴控離漢離鄂通道！目睹無數慘劇的艾芬醫生提前交代後事，卻難承受一句「謝謝」？醫護傷亡慘重的撕心裂肺！習武漢作秀童謠問世【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e939acf4880ea0117cf7a8ead75411f1f2cef406.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e939acf4880ea0117cf7a8ead75411f1f2cef406
-
-下载BT种子 [习近平亲临一线，出现“双日奇闻”；大国体的优势、和另些人的“以妄为常”（20200311第716期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f53269f8251cf4a504af3288eeb5756a8bfdc3ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f53269f8251cf4a504af3288eeb5756a8bfdc3ae
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
