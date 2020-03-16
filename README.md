@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r5sOfT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AOhjq8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [拜登桑德斯兩人辯論2州因疫情推遲初選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91d866a40f16a71ef6836bf7b401cee9af6ea98d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91d866a40f16a71ef6836bf7b401cee9af6ea98d
+
+下载BT种子 [中共宣傳機構媒體記者欲將發燒體進白宮？三次測試體溫均不合格.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c79ca14e1b786996e676d6015cd1b9cec303b5f1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c79ca14e1b786996e676d6015cd1b9cec303b5f1
 
 下载BT种子 [【环球直击】3月16日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14bdf690802ca3cd268172eec462901b7f7e33a4.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [【全球新闻】3月11日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7691cc5cca832ae145aa5df1be9fd8ede83a8586.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7691cc5cca832ae145aa5df1be9fd8ede83a8586
-
-下载BT种子 [46074734504FTG20200311033302LAEnokiMushroomDeathLister.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed905bea2a3913c70a3b0f5020a10df1a86916f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed905bea2a3913c70a3b0f5020a10df1a86916f9
-
-下载BT种子 [習近平訪武漢，驚現靈異現象！市民曲線喊“全是假的！”華南海鮮市場現病毒剋星？（老北京茶館第266集20200311）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de0a512067b478666704a39d693a6e4500ecbeac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de0a512067b478666704a39d693a6e4500ecbeac
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
