@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AagC6k)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YbZRdO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb51ca50f43a46c89913db00a138d411102f31e5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb51ca50f43a46c89913db00a138d411102f31e5
 
 下载BT种子 [美联储削减利率至0,另加7000亿量化宽松,利好出尽是利空美国政府还有哪些措施(政论天下第134集20200315)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a303139f7635405c7017ecca36a4c442a5ea9e7.torrent)
 
@@ -620,14 +624,6 @@
 下载BT种子 [《石濤聚焦》「川普醒了：武漢病毒是全世界的敵人」全球突破110國12萬感染亡近4.5千義大利亡近千保持6.6%死亡率全美37州感染過千亡33人「股市天塌菁英重創」（1103）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5af2c3ae0e5c532152dc41a48ac9bb9eb4e2a650.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5af2c3ae0e5c532152dc41a48ac9bb9eb4e2a650
-
-下载BT种子 [习近平演戏大穿帮！栗战书捧习遭删除。千万网民挺一人，大败王沪宁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/234961b1fb0ffc349c8627a2d9f66ffefeee3d9c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:234961b1fb0ffc349c8627a2d9f66ffefeee3d9c
-
-下载BT种子 [世衛首次宣佈：病毒進入全球大流行伊朗第一副總統染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91f869d0e2492ed1e2df4f91966e7451f1bfefd0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:91f869d0e2492ed1e2df4f91966e7451f1bfefd0
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
