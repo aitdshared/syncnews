@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ov5WmY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ezRwdG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】香港抗疫显奇迹武汉肺炎为何望而却步？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d20c316c5b9717f2ddbbb8a4724d8feffd051a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3d20c316c5b9717f2ddbbb8a4724d8feffd051a7
+
+下载BT种子 [【禁闻】中国疫情结束了？专家警示防控难点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/964e3d048f36fa2dc55b89f964c9ec68cf6979b3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:964e3d048f36fa2dc55b89f964c9ec68cf6979b3
+
+下载BT种子 [【微视频】中共镇压湖北自救中美问题大不同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8ab37bd8c321cf2a1e8a13075ca3c0e66c81a61.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c8ab37bd8c321cf2a1e8a13075ca3c0e66c81a61
 
 下载BT种子 [政治老人斥责习近平！意大利外长打脸华春莹。留学生大批回国遇尴尬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf3d127e1a1e12186549a48dd765d7dd6fa2a7c3.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [🈲遼寧爆甲肝疫情，可控！石正麗「否定」美國製造病毒；新冠病毒非人造證據找到？華南市場住4人吃什麼？揭世衛譚德塞老底；日本防疫國家發錢；曝中共網軍反美教科書；武漢北京等地疫情真相新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f32be5fe694047fab90d95fa23d554c51ecef9f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7f32be5fe694047fab90d95fa23d554c51ecef9f
-
-下载BT种子 [【禁聞】3月11日退黨精選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93dccc930e1d590d7e05c16de0fe7e25571ade36.torrent)
-
-磁力链接 magnet:?xt=urn:btih:93dccc930e1d590d7e05c16de0fe7e25571ade36
-
-下载BT种子 [【禁聞】美媒：武漢病毒針對共產黨而來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/815d8daf32dff7bc85bed7b1db8721735c679ce1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:815d8daf32dff7bc85bed7b1db8721735c679ce1
-
-下载BT种子 [【禁聞】《發哨人》引發網管與網友信息攻防戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bf06c0daf30a079f909a11a03134e5c5775ad10.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0bf06c0daf30a079f909a11a03134e5c5775ad10
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
