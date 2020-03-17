@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Yst6K)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vKMDjY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】大陆网疯传外国疫情已失控蓬佩奥与杨洁篪通话警告北京勿造谣（3月17日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211b8f3f04dd81a19ed792a80988a824d345630e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:211b8f3f04dd81a19ed792a80988a824d345630e
 
 下载BT种子 [中共用疫情做「大外宣」民團籲台灣斷航.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/575194b052ab8f4ddf90c21abc63d09f280ca0db.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [“是美军带到中国的！”中共外交部惹恼川普？默克尔称德国将有5000万人受影響，美国NBA停赛，汤姆·汉克斯确诊，国会议员在家辦公，這一切離普通人有多远？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ded6c98cfd54d1119720e2ea103d6e8e6816d8fa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ded6c98cfd54d1119720e2ea103d6e8e6816d8fa
-
-下载BT种子 [《瀕死經驗》「《魔鬼.毁灭者》的羅伯特帕斯特萊利」生命的自由一种灵魂與生命永恆的互存那是無法死去的人之部分與灵魂同在循环至生命的歸屬-幸福（1203）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/004c7b3caa44caf9a7b6d5f8c0243c89b65df724.torrent)
-
-磁力链接 magnet:?xt=urn:btih:004c7b3caa44caf9a7b6d5f8c0243c89b65df724
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
