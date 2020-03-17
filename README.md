@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lMEhUL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hTgyWp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [藝術家追魂關押近一年律師：遭當局打擊報復.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46b186369d4ae9eff3002d82c4b042d6e065da17.torrent)
+
+磁力链接 magnet:?xt=urn:btih:46b186369d4ae9eff3002d82c4b042d6e065da17
+
+下载BT种子 [武漢肺炎衝擊多國法國宣布全國禁閉15天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6791071dc81401d134fa09f9701fcf29fb0595c6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6791071dc81401d134fa09f9701fcf29fb0595c6
+
+下载BT种子 [蓬佩奧與楊潔篪通話警告北京勿造謠川普推文強調病毒來自中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/550162a5c75bf86be8e4262e62b87cb4c063eeb4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:550162a5c75bf86be8e4262e62b87cb4c063eeb4
 
 下载BT种子 [【环球直击】大陆网疯传外国疫情已失控蓬佩奥与杨洁篪通话警告北京勿造谣（3月17日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211b8f3f04dd81a19ed792a80988a824d345630e.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【全球新闻】3月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21409468410d35c034b0ed20f58efa33f83463b1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:21409468410d35c034b0ed20f58efa33f83463b1
-
-下载BT种子 [“是美军带到中国的！”中共外交部惹恼川普？默克尔称德国将有5000万人受影響，美国NBA停赛，汤姆·汉克斯确诊，国会议员在家辦公，這一切離普通人有多远？（江峰漫談20200312第135期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6d472aabd319e0b13941aa18aa76d684bb3994d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d6d472aabd319e0b13941aa18aa76d684bb3994d
-
-下载BT种子 [【禁聞】垃圾車運肉武漢人怒：還要全員感恩？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac7f0ab325c8acb50caf139ebd7b8b602555e975.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ac7f0ab325c8acb50caf139ebd7b8b602555e975
-
-下载BT种子 [“是美军带到中国的！”中共外交部惹恼川普？默克尔称德国将有5000万人受影響，美国NBA停赛，汤姆·汉克斯确诊，国会议员在家辦公，這一切離普通人有多远？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ded6c98cfd54d1119720e2ea103d6e8e6816d8fa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ded6c98cfd54d1119720e2ea103d6e8e6816d8fa
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
