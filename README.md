@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XM3iCw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hJgg7m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】武汉肺炎肆虐中美防疫措施不同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a59bc6adfd44f6c9cc46c2643a5a60ca0b3d2a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a59bc6adfd44f6c9cc46c2643a5a60ca0b3d2a9
 
 下载BT种子 [中共官員可怕的賺錢方式台灣遏制病毒为何如此出色？中國解密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac220375024ed66054e17f87502601453ca6137c.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [🇨🇦加拿大總理夫人確診，特魯多隔離；武漢靈車送菜，疫區民眾下跪喊餓，孝感造反！病毒或影響生育，針對老人是謊言！報數有上限，只報輸入病例；美國禁歐入境，NBA停賽，阿甘感染新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e0dd14fa56801018215899760d4fa6f9281ad28.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1e0dd14fa56801018215899760d4fa6f9281ad28
-
-下载BT种子 [【禁聞】應對武漢肺炎川普發表全國講話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/172e842bb3477de8433a15653707d705825e86df.torrent)
-
-磁力链接 magnet:?xt=urn:btih:172e842bb3477de8433a15653707d705825e86df
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
