@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ewpw1j)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SzhF0u)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [海外華人爭搶回國，中共持鍋等待；美國國家祈禱日，江峰預演《巴頓將軍》精彩祈禱文片段（江峰漫談20200316第137期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/988e95733c9060789fb8ccfbf883f30a852fb40c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:988e95733c9060789fb8ccfbf883f30a852fb40c
 
 下载BT种子 [《石濤聚焦》「川普長子推文中共國‘病毒四大罪狀’F-You」隱瞞危害拖延通告禁止美國與WHO專家進入栽贓嫁禍美國「邁阿密居民立案狀告中共國-隱瞞疫情傷害全球」否定習近平-中共最好疫苗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a17169b47f1aae3cb0fb25a1e460ee80d00bfa7.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [欧州封禁,股市暴跌,美国如何应对前所未有的状况(政论天下第131集20200312)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4777a5bb780fe594342e57e34684c03f4fb87743.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4777a5bb780fe594342e57e34684c03f4fb87743
-
-下载BT种子 [武漢肺炎在中國大陸以外累計感染超過4.8萬歐洲感染人數激增.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39aee3996f6c7713cf29ddec6e272f93f9800073.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39aee3996f6c7713cf29ddec6e272f93f9800073
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
