@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bx8oed)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8BVgDa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共驱逐美国记者网友：封中国人的眼睛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2eea2fabc54ed2f56f79e00c2b725ecf822690d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2eea2fabc54ed2f56f79e00c2b725ecf822690d5
+
+下载BT种子 [【禁闻】美民众集体诉讼：中共引发疫情蔓延.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b21e1912f63d6682efd4c17f50788c8a243a574f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b21e1912f63d6682efd4c17f50788c8a243a574f
 
 下载BT种子 [【禁闻】3月17日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/486fa630b7c1db4c87d816cdd00b5ab8ef713e7d.torrent)
 
@@ -616,10 +624,6 @@
 下载BT种子 [意大利伊朗疫情爆最大增幅西班牙封四鎮伊朗疫情源頭庫姆出現了萬人塚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7da903f7a94a50d93c108f0e9b15c6f9ae374e52.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7da903f7a94a50d93c108f0e9b15c6f9ae374e52
-
-下载BT种子 [川普簽法案禁止用聯邦資金買華為設備.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ace2b9cbdf168319cddc7787a38e57492b6964fe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ace2b9cbdf168319cddc7787a38e57492b6964fe
 
 下载BT种子 [FOX新聞揭中共甩鍋疫情美政府將如何應對？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07cc46dc02c4fbbe0873a814f06421502196334d.torrent)
 
