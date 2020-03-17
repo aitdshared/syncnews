@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AIKdzK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BLBT4w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月17日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/486fa630b7c1db4c87d816cdd00b5ab8ef713e7d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:486fa630b7c1db4c87d816cdd00b5ab8ef713e7d
 
 下载BT种子 [【禁闻】意大利武汉肺炎疫情为何如此严重？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f54a9da3a60f2348918d36e4b63da9ba418d61e.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [FOX新聞揭中共甩鍋疫情美政府將如何應對？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07cc46dc02c4fbbe0873a814f06421502196334d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07cc46dc02c4fbbe0873a814f06421502196334d
-
-下载BT种子 [【环球直击】3月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ad946e915b5137cbe9dc254813ed9221aa21706.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0ad946e915b5137cbe9dc254813ed9221aa21706
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
