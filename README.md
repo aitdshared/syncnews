@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EGL5gz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bv0dgG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「影子」訪武漢？「正國級老領導」憂心如焚？趙立堅被喊「下作」，變風向2大原因，4000人方艙再起，疫情今夏不可能結束，「第二輪爆發」肯定無疑，三駕馬車死火【新聞看點李沐陽03.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cedf062458caddca55814a788d4a7957a20fb94.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6cedf062458caddca55814a788d4a7957a20fb94
 
 下载BT种子 [任志强失联,王岐山是否会出手相救新一轮内斗是否会发生(政论天下第135集20200316)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8e07ff1d769296e2feeeaabe97c07d94966da0d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「定數2月21日南韓義大利爆發美國第一例-川普被習總當猴兒騙了」川普給美國帶來麻煩的話「我希望代表美國人民感謝習主席」全美43州1.3千人38人亡最壞1.5億人感染現3.5%死亡率.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ed440e6d5f79716b4ad528490ad179053954a30.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8ed440e6d5f79716b4ad528490ad179053954a30
-
-下载BT种子 [【环球直击】3月12日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5662492866f20e2b851859649a67358a59be741b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5662492866f20e2b851859649a67358a59be741b
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
