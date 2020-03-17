@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9NlGhQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Yst6K)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共用疫情做「大外宣」民團籲台灣斷航.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/575194b052ab8f4ddf90c21abc63d09f280ca0db.torrent)
+
+磁力链接 magnet:?xt=urn:btih:575194b052ab8f4ddf90c21abc63d09f280ca0db
+
+下载BT种子 [中共試圖將病毒發源推給美國大陸原衛生高官和意大利參議員譴責中共欺騙世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a3a8c695d40e1ab948af4c3ead38c7e43c84e70.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a3a8c695d40e1ab948af4c3ead38c7e43c84e70
+
+下载BT种子 [大陸網瘋傳外國疫情已失控煽動回國被惡搞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3ba0047844cbf0dc21cf73f69b77111d8af4d81.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a3ba0047844cbf0dc21cf73f69b77111d8af4d81
 
 下载BT种子 [美國律師集體起訴中共：掩蓋疫情危害全球.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7caeea7c0d34bfbce7ab6f473cd9a82e00435ebc.torrent)
 
@@ -612,22 +624,6 @@
 下载BT种子 [《瀕死經驗》「《魔鬼.毁灭者》的羅伯特帕斯特萊利」生命的自由一种灵魂與生命永恆的互存那是無法死去的人之部分與灵魂同在循环至生命的歸屬-幸福（1203）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/004c7b3caa44caf9a7b6d5f8c0243c89b65df724.torrent)
 
 磁力链接 magnet:?xt=urn:btih:004c7b3caa44caf9a7b6d5f8c0243c89b65df724
-
-下载BT种子 [我的韩国语比韩国人更好，原因您可能想不到，秀一下我的韩国语.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b2b1c79f7297622931dd435f221e13467dc9426.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b2b1c79f7297622931dd435f221e13467dc9426
-
-下载BT种子 [【禁聞】美官員：中共瞞報武漢肺炎疫情全球受害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31af34eb96603171e5f6433b23c122d5ffe23eaf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:31af34eb96603171e5f6433b23c122d5ffe23eaf
-
-下载BT种子 [【禁聞】「都是假的」習近平視察武漢的怪異細節.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/515dc517a9c502dc62aec545b756d648953efd1f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:515dc517a9c502dc62aec545b756d648953efd1f
-
-下载BT种子 [5【禁聞】3月12日退黨精選.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9abd320acfa5d35e15952ae45559e91651b100d8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9abd320acfa5d35e15952ae45559e91651b100d8
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
