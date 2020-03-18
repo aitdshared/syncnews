@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LFzYqC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GBmjXK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7b41fab717ba91df546a3a35ecf2a3bca5932e7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7b41fab717ba91df546a3a35ecf2a3bca5932e7
 
 下载BT种子 [《石濤聚焦》「金融大海嘯無人能阻止：美股再熔斷油價跌到35年前驚呼“全美停止一切活動30天”」比爾蓋茨-關閉6周全球感染者破20萬亡8300死亡率4.5%「七定數太神奇」（1803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ab08e0b8ad10efdde88755d624db9c57b676e4.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [西半球最高觀景台曼哈頓天際線新“邊緣”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3446a4a92119cdcb69da7f5a3ec276cfdc6321e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b3446a4a92119cdcb69da7f5a3ec276cfdc6321e
-
-下载BT种子 [川普宣布国家紧急状态;加拿大总理夫人中招儿,总理自我隔离;赵立坚战狼式推特与南华早报泄机密.中共对美国连番指控和威胁的三个目的(政论天下第132集20200313)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41739594b3d84325ff127e11f50e2a70a32ffd71.torrent)
-
-磁力链接 magnet:?xt=urn:btih:41739594b3d84325ff127e11f50e2a70a32ffd71
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
