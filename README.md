@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tPsHpr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9Yj10l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「金融大海嘯無人能阻止：美股再熔斷油價跌到35年前驚呼“全美停止一切活動30天”」比爾蓋茨-關閉6周全球感染者破20萬亡8300死亡率4.5%「七定數太神奇」（1803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ab08e0b8ad10efdde88755d624db9c57b676e4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:40ab08e0b8ad10efdde88755d624db9c57b676e4
 
 下载BT种子 [中共抹黑美軍川普公開使用「中國病毒」來澄清病毒起源於中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bc5ba68cf9c0c81620a347cc4ccf09b046f99e3.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [川普宣布国家紧急状态;加拿大总理夫人中招儿,总理自我隔离;赵立坚战狼式推特与南华早报泄机密.中共对美国连番指控和威胁的三个目的(政论天下第132集20200313)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41739594b3d84325ff127e11f50e2a70a32ffd71.torrent)
 
 磁力链接 magnet:?xt=urn:btih:41739594b3d84325ff127e11f50e2a70a32ffd71
-
-下载BT种子 [最高级别“中标人”，总统或总理夫人？任志强失联、发言人甩锅美军闯祸，有好戏看（20200313第717期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7778732df6af7f7169b691b085c4e102137bfab4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7778732df6af7f7169b691b085c4e102137bfab4
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
