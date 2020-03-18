@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qzoHVQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OJIELU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】大陆30万狱警封闭式值班家属不满.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7459b07db4abb26c0cc1aed0f31f83c55e0540ce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7459b07db4abb26c0cc1aed0f31f83c55e0540ce
 
 下载BT种子 [【微视频】美国应对武汉肺炎经济政策背后的逻辑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e0ec2ca52325d82cc4957983325ca7622933ac9.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁聞】大疫中失雙親武漢青山區爆孤兒隔離點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6df8e09df062716996e9b5f60dff32de78c67d3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6df8e09df062716996e9b5f60dff32de78c67d3
-
-下载BT种子 [【中國禁聞】3月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c8e39a3217f9bdd42dfd083514aeeee4c81368c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2c8e39a3217f9bdd42dfd083514aeeee4c81368c
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
