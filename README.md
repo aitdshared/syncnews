@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VJutYd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jD4Sty)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平警告副主席：不得插手！党媒强求各国学中国模式。马云遭夹攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a084b0f7edd16fc7e2c174ccbc044d1f8cca198.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a084b0f7edd16fc7e2c174ccbc044d1f8cca198
 
 下载BT种子 [【禁闻】驳斥中共说法川普称“中国病毒”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9627131c48dc728f7068737583fc0973128cb7b3.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁聞】陸媒接力揭露武漢中心醫院打壓吹哨人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79bd4829da4bd33b2e683eea4770014d5c1c02d9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:79bd4829da4bd33b2e683eea4770014d5c1c02d9
-
-下载BT种子 [西半球最高觀景台曼哈頓天際線新“邊緣”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3446a4a92119cdcb69da7f5a3ec276cfdc6321e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3446a4a92119cdcb69da7f5a3ec276cfdc6321e
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
