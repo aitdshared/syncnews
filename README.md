@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S5CiSn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/99AlI3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [耿爽又不爽了🤭川普正面出手，直擊中共甩鍋，美集體告中共，意教堂停棺材。疫情徹底失控，海歸被隔離，海歸女泣訴「中國不是我的祖國」【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e3e0885f2815daae7fb4a2e7317f2fd63b38b9a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e3e0885f2815daae7fb4a2e7317f2fd63b38b9a
 
 下载BT种子 [突发！快讯：美中脱钩！习近平猛推媒体大战，特朗普直呼中国那个.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e6e2eae463e4467efb9071742420f49dbea9c91.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統被確診」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc654f316425b05d7acddb14638ecd905668e410.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc654f316425b05d7acddb14638ecd905668e410
-
-下载BT种子 [意大利伊朗疫情爆最大增幅西班牙封四鎮伊朗疫情源頭庫姆出現了萬人塚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7da903f7a94a50d93c108f0e9b15c6f9ae374e52.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7da903f7a94a50d93c108f0e9b15c6f9ae374e52
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
