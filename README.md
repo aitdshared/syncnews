@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uLegD1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0FvNer)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -624,10 +624,6 @@
 下载BT种子 [【禁闻】“都是假的”习近平视察武汉的怪异细节.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9824e374d18525b7a634305101c9644d33eb2ed0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9824e374d18525b7a634305101c9644d33eb2ed0
-
-下载BT种子 [【中国禁闻】3月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9354c6b0ed27144e280a904cceaac4b0e94ee97c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9354c6b0ed27144e280a904cceaac4b0e94ee97c
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
