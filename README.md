@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7xQTCr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tPsHpr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共抹黑美軍川普公開使用「中國病毒」來澄清病毒起源於中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bc5ba68cf9c0c81620a347cc4ccf09b046f99e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0bc5ba68cf9c0c81620a347cc4ccf09b046f99e3
+
+下载BT种子 [湖北疫情依然嚴峻不斷有屍體被抬出中共官媒高調報導外援醫療隊撤離實則並未撤離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38e0fe307099191c782300b9cf030c3f6c9562c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:38e0fe307099191c782300b9cf030c3f6c9562c3
+
+下载BT种子 [回應北京報復美媒蓬佩奧：將追究中共責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d63e5cc3baa27e0ebb4856a6fd43e574697d4cf0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d63e5cc3baa27e0ebb4856a6fd43e574697d4cf0
 
 下载BT种子 [《石濤聚焦》「川普怒了晨推三呼‘中共國病毒’」習總推鐘南山再無名反抗「沒有證據是科學問題」川普硬懟「中共國病毒的說法是準確的」美國生路—川普直接公開指證「習近平-中共是本次人類災難的最大元兇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23946574fef97b04549967b553042b3d8209faa7.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [最高级别“中标人”，总统或总理夫人？任志强失联、发言人甩锅美军闯祸，有好戏看（20200313第717期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7778732df6af7f7169b691b085c4e102137bfab4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7778732df6af7f7169b691b085c4e102137bfab4
-
-下载BT种子 [《石濤聚焦》「川普直回趙立堅”他們知道（病毒）從哪兒來的我們也清楚“-現場錄像」駐美大使崔天凱被美國務院召見抗議美國會議員稱趙立堅「中國共產黨的小丑」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70f8e7b3d124721b9ea694856b730d504959a4a2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:70f8e7b3d124721b9ea694856b730d504959a4a2
-
-下载BT种子 [《石濤聚焦》「川普宣佈緊急狀態PK習總17萬人大會-小丑」市場信心倍增大漲2000點收市川普-無畏病毒尊重下屬用人不疑坦承不足勇氣承擔「但依然表現與習總不錯」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eeaefdbb1a75d4ba8438d90c1e679aec6a53f105.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eeaefdbb1a75d4ba8438d90c1e679aec6a53f105
-
-下载BT种子 [中共密令曝光，甩鍋蓄謀已久，戰狼部兩狼相向，唱雙簧到外交層面，李文亮還曝光了「驚天真相」：江漢區插手了！蔡莉對醫護人員「兇殘無情」，女兒最早開寶馬7系【新聞看點】（20200313）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f123e10058c320974c07cd2b087d3dfb63879fe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f123e10058c320974c07cd2b087d3dfb63879fe
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
