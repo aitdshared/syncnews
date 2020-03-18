@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lGYHda)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WXu8xX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [很多人说我为了流量讨好台湾，作为Youtuber，聊聊我针对台湾的市场攻略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52d3278afa175d529d5fb3e258b0d2b1aa74796d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52d3278afa175d529d5fb3e258b0d2b1aa74796d
 
 下载BT种子 [【唐靖遠快評】川普怒稱“中國病毒”！中共為何強硬發起對美信息戰？習近平在豪賭什麼？熱點互動03172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf2718684f41323d02af0a435663a92212d4ec77.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】美最新人权报告批中共迫害法轮功学员.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78d02c38255d732da0520c019744efc3bf754888.torrent)
 
 磁力链接 magnet:?xt=urn:btih:78d02c38255d732da0520c019744efc3bf754888
-
-下载BT种子 [【禁闻】3月12日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eda41864dca8f23b8c7dd6eb791b98112cb22bd8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eda41864dca8f23b8c7dd6eb791b98112cb22bd8
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
