@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GZgc0F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fp8Dh7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢疫情衝擊國際經濟全球化趨勢或出現分水嶺加速供應鏈位移.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b273f4aaf740888da49a57dc4fae182af813a53.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0b273f4aaf740888da49a57dc4fae182af813a53
+
+下载BT种子 [中共病毒擴散全歐伊朗研究恐350萬人死當局再度釋放8萬5千名囚犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2a02d2cb5a13e147dc6bb200d95b11474e50602.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f2a02d2cb5a13e147dc6bb200d95b11474e50602
+
+下载BT种子 [人民日報推特發文打臉趙立堅網民：中共企圖充當「救世主」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70e5e8215d997a0ddcc2fbc7d3562684e71adc2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c70e5e8215d997a0ddcc2fbc7d3562684e71adc2
 
 下载BT种子 [【环球直击】3月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11667f64215d0ad771a58c33d73fce5ae3520898.torrent)
 
@@ -609,21 +621,9 @@
 
 磁力链接 magnet:?xt=urn:btih:eb9ff714433acffd5d36130dd9f2cde8871dff51
 
-下载BT种子 [川普宣布進入全國緊急狀態启动高達500億美元資金對抗武漢肺炎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cbf82d5f8423c998e57319ff132eba76b2aecf3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cbf82d5f8423c998e57319ff132eba76b2aecf3
-
 下载BT种子 [中共密令曝光，甩鍋蓄謀已久，戰狼部兩狼相向，唱雙簧到外交層面，李文亮還曝光了「驚天真相」：江漢區插手了！蔡莉對醫護人員「兇殘無情」，女兒最早開寶馬7系【新聞看點】（20200313）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f123e10058c320974c07cd2b087d3dfb63879fe.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8f123e10058c320974c07cd2b087d3dfb63879fe
-
-下载BT种子 [加州武漢肺炎感染人數達198例舊金山與聖塔克拉拉已宣佈緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fb70c6ae9f44fdf6886f1d1a1d221bf369be187.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0fb70c6ae9f44fdf6886f1d1a1d221bf369be187
-
-下载BT种子 [【禁闻】大疫中失双亲武汉青山区爆孤儿隔离点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcc057f579d4fd413b27ec0f686b8bba92ea4496.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bcc057f579d4fd413b27ec0f686b8bba92ea4496
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
