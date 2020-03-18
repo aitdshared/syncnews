@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nGQUiL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TRIaRi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對疫情美議員﹕協助企業解決現金流.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7542afa34b4e391c90e0258d47d26c809b4f006e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7542afa34b4e391c90e0258d47d26c809b4f006e
 
 下载BT种子 [中共撤銷3家美媒記者證蓬佩奧警告中共剝奪人們的知情權.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46c93b1ab34671e933c1b0bcdd092ed4dea3250d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「武漢封城-全球大流行之罪惡元兇」WHO頂級幫兇英國首相逆反做法-全民感染產抗體韓國開放病毒乖巧義大利學中共-最慘「認同中共價值觀者慘慘慘」(1303).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0d480642c0a78a0a27874e087f219823b0ce4f4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e0d480642c0a78a0a27874e087f219823b0ce4f4
-
-下载BT种子 [重大事态！中共对美国宣战？外交部发言人点火。那些他没说的秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e57deaa762696c046ed8cde26880c0afc94ab63.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e57deaa762696c046ed8cde26880c0afc94ab63
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
