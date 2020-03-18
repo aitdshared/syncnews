@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hoXAAi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/j3yS5E)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -620,6 +620,10 @@
 下载BT种子 [中共企圖「改寫」疫情歷史賴病毒給美國國際譁然學者揭動機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dba24eda37beec0b3f2395046746ce8f1056a7d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2dba24eda37beec0b3f2395046746ce8f1056a7d
+
+下载BT种子 [芬蘭華裔：中共隱瞞疫情肯定是瘟疫全球大爆發的第一責任人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9a24ae515ce65b024aeba16a5d46738477b406b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9a24ae515ce65b024aeba16a5d46738477b406b
 
 下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統被確診」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc654f316425b05d7acddb14638ecd905668e410.torrent)
 
