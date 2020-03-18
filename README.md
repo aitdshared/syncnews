@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0FvNer)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KwxWnn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普发放现金；海外华人抢机票回国，准备充当肥羊和背锅侠；信息大战，川普父子怒怼中共(政论天下第136集20200317)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02280f41879f784986f9028652a97d24a5af33df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:02280f41879f784986f9028652a97d24a5af33df
 
 下载BT种子 [【中國禁聞】3月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b18104067b2509da6d08b34d176fd5f73df83d9.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】世卫组织赤化泰国代表辣讽谭德塞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f71f83a0001d3de5cafb39dcbd218b44e719222.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f71f83a0001d3de5cafb39dcbd218b44e719222
-
-下载BT种子 [【禁闻】“都是假的”习近平视察武汉的怪异细节.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9824e374d18525b7a634305101c9644d33eb2ed0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9824e374d18525b7a634305101c9644d33eb2ed0
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
