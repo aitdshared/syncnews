@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fp8Dh7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CZuBbU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普怒了晨推三呼‘中共國病毒’」習總推鐘南山再無名反抗「沒有證據是科學問題」川普硬懟「中共國病毒的說法是準確的」美國生路—川普直接公開指證「習近平-中共是本次人類災難的最大元兇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23946574fef97b04549967b553042b3d8209faa7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:23946574fef97b04549967b553042b3d8209faa7
 
 下载BT种子 [武漢疫情衝擊國際經濟全球化趨勢或出現分水嶺加速供應鏈位移.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b273f4aaf740888da49a57dc4fae182af813a53.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「川普宣佈緊急狀態PK習總17萬人大會-小丑」市場信心倍增大漲2000點收市川普-無畏病毒尊重下屬用人不疑坦承不足勇氣承擔「但依然表現與習總不錯」（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eeaefdbb1a75d4ba8438d90c1e679aec6a53f105.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eeaefdbb1a75d4ba8438d90c1e679aec6a53f105
-
-下载BT种子 [武漢肺炎海外確診近6萬世衛：歐洲已成爲另一個疫情中心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb9ff714433acffd5d36130dd9f2cde8871dff51.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eb9ff714433acffd5d36130dd9f2cde8871dff51
 
 下载BT种子 [中共密令曝光，甩鍋蓄謀已久，戰狼部兩狼相向，唱雙簧到外交層面，李文亮還曝光了「驚天真相」：江漢區插手了！蔡莉對醫護人員「兇殘無情」，女兒最早開寶馬7系【新聞看點】（20200313）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f123e10058c320974c07cd2b087d3dfb63879fe.torrent)
 
