@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Du8Rsb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hoXAAi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [緩解疫情衝擊美國制定龐大經濟援助計劃可能向美國人發放現金補助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2085d31d6732ca7f969c1eecb5f81d76968e92e2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2085d31d6732ca7f969c1eecb5f81d76968e92e2
+
+下载BT种子 [白宮8千5百億疫情紓困方案呈交參院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef4f206c1c012b07244570a441d7cf0ec2a2c667.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef4f206c1c012b07244570a441d7cf0ec2a2c667
 
 下载BT种子 [耿爽又不爽了🤭川普正面出手，直擊中共甩鍋，美集體告中共，意教堂停棺材。疫情徹底失控，海歸被隔離，海歸女泣訴「中國不是我的祖國」【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e3e0885f2815daae7fb4a2e7317f2fd63b38b9a.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [中共企圖「改寫」疫情歷史賴病毒給美國國際譁然學者揭動機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dba24eda37beec0b3f2395046746ce8f1056a7d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2dba24eda37beec0b3f2395046746ce8f1056a7d
-
-下载BT种子 [芬蘭華裔：中共隱瞞疫情肯定是瘟疫全球大爆發的第一責任人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9a24ae515ce65b024aeba16a5d46738477b406b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9a24ae515ce65b024aeba16a5d46738477b406b
-
-下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統初步確診等待二次結果」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf56a6f8955c1cd287ae9332a18c926756713f9f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf56a6f8955c1cd287ae9332a18c926756713f9f
 
 下载BT种子 [《石濤.News》「彭博：川普即將宣佈緊急狀態巴西總統被確診」上週末海湖莊園與川普晚宴（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc654f316425b05d7acddb14638ecd905668e410.torrent)
 
