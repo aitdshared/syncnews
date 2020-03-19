@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x2ODGd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DWZCaR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習被印度起訴，美中將擦槍走火？127種病毒合成體出現，疫情外更大危機，李瑞環稱今上「毛孩子」，東華門被撞掉門釘，天文奇觀再現，4000武警到香港幹什麼？【新聞看點李沐陽】（20200318）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0dc254c034a5e864a19236f1c4e6693dc39776f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0dc254c034a5e864a19236f1c4e6693dc39776f4
 
 下载BT种子 [【禁闻】阻止报导真相？中共驱逐美媒记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d2da71ee337d3e9170ef5c759b67d963939bba4.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《瀕死經濟》「豪門恩怨朱門恩怨達拉斯男主角拉里哈格曼」每個人都是獨一無二的一種內在的旋律融合與天弦般深沈的宇宙力量中「宇宙能量是愛超越時間永恆無盡」生命之本意—愛❤️（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb63f7175d38507368736324183deb9d1172cbbb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fb63f7175d38507368736324183deb9d1172cbbb
-
-下载BT种子 [美国进入紧急状态！川普40小时内两次讲话，商业天才完救股市；中国贸易协议跑不掉；川普回答记者问藏玄机；美国疫情前景依然严峻；.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7882c2a8f46004e32a5ff22e1dc243d6217484d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d7882c2a8f46004e32a5ff22e1dc243d6217484d
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
