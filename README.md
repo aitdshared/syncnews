@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7fagVA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RWLmtF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「中共病毒🦠偏愛親共者」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3aa972f3fc15e238527c8ada38c11166a70707c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3aa972f3fc15e238527c8ada38c11166a70707c5
+
+下载BT种子 [意大利亡数超中国？各国必须索赔！美军三大主力集结南海。特朗普发出暗示.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db4b2886692e5f9bd6674a99fabba1d2ba42d271.torrent)
+
+磁力链接 magnet:?xt=urn:btih:db4b2886692e5f9bd6674a99fabba1d2ba42d271
 
 下载BT种子 [【环球直击】3月19日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e94c3d9ffcb1690019c7bae501c732b7751b96d0.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【百姓自拍】孝感小區高價菜抗議後軍隊進入小區抓人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83af1cc1e84b108ebc42e093bb3fb65d4df23d9c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:83af1cc1e84b108ebc42e093bb3fb65d4df23d9c
-
-下载BT种子 [意大利加入一帶一路帶來的厄運；台灣成為西方成功防疫典範的關鍵就在這一條；中共說香港“最壞”，正是中共諷刺的“最壞”的糟粕，拯救了香港（江峰漫談20200314第136期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee01236c5e3656eaf8c76c25228b7d8f85cef4ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee01236c5e3656eaf8c76c25228b7d8f85cef4ab
-
-下载BT种子 [《濤哥侃封神》「封神演義第三十回周紀激反武成王」午門前紂王大戰黃飛虎聞太師凱旋明眼責商王武成王過澠池三關被困怨氣沖天力阻道德真君路（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06a73a397824192453670da400bfe884416ce4c6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:06a73a397824192453670da400bfe884416ce4c6
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
