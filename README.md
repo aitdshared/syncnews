@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YTw6Rf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wMqeEE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -620,10 +620,6 @@
 下载BT种子 [【环球直击】3月14日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94c1536c6e253fb35779651eaf218c84f61457c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f94c1536c6e253fb35779651eaf218c84f61457c
-
-下载BT种子 [美國疫情衝擊商家紐約大法拉盛商會推貸款計畫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e90ce8dfd8c9f9af29c74292ec64ea42a37b88.torrent)
-
-磁力链接 magnet:?xt=urn:btih:07e90ce8dfd8c9f9af29c74292ec64ea42a37b88
 
 下载BT种子 [加拿大國會通過美墨加貿易協議美墨祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6264fb6152d162b62b9c212282c421d9848779d2.torrent)
 
