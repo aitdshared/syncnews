@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5coYVA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TOjlI9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [特朗普宣佈中國病毒，網友改中共病毒！華人回國秒後悔：遭全套服務，成二次疫情背鍋俠！（老北京茶館第269集20200318）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6356e8139f1767fcb16d1641a33f7b7ee78afce9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6356e8139f1767fcb16d1641a33f7b7ee78afce9
 
 下载BT种子 [【禁闻】任志强失联近一周友人呼吁真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2bdf8f35c56fc616464d3b62fa149cf9819906ff.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【解讀】打倒共產黨中共遭遇末日三危機；假扮救世主透視中共四大騙術；本頻道現況最新回報（2020.3.14）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f361b9e1a83165303932807e710dcf00b24dae08.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f361b9e1a83165303932807e710dcf00b24dae08
-
-下载BT种子 [【全球新闻】3月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99f01e2b53696a7ea71b846d427531a3f8f573f6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99f01e2b53696a7ea71b846d427531a3f8f573f6
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
