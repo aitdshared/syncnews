@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o85GZr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YTw6Rf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第三十二回黃天化潼關會父」五道玄功妙莫量隨風化氣涉滄茫須臾歷遍閻浮世頃刻遨游泰岳邙「賈氏幽魂救飛虎黃滾愚忠陷子孫黃明智取界牌關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b185ec86fab28d1781187838e185d340b1d47226.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b185ec86fab28d1781187838e185d340b1d47226
 
 下载BT种子 [《濤哥侃封神》「封神演義第三十三回黃飛虎泗水大戰」賈氏幽魂救飛虎黃滾愚忠陷子孫黃明智取界牌關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da2bd76b410bd24a5bda5d4bdbf25c7afb7be93d.torrent)
 
