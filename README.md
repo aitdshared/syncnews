@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FUNhJT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o85GZr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第三十三回黃飛虎泗水大戰」賈氏幽魂救飛虎黃滾愚忠陷子孫黃明智取界牌關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da2bd76b410bd24a5bda5d4bdbf25c7afb7be93d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:da2bd76b410bd24a5bda5d4bdbf25c7afb7be93d
 
 下载BT种子 [💥中國7個雷區隨時踩爆更大疫情！武漢再設300醫站，醫護回援，連5天社區感染；P4王延軼封居里夫人；NBA球星揭病毒最恐怖之處；川普撥錢五千億給國民，日期定；軍醫船開進紐約新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f8658a68b24aa9423956301a6302d54f269c021.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [加拿大國會通過美墨加貿易協議美墨祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6264fb6152d162b62b9c212282c421d9848779d2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6264fb6152d162b62b9c212282c421d9848779d2
-
-下载BT种子 [紐約州全美最多確診政府加速病患檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a49a61e5ae25e6ce3c0dff66c55dec3267000c58.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a49a61e5ae25e6ce3c0dff66c55dec3267000c58
 
 下载BT种子 [武漢肺炎中國大陸以外達6萬7千多人西班牙單日增2千多意大利確診和死亡人數最高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e104913df653b15519911d3dd3ecc2398160f4a0.torrent)
 
