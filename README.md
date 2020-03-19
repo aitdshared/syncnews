@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pnKSjZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uhHZUP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普啓動國防生產法兩艘大型海軍醫療船支援紐約.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eea1af32b9b24784a1fe9c70f6d5d0445933234d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eea1af32b9b24784a1fe9c70f6d5d0445933234d
+
+下载BT种子 [中共病毒在全球確診累計超13.6萬意大利疫情惡化臺灣女婿揭伊朗造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a7807805fcb82b6ad67d9217c6afa677dc61e7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:30a7807805fcb82b6ad67d9217c6afa677dc61e7
+
+下载BT种子 [疫情不斷升級紐約人「閉門」家中面面觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f
 
 下载BT种子 [為中共傳遞情報美國華裔導遊被判四年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2faa5f5cdb75de6c382a96760b4651f2e924cf6.torrent)
 
@@ -616,22 +628,6 @@
 下载BT种子 [🚨鄭州毒王1人害4萬人；川普接觸病毒確診者，或將檢疫，美國宣緊急狀態出大招；一個詞害慘美疾控主任；習近平武漢狙擊手瞄警察；湖北公安大抓捕，國歌成抗議曲；貴州初中開學即封校新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/500fef81a29657d8aaeb1f4eed06174a50dd82ca.torrent)
 
 磁力链接 magnet:?xt=urn:btih:500fef81a29657d8aaeb1f4eed06174a50dd82ca
-
-下载BT种子 [趙立堅「甩鍋」美軍，川普回應；疫情未消，中共為何升級對美信息戰？南華早報最新文章爆驚人內幕！發哨人文章因同樣原因被刪陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84120ec87df371dfb51f829175adb85d8049fcbf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:84120ec87df371dfb51f829175adb85d8049fcbf
-
-下载BT种子 [疫情下的一家人父絕望中自殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9b8e64c0e8f1d21d566c38a80bdeb9ef045af63.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b9b8e64c0e8f1d21d566c38a80bdeb9ef045af63
-
-下载BT种子 [【禁聞】被迫買高價低質菜孝感業主也怒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/996db1edd778c4199aedbec0399ba9767f1a944d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:996db1edd778c4199aedbec0399ba9767f1a944d
-
-下载BT种子 [《瀕死經濟》「豪門恩怨朱門恩怨達拉斯男主角拉里哈格曼」每個人都是獨一無二的一種內在的旋律融合與天弦般深沈的宇宙力量中「宇宙能量是愛超越時間永恆無盡」生命之本意—愛❤️（1303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb63f7175d38507368736324183deb9d1172cbbb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fb63f7175d38507368736324183deb9d1172cbbb
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
