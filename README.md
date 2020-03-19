@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GfgUxe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r8wTCb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [驅逐3大美媒記者，升級信息戰，中共強硬出擊轉嫁危機？國際將對中共追責與要求賠償橫河楊建利熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c918b7f5e7a1ea047526e2743792e4d080e28a28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c918b7f5e7a1ea047526e2743792e4d080e28a28
 
 下载BT种子 [狂风大火侵袭北京，天灭中共已经拉开序幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf98a42067472743a2bf417a8c78bd40c3943fd6.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【环球直击】3月14日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94c1536c6e253fb35779651eaf218c84f61457c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f94c1536c6e253fb35779651eaf218c84f61457c
-
-下载BT种子 [武漢肺炎中國大陸以外達6萬7千多人西班牙單日增2千多意大利確診和死亡人數最高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e104913df653b15519911d3dd3ecc2398160f4a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e104913df653b15519911d3dd3ecc2398160f4a0
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
