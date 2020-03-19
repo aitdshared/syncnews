@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1xP9KY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5coYVA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】任志强失联近一周友人呼吁真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2bdf8f35c56fc616464d3b62fa149cf9819906ff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2bdf8f35c56fc616464d3b62fa149cf9819906ff
 
 下载BT种子 [《石濤.News》「港媒：習近平百毒不侵蔑視14天隔離期」18日北京四周10級怪風天火四起圍京城頤和園再起倒灌潮-慈禧袁世凱毛澤東死前皆現此象（1803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c598d77a03d4e7ece3daece380cc47680c9bb115.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【全球新闻】3月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99f01e2b53696a7ea71b846d427531a3f8f573f6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:99f01e2b53696a7ea71b846d427531a3f8f573f6
-
-下载BT种子 [【中国禁闻】3月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4506bc1997fe113661a0615bb347478970333d9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4506bc1997fe113661a0615bb347478970333d9
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
