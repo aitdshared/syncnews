@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QlcuXN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sohoAY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「時間是個神-神奇的3月18日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d424697a6c3a69a4bd84e9d46910d7ff32e8fcd9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d424697a6c3a69a4bd84e9d46910d7ff32e8fcd9
 
 下载BT种子 [中共稱大陸本土新增病例首次0增長民眾發起調查希望統計疫情死亡人員名單.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c666c26106fb6613f7608573dc184b325e9a8091.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [我们应该如何祈祷？从川普的全国祈祷日说起（政论天下第133集20200314）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb0976a4fa039c5e637bc562c0b744878615c51e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eb0976a4fa039c5e637bc562c0b744878615c51e
-
-下载BT种子 [【Jason快評】爲何意大利死亡率出奇的高？其它國家可以學到什麼經驗和教訓？熱點互動03142020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e3e31b288165ca5fa4ae2c157439dec3b72775b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e3e31b288165ca5fa4ae2c157439dec3b72775b
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
