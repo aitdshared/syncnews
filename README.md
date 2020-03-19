@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/shyoEs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VZr3t0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】川普启动海军医疗船支援纽约网民群起指名“中共病毒”（3月18日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/586aaf2d750445b3979d34f42e6779918f06b99d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:586aaf2d750445b3979d34f42e6779918f06b99d
+
+下载BT种子 [川普：只要我當總統就不允許抹黑美軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6fb3e003d61a67f50d19db59d61252bef9b4058.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a6fb3e003d61a67f50d19db59d61252bef9b4058
+
+下载BT种子 [韓國正處在中共病毒爆發期間中企參與韓國電網招標引爭議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c98e138431e7e75ae19faf7e864f12f75ba30fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3c98e138431e7e75ae19faf7e864f12f75ba30fb
+
+下载BT种子 [中共病毒散播意大利單日死亡和確診新高歐洲央行警告經濟可能衰退5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c61de6bbe07a4626e5afd649c9039028b334c2bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c61de6bbe07a4626e5afd649c9039028b334c2bf
+
+下载BT种子 [人權觀察：中共逐美國記者危害人權顯示中共從未停止新聞審查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b8e767cea1cab560a47fbb831ea69eddfba7be8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3b8e767cea1cab560a47fbb831ea69eddfba7be8
 
 下载BT种子 [【环球直击】3月19日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37ee87408a1ce2f5772b9e5fd1642a8836c374a.torrent)
 
@@ -608,26 +628,6 @@
 下载BT种子 [北京甩鍋惹怒川普，美進入緊急狀態，500億抗疫會封城嗎？孝感小孩餓死十天後被發現，硚口一家「已經完了」，湖北再次封路！哈爾濱10台大巴拉人隔離！中國人怒吼「共產黨下課」！【新聞看點李沐陽03.14】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/beb93e159b5adf5f48d7f090f8333df98a600de1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:beb93e159b5adf5f48d7f090f8333df98a600de1
-
-下载BT种子 [美国紧急召见中国大使！习近平秘密扣押副主席亲信。红三代痛斥某常委.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/499f789cfcaf6a1a074d170f5ebf1ede9636a42f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:499f789cfcaf6a1a074d170f5ebf1ede9636a42f
-
-下载BT种子 [《石濤.News》「習近平⋯拯救了中國正在拯救世界」黨媒“習總-人類命運共同體的救世主”外交“栽贓美國”WHO“習總之奴僕欺騙世界”「13日武漢武勝路全家亡急診醫院拒收酒店自隔5百一天」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c1af3519092c1d0e5d9cc033a25c0d26756a13c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c1af3519092c1d0e5d9cc033a25c0d26756a13c
-
-下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0261cb02266da1917bd34be44de4c57eae9827a2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0261cb02266da1917bd34be44de4c57eae9827a2
-
-下载BT种子 [《石濤.News》「王滬寧主持”習近平⋯拯救了中國正在拯救世界“」中共國媒體“習總-人類命運共同體的救世主”外交“武漢病毒-美國亡我之心不死之最新陰謀”WHO-2000萬買入小丑-弄權欺騙世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97f50f1041d34abd18d968770e2b53ac6f8e3bac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97f50f1041d34abd18d968770e2b53ac6f8e3bac
-
-下载BT种子 [《石濤聚焦》「上週末與川普晚宴5人確診含密切接觸的巴西大使」白宮御醫緊急聲明：總統本人仍然沒有症狀目前不需要進行檢測（1403）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6eb780c72cc736980e3a4e4e2ea5482fe8ea1dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6eb780c72cc736980e3a4e4e2ea5482fe8ea1dc
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
