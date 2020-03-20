@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o41WZD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s3GsGU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [嚴陣以待大華府醫院搭棚分流病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36a00afea8d4f57357c3be1db20c243a3cfb3cdf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:36a00afea8d4f57357c3be1db20c243a3cfb3cdf
 
 下载BT种子 [黎巴嫩放人川普再次成功營救美國人質已成功營救了42名美國人質.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/664abd76b7ecc29c3dda69ba378d915e4117badc.torrent)
 
