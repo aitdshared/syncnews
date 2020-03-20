@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s3GsGU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QVwTB6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [戰時手段應對中共病毒美《國防生產法》的作用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/574d4a58acac2c548e098b840a95a880b2fd7b21.torrent)
+
+磁力链接 magnet:?xt=urn:btih:574d4a58acac2c548e098b840a95a880b2fd7b21
+
+下载BT种子 [聯合國祕書長警告：中共肺炎幾乎不可避免引發全球大衰退.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d56272202480fe14e26ba75cbbb7c6a430c2d2f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5d56272202480fe14e26ba75cbbb7c6a430c2d2f
+
+下载BT种子 [川普抗瘧藥「氯喹」或可扭轉疫情幾乎可以立即提供這一藥物.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c381ba383e184b108edfb773696f211f5427bd2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c381ba383e184b108edfb773696f211f5427bd2
+
+下载BT种子 [【中國禁聞】3月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4d623279347b2712ed47f21ae02708c5b6addc4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c4d623279347b2712ed47f21ae02708c5b6addc4
+
+下载BT种子 [地鐵乘客大減紐約客：沒看過這種景象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17addc067cb6f8e03cebcef5fc5054330c61e61a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:17addc067cb6f8e03cebcef5fc5054330c61e61a
 
 下载BT种子 [嚴陣以待大華府醫院搭棚分流病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36a00afea8d4f57357c3be1db20c243a3cfb3cdf.torrent)
 
@@ -600,22 +620,6 @@
 下载BT种子 [《石濤聚焦》「川普定今天3.15——國家禱告日祈求神保護美國」PK習總造神「紅色文化教育課」學校強推“毛澤東思想戰勝瘟神”媒體盛讚“習總具足-金三胖般的智慧”（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2088c72077f61a4ca6ea88fdd53e0664d742248.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a2088c72077f61a4ca6ea88fdd53e0664d742248
-
-下载BT种子 [《石濤聚焦》「微信：孟學農-王岐山的連襟微信被封號」王岐山‘拒絕“參加17萬人大會-公開與習總決裂「紂王逼黃飛虎反叛-商朝自滅PK習總逼王岐山決裂」（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c6bf83b83cca36fb058d0f11e0e34b800694dd2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c6bf83b83cca36fb058d0f11e0e34b800694dd2
-
-下载BT种子 [《石濤聚焦》「川普定今天3.15——國家禱告日祈求神保護美國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92e8e66b614d115a42051db986f5298afad2ec8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a92e8e66b614d115a42051db986f5298afad2ec8
-
-下载BT种子 [川普旅行禁令扩大到英国和爱尔兰，考虑限制美国国内旅行。西班牙将效法意大利封国；新冠肺炎死亡率和另外几个谜团；为什么中国可能二次爆发？（政论天下第133集第二部分20200314）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca48f6764271d14389c073e5283268c4f518a7f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ca48f6764271d14389c073e5283268c4f518a7f1
-
-下载BT种子 [《石濤.News》「紐時：昨天任志強被抓了」王岐山‘拒絕“參加17萬人大會-公開與習總決裂任大炮被抓之由「展示新衣的皇帝-實為赤身裸體的小丑」「強調信念-消滅所有不讓我當皇帝的人」（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22560891a737f39e62cb9a044dbcecbbbd0a9c28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:22560891a737f39e62cb9a044dbcecbbbd0a9c28
 
 下载BT种子 [新冠肺炎擴散全球更多國家染疫澳大利亞禁止伊朗人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69c81962794bd89da3bde89ce5a8b9bff6087a28.torrent)
 
