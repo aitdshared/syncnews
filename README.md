@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0fW8y2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UTgS53)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【严真点评】外交部大实话：美媒觉醒为“中国病毒”正名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fe8c23c55d0a69f81245172d71e3d881e00e77c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3fe8c23c55d0a69f81245172d71e3d881e00e77c
+
+下载BT种子 [【时事小品】万里投毒你最快.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9d80aee42c40ed3a40df90c28c32b8009c54a19.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9d80aee42c40ed3a40df90c28c32b8009c54a19
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十四回飛虎歸周見子牙」哪吒金磚敗韓榮乾坤圈余化筋斷骨折子牙不知飛虎緣武成王鎮國變開國「子牙從此刀兵動準備四九伐西岐」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/804bb7b7bf057cc8c7a8ad6584f4253c022f5314.torrent)
 
@@ -820,12 +828,4 @@
 下载BT种子 [【严真点评】外交部大实话新冠病毒源头是美国？一场精心策划的甩锅信息战悄然上演.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab66758004df79d01137af85df07779304946ad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fab66758004df79d01137af85df07779304946ad
-
-下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90e034614e8f5ad2bc563d0fc718fd23d8b1350f
-
-下载BT种子 [中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集20200304）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73b0dd7e21c7dda1bdb875fb4e63e754084945f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c73b0dd7e21c7dda1bdb875fb4e63e754084945f
 
