@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZG8pLB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iC8qQG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「石濤的聲音-石濤.Radio」需要時⋯淡泊之語恰似無垠臂膀直面塵世宿命⋯⋯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03fdd81d6a5ed2aa92f10b2ecd29a3fbdfc385c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:03fdd81d6a5ed2aa92f10b2ecd29a3fbdfc385c9
 
 下载BT种子 [《石濤.News》「中共病毒-武漢肺炎：共產主義百年紅潮終結篇」1917-18列寧-蘇俄PK2017-18習近平-中共「1918-20西班牙流感PK2019-20武漢肺炎-中共病毒」天滅中共！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94b05d53e4b828454678807277cffc2e7c45a8d.torrent)
 
@@ -824,8 +828,4 @@
 下载BT种子 [【严真点评】外交部大实话新冠病毒源头是美国？一场精心策划的甩锅信息战悄然上演.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab66758004df79d01137af85df07779304946ad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fab66758004df79d01137af85df07779304946ad
-
-下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90e034614e8f5ad2bc563d0fc718fd23d8b1350f
 
