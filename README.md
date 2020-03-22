@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kL7qaU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bx92BP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -533,10 +533,6 @@
 
 磁力链接 magnet:?xt=urn:btih:3b18104067b2509da6d08b34d176fd5f73df83d9
 
-下载BT种子 [《石濤聚焦》「即時突發：川普-美軍沒有把病毒帶去武漢」武漢肺炎就是「中共國病毒」中共駐孟加拉大使館依然稱「武漢病毒源自美軍」遭到臉書FB封殺（1703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddd61d443a8f453f158d67a30585d59fdd0de6d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ddd61d443a8f453f158d67a30585d59fdd0de6d0
-
 下载BT种子 [不要求隔离,英国疫情堪忧；股市大跌全球经济进入衰退？中共甩锅新花样：华人回国被起诉；.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/719517d2d6d3fac9cee4c10ab94339c44e24b88f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:719517d2d6d3fac9cee4c10ab94339c44e24b88f
@@ -828,4 +824,8 @@
 下载BT种子 [香港新華社大樓被焚燒，牆外噴字“驅逐共黨”；11月2號香港示威者維園、遮打、尖沙咀多處聚集，警水炮車驅趕抓捕，一人背部遭催淚彈炸出窟窿新聞拍案驚奇大宇.mp4](https://torrentsshare.s3.amazonaws.com/%E9%A6%99%E6%B8%AF%E6%96%B0%E8%8F%AF%E7%A4%BE%E5%A4%A7%E6%A8%93%E8%A2%AB%E7%84%9A%E7%87%92%EF%BC%8C%E7%89%86%E5%A4%96%E5%99%B4%E5%AD%97%E2%80%9C%E9%A9%85%E9%80%90%E5%85%B1%E9%BB%A8%E2%80%9D%EF%BC%9B11%E6%9C%882%E8%99%9F%E9%A6%99%E6%B8%AF%E7%A4%BA%E5%A8%81%E8%80%85%E7%B6%AD%E5%9C%92%E3%80%81%E9%81%AE%E6%89%93%E3%80%81%E5%B0%96%E6%B2%99%E5%92%80%E5%A4%9A%E8%99%95%E8%81%9A%E9%9B%86%EF%BC%8C%E8%AD%A6%E6%B0%B4%E7%82%AE%E8%BB%8A%E9%A9%85%E8%B6%95%E6%8A%93%E6%8D%95%EF%BC%8C%E4%B8%80%E4%BA%BA%E8%83%8C%E9%83%A8%E9%81%AD%E5%82%AC%E6%B7%9A%E5%BD%88%E7%82%B8%E5%87%BA%E7%AA%9F%E7%AA%BF%E6%96%B0%E8%81%9E%E6%8B%8D%E6%A1%88%E9%A9%9A%E5%A5%87%E5%A4%A7%E5%AE%87.mp4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:576e8dc2750264ef465cb2db7f0b5f1b78f48354
+
+下载BT种子 [台湾大选蔡英文成功连任！中共力推小英护台湾民主自由、抵制一国两制！港人齐撑台湾！（老北京茶馆_第226集_2020_01_11）-p9ThXUPZ1mU.mp4](https://torrentsshare.s3.amazonaws.com/%E5%8F%B0%E6%B9%BE%E5%A4%A7%E9%80%89%E8%94%A1%E8%8B%B1%E6%96%87%E6%88%90%E5%8A%9F%E8%BF%9E%E4%BB%BB%EF%BC%81%E4%B8%AD%E5%85%B1%E5%8A%9B%E6%8E%A8%E5%B0%8F%E8%8B%B1%E6%8A%A4%E5%8F%B0%E6%B9%BE%E6%B0%91%E4%B8%BB%E8%87%AA%E7%94%B1%E3%80%81%E6%8A%B5%E5%88%B6%E4%B8%80%E5%9B%BD%E4%B8%A4%E5%88%B6%EF%BC%81%E6%B8%AF%E4%BA%BA%E9%BD%90%E6%92%91%E5%8F%B0%E6%B9%BE%EF%BC%81%EF%BC%88%E8%80%81%E5%8C%97%E4%BA%AC%E8%8C%B6%E9%A6%86_%E7%AC%AC226%E9%9B%86_2020_01_11%EF%BC%89-p9ThXUPZ1mU.mp4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f174d147a4ab4e9511111d0cd2599e39c3fb6ca0
 
