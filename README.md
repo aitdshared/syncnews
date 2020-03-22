@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RePPrS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W0Vyqa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情捲土重來？居家隔離11天仍要集中隔離，國際國內追究原罪，復工復產受制歐美，習近平四大關難過！大外宣承包戶被收拾，黨員幹部「下館子」【新聞看點李沐陽】（20200321）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cdb555a699e152cb6e72c9239b4b45a2950bc8b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cdb555a699e152cb6e72c9239b4b45a2950bc8b5
 
 下载BT种子 [高盛对美国经济前景的悲观预计;中共经济恐怕更糟(政论天下第138集20200321)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a63b886710a804cab046af7b06062b97f6874972.torrent)
 
