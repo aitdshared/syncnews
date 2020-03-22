@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4IgxEb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3xnfFM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -545,10 +545,6 @@
 
 磁力链接 magnet:?xt=urn:btih:46c93b1ab34671e933c1b0bcdd092ed4dea3250d
 
-下载BT种子 [緩解疫情衝擊美國制定龐大經濟援助計劃可能向美國人發放現金補助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2085d31d6732ca7f969c1eecb5f81d76968e92e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2085d31d6732ca7f969c1eecb5f81d76968e92e2
-
 下载BT种子 [耿爽又不爽了🤭川普正面出手，直擊中共甩鍋，美集體告中共，意教堂停棺材。疫情徹底失控，海歸被隔離，海歸女泣訴「中國不是我的祖國」【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e3e0885f2815daae7fb4a2e7317f2fd63b38b9a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5e3e0885f2815daae7fb4a2e7317f2fd63b38b9a
@@ -828,4 +824,8 @@
 下载BT种子 [【严真点评】外交部大实话新冠病毒源头是美国？一场精心策划的甩锅信息战悄然上演.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab66758004df79d01137af85df07779304946ad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fab66758004df79d01137af85df07779304946ad
+
+下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:90e034614e8f5ad2bc563d0fc718fd23d8b1350f
 
