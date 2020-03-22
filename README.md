@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/v2zPDw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lMJmXW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第叄十四回飛虎歸周見子牙」哪吒金磚敗韓榮乾坤圈余化筋斷骨折子牙不知飛虎緣武成王鎮國變開國「子牙從此刀兵動準備四九伐西岐」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/804bb7b7bf057cc8c7a8ad6584f4253c022f5314.torrent)
+
+磁力链接 magnet:?xt=urn:btih:804bb7b7bf057cc8c7a8ad6584f4253c022f5314
+
+下载BT种子 [一周经济回顾：中共病毒全球传染川普推出大手笔救济政策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7edc9aac9dc28915da56ac47a4567af9a8f63a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c7edc9aac9dc28915da56ac47a4567af9a8f63a0
+
+下载BT种子 [病毒祖先有紀錄，「史詩級」戰狼碰瓷失敗；美國手握5張牌反擊，全面競爭或到來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cd72670a484d2a09b6c75ad4c06bc2ed1af2658.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5cd72670a484d2a09b6c75ad4c06bc2ed1af2658
 
 下载BT种子 [紐約州確診近8000州長限制民眾出行除必要行業外強制所有企業暫時關閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f1cb44161c894f3467e8668b9e1b1b8a396bfd1.torrent)
 
@@ -816,16 +828,4 @@
 下载BT种子 [中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集20200304）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73b0dd7e21c7dda1bdb875fb4e63e754084945f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c73b0dd7e21c7dda1bdb875fb4e63e754084945f
-
-下载BT种子 [韩国媒体大赞台湾，台湾“好想赢韩国”变身“轻松赢韩国”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0da1f057235f07f60c5cf10e044f8e2af4da9524.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0da1f057235f07f60c5cf10e044f8e2af4da9524
-
-下载BT种子 [【禁闻】中共推健康码监控疫情还是控制民众？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95b180ae1155048cf98e66c224d6d68a6e79a0b2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:95b180ae1155048cf98e66c224d6d68a6e79a0b2
-
-下载BT种子 [《石濤聚焦》「安倍國會狂咳中媒爆棚習總指令-查病毒源頭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/286f8154beefd695c15a2e9e65bccc8d44fd3871.torrent)
-
-磁力链接 magnet:?xt=urn:btih:286f8154beefd695c15a2e9e65bccc8d44fd3871
 
