@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/asJ9sW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/37vXSi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「中共病毒-武漢肺炎：共產主義百年紅潮終結篇」1917-18列寧-蘇俄PK2017-18習近平-中共「1918-20西班牙流感PK2019-20武漢肺炎-中共病毒」天滅中共！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94b05d53e4b828454678807277cffc2e7c45a8d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f94b05d53e4b828454678807277cffc2e7c45a8d
 
 下载BT种子 [《石濤聚焦》「習近平世家摯友香港陳平：召開政治局擴大會議討論習近平問題」李克強汪洋王岐山組成政治局領導小組-「過度式權力機構」全面回歸鄧小平路線打倒當代四人幫「中南海系統性反對習近平勢力巨大」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/175f2df6f66d8458d958b99b971925da239ec35f.torrent)
 
@@ -824,8 +828,4 @@
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:90e034614e8f5ad2bc563d0fc718fd23d8b1350f
-
-下载BT种子 [中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集20200304）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73b0dd7e21c7dda1bdb875fb4e63e754084945f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c73b0dd7e21c7dda1bdb875fb4e63e754084945f
 
