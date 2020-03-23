@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b0rhec)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RPqorB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】内斗激烈？倒习公开信罕见在微信流传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09dafbca91ed6cfdbe1cd1d19736f211cc2f0846.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09dafbca91ed6cfdbe1cd1d19736f211cc2f0846
 
 下载BT种子 [党内分歧公开化！崔大使明确反对那个人。习近平要抛弃某常委？美军又有两个大动作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cc5d9bbf3c87b912c427ec91bb25f553cf707bf.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [《石濤聚焦》「川普簽署《國防生產法》對抗「中國病毒」韓戰後首次」白宮臉書FB與川普同調直稱「中共國病毒」川普更聲明「完全無涉種族歧視病毒來自中國」應更早通知美國-1月3日已通知晚了？國人被騙奇深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16a664b39ca9434212e08d4760d171cbc5d478c8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:16a664b39ca9434212e08d4760d171cbc5d478c8
-
-下载BT种子 [【中國禁聞】3月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb33cde3c6d56558e29e8e54c2fc96c33aadee7e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb33cde3c6d56558e29e8e54c2fc96c33aadee7e
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
