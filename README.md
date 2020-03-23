@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c2AhLJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NAyP6l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普記者會即時愛錢者必被中共害慘」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7fa73a0248fe9656bbc8185bddd296cd1e7b450.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7fa73a0248fe9656bbc8185bddd296cd1e7b450
 
 下载BT种子 [【禁闻】海内外有共识：命名“中共病毒”最准确.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f95b6f0cdbf0a0e3b2433d8d4447d7aef351f39d.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [人民日報推特發文打臉趙立堅網民：中共企圖充當「救世主」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70e5e8215d997a0ddcc2fbc7d3562684e71adc2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c70e5e8215d997a0ddcc2fbc7d3562684e71adc2
-
-下载BT种子 [【环球直击】3月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11667f64215d0ad771a58c33d73fce5ae3520898.torrent)
-
-磁力链接 magnet:?xt=urn:btih:11667f64215d0ad771a58c33d73fce5ae3520898
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
