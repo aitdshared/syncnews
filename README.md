@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZYV9wx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pasNfX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月22日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7685163c7e02a828a8385c347426881d5bd8f7c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7685163c7e02a828a8385c347426881d5bd8f7c2
+
+下载BT种子 [【禁闻】中共急聘留学生拍视频制造假新闻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e787521fa3918a8663679afc759af99902ae634a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e787521fa3918a8663679afc759af99902ae634a
 
 下载BT种子 [政治局扩大会议罢免习近平？美律师起诉中共求偿20万亿美元；将改变中共国际环境的白宫联署正名运动（政论天下第139集20200322）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cf6d82383371708cb23e559b260f713013bcdc5.torrent)
 
@@ -524,42 +532,6 @@
 下载BT种子 [發口哨的人老北京茶館版《約在春天相見》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c77858d96154aa8776b8381d99355563bd122e6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0c77858d96154aa8776b8381d99355563bd122e6
-
-下载BT种子 [🥊見人抓人見車扣車，武漢要5天滅疫！患者跑步出院「陽壽」被篡改；美國出五千億給國民發錢！千禧代是抗疫主力；首例疫苗試種者喊棒；白宮預防術；川普叫定中國病毒；Uber梅西停業新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2089fd587ae680cbe8f78e0cc176e60358b5d067.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2089fd587ae680cbe8f78e0cc176e60358b5d067
-
-下载BT种子 [《濤哥侃封神》「封神演義第三十一回聞太師驅兵追襲」黃飛虎火龍標傷身而死周紀穿頸而亡黃天化奉師命落塵救父莫耶寶劍非銅非鐵也非金生死無常變無形（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81e2ce623e6bb3d46a788a1389c1bd2a36df02b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:81e2ce623e6bb3d46a788a1389c1bd2a36df02b6
-
-下载BT种子 [《石濤聚焦》「神奇：武漢病毒拒絕所有拋棄共產主義的國家」是否與共產黨同價值觀是關鍵：台灣與香港PK南韓義大利伊朗西班牙澳洲加國與中共鬧翻-救了自己「德國高感染低死亡-瘟神很細膩」（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99a1ea9d72574852e0b812403b7f0349feba5420.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99a1ea9d72574852e0b812403b7f0349feba5420
-
-下载BT种子 [《石濤聚焦》「川普定今天3.15——國家禱告日祈求神保護美國」PK習總造神「紅色文化教育課」學校強推“毛澤東思想戰勝瘟神”媒體盛讚“習總具足-金三胖般的智慧”（1503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2088c72077f61a4ca6ea88fdd53e0664d742248.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a2088c72077f61a4ca6ea88fdd53e0664d742248
-
-下载BT种子 [新冠肺炎擴散全球更多國家染疫澳大利亞禁止伊朗人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69c81962794bd89da3bde89ce5a8b9bff6087a28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69c81962794bd89da3bde89ce5a8b9bff6087a28
-
-下载BT种子 [我们应该如何祈祷？从川普的全国祈祷日说起（政论天下第133集第一部分20200314）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91a51f48d82f0e7094b118d8ddca27e3a7752af1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:91a51f48d82f0e7094b118d8ddca27e3a7752af1
-
-下载BT种子 [【一線採訪】官稱全入院家屬指欺下瞞上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/466533fc24e1418c90bf00c13a641c88b9a9197c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:466533fc24e1418c90bf00c13a641c88b9a9197c
-
-下载BT种子 [新冠肺炎全球蔓延海外感染近15萬人伊朗全國幾乎都被病毒攻陷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ea0580edf0983d67aa2325d42415c525eee45c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ea0580edf0983d67aa2325d42415c525eee45c3
-
-下载BT种子 [監獄疫情持續大爆發武漢在押人員確診806例被認為只是真相的冰山一角.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70596e2023027e8e6b1b7eabb5562d1678f52fc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:70596e2023027e8e6b1b7eabb5562d1678f52fc5
 
 下载BT种子 [【时事小品】可以喊了吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd51f5890bc98ec3f94f902385bf8dafc087416.torrent)
 
