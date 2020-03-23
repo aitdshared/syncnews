@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vBZT89)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2OXHef)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】共产党“控制”的不是病毒而是消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d430348c2e4e6cf7e3dae85eafaf6246059d3363.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d430348c2e4e6cf7e3dae85eafaf6246059d3363
 
 下载BT种子 [《石濤聚焦》「美媒：習近平與WHO聯手把人類推上了歷史的絕境」本可減少95%全球擴散現狀川普父子先後轉推「WHO稱讚中共國一切所為類比CCTV譴責西方社會媒體一切質疑PK中共外交部發言人」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8570dc85ed92f66b682c7408ac3e8827c378ebfc.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [《石濤.News》「港媒：習近平百毒不侵蔑視14天隔離期」18日北京四周10級怪風天火四起圍京城頤和園再起倒灌潮-慈禧袁世凱毛澤東死前皆現此象（1803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c598d77a03d4e7ece3daece380cc47680c9bb115.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c598d77a03d4e7ece3daece380cc47680c9bb115
-
-下载BT种子 [中共病毒在全球確診累計超13.6萬意大利疫情惡化臺灣女婿揭伊朗造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a7807805fcb82b6ad67d9217c6afa677dc61e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:30a7807805fcb82b6ad67d9217c6afa677dc61e7
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
