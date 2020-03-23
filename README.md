@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Kv088t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0L5J17)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【精彩回放】阿中部長盡心防疫大學生製Q版翻糖蛋糕表謝意！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b916f8b715cc80a30f6806e7e6abccec33ceaf05.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b916f8b715cc80a30f6806e7e6abccec33ceaf05
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十五回晁田兵探西岐事」聞太師聞風知勝敗嗅土定軍情「無奈黃飛虎歸西岐」晁田詐降子牙早知「生命歸屬各不同」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1326fd964143afa602107c046e62963bc3979c62.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [【环球直击】3月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7b41fab717ba91df546a3a35ecf2a3bca5932e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d7b41fab717ba91df546a3a35ecf2a3bca5932e7
-
-下载BT种子 [《石濤聚焦》「金融大海嘯無人能阻止：美股再熔斷油價跌到35年前驚呼“全美停止一切活動30天”」比爾蓋茨-關閉6周全球感染者破20萬亡8300死亡率4.5%「七定數太神奇」（1803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ab08e0b8ad10efdde88755d624db9c57b676e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40ab08e0b8ad10efdde88755d624db9c57b676e4
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
