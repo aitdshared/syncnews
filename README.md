@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1cz6JZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6T45RG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [倒習力量急動員，喊習近平下課！3+1政變模式那款適合（20200323第722期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fba3d08b66ae9417c1a389c0bda8b6ad8c6c8ae1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fba3d08b66ae9417c1a389c0bda8b6ad8c6c8ae1
 
 下载BT种子 [（大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91bbc2feae949293520461466ba8f08fab96502.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [中共病毒在全球確診累計超13.6萬意大利疫情惡化臺灣女婿揭伊朗造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a7807805fcb82b6ad67d9217c6afa677dc61e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:30a7807805fcb82b6ad67d9217c6afa677dc61e7
-
-下载BT种子 [疫情不斷升級紐約人「閉門」家中面面觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
