@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/emBZzy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mH2E6u)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情影響世界東奧會恐延期香港封關意大利總理：正面臨二戰後最大危機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e72f9bc5e1c0577b70ec4f3e8c4395d7fcd84909.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e72f9bc5e1c0577b70ec4f3e8c4395d7fcd84909
+
+下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb
+
+下载BT种子 [湖北連五天無新增病例湖北一名記者以親身經歷揭露真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed1c2ada51a811c42515056bf1fde38631ebb7db.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ed1c2ada51a811c42515056bf1fde38631ebb7db
 
 下载BT种子 [中共官方向全球散佈假消息美國會議員籲推特刪除中共官方帳號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e416ef08db6c1389201bcb7c3de34659da704666.torrent)
 
@@ -520,14 +532,6 @@
 下载BT种子 [【禁闻】阻止报导真相？中共驱逐美媒记者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d2da71ee337d3e9170ef5c759b67d963939bba4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3d2da71ee337d3e9170ef5c759b67d963939bba4
-
-下载BT种子 [【禁闻】律师：“中国防疫模式”是“治理溃败”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b91fde93321792dc74116e7ddc7684898049a48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b91fde93321792dc74116e7ddc7684898049a48
-
-下载BT种子 [【百姓自拍】昨晚北京天津狂風大作京津冀多處起火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69240580dd222dccedae47d5e65bdec0e75be5a9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69240580dd222dccedae47d5e65bdec0e75be5a9
 
 下载BT种子 [【禁闻】大陆30万狱警封闭式值班家属不满.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7459b07db4abb26c0cc1aed0f31f83c55e0540ce.torrent)
 
