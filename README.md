@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GsiRzt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l66tpB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「要求習近平擔責下台建議書轉發者陳平回覆：建議信‘溫和理性’這樣下去肯定不太好辦」與習相識40年與王岐山任志強很熟「很多人特別體制內的都這樣想」任志强的批评文章尖锐深刻（2303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2c9ba8b081dc3166dac3e5a5d3addf9a9f2982b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f2c9ba8b081dc3166dac3e5a5d3addf9a9f2982b
 
 下载BT种子 [【环球直击】3月23日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee57b43f9964a42b87277e2575c0fafe3796f637.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [习近平警告副主席：不得插手！党媒强求各国学中国模式。马云遭夹攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a084b0f7edd16fc7e2c174ccbc044d1f8cca198.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7a084b0f7edd16fc7e2c174ccbc044d1f8cca198
-
-下载BT种子 [【禁闻】驳斥中共说法川普称“中国病毒”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9627131c48dc728f7068737583fc0973128cb7b3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9627131c48dc728f7068737583fc0973128cb7b3
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
