@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zRrCbp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1cz6JZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [（大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91bbc2feae949293520461466ba8f08fab96502.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b91bbc2feae949293520461466ba8f08fab96502
 
 下载BT种子 [參加一帶一路武漢姊妹城德國疫情嚴重累計2萬1463人確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfe46979a9e54b38cef028887cf8ad51133d8738.torrent)
 
@@ -528,22 +532,6 @@
 下载BT种子 [疫情不斷升級紐約人「閉門」家中面面觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8c4e0d5aa2be50a69a43cfc0be8e2c910d3fd28f
-
-下载BT种子 [為中共傳遞情報美國華裔導遊被判四年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2faa5f5cdb75de6c382a96760b4651f2e924cf6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d2faa5f5cdb75de6c382a96760b4651f2e924cf6
-
-下载BT种子 [【微视频】美国应对武汉肺炎经济政策背后的逻辑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e0ec2ca52325d82cc4957983325ca7622933ac9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e0ec2ca52325d82cc4957983325ca7622933ac9
-
-下载BT种子 [中共驱逐美国记者，川普偷着乐；欧美“佛系”vs大国铁腕，怎么个比法（20200318第720期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b13de82a66ec53f7cafbbb8a388174fbd9f4f047.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b13de82a66ec53f7cafbbb8a388174fbd9f4f047
-
-下载BT种子 [习近平警告副主席：不得插手！党媒强求各国学中国模式。马云遭夹攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a084b0f7edd16fc7e2c174ccbc044d1f8cca198.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a084b0f7edd16fc7e2c174ccbc044d1f8cca198
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
