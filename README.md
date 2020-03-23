@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/boRo6T)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9by0KO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4be869949e662b1b6147261cd38051278773a18.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4be869949e662b1b6147261cd38051278773a18
 
 下载BT种子 [中国经济进入至暗时刻，“大不了学习朝鲜”的说法根本行不通.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe131a4461709208a78b94fbbc6eb67d9c92bd6e.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [《石濤聚焦》「川普怒了晨推三呼‘中共國病毒’」習總推鐘南山再無名反抗「沒有證據是科學問題」川普硬懟「中共國病毒的說法是準確的」美國生路—川普直接公開指證「習近平-中共是本次人類災難的最大元兇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23946574fef97b04549967b553042b3d8209faa7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:23946574fef97b04549967b553042b3d8209faa7
-
-下载BT种子 [武漢疫情衝擊國際經濟全球化趨勢或出現分水嶺加速供應鏈位移.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b273f4aaf740888da49a57dc4fae182af813a53.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0b273f4aaf740888da49a57dc4fae182af813a53
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
