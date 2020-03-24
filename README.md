@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GfS0Rl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8T5Cb6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共病毒實錘！美國再辱華！大數據探微：中共病毒到底卷走多少武漢人？（老北京茶館第272集20200323）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6695a208d06285d9d1917f14fc43c964d8cfd2e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d6695a208d06285d9d1917f14fc43c964d8cfd2e
 
 下载BT种子 [（獨家深度分析）絕非癡人說夢：歐美不開工，高端生產鏈來中國；全球股災，資本流向中國；論全球危機下的中共頂層設計，中共的邪惡與世界的無奈(江峰漫談20200323第142期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c2b504473f2d0439731fdbe76dff935381f2265.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [《石濤.News》「時間是個神-神奇的3月18日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d424697a6c3a69a4bd84e9d46910d7ff32e8fcd9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d424697a6c3a69a4bd84e9d46910d7ff32e8fcd9
-
-下载BT种子 [中共稱大陸本土新增病例首次0增長民眾發起調查希望統計疫情死亡人員名單.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c666c26106fb6613f7608573dc184b325e9a8091.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c666c26106fb6613f7608573dc184b325e9a8091
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
