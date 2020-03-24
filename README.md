@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1f4cMg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7321s9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蓬佩奧列五大事實駁斥伊朗誣衊「中共病毒」為美國製造.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/667209f3feea71e616d345c0580d051917af9b5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:667209f3feea71e616d345c0580d051917af9b5e
+
+下载BT种子 [香港議員要求拆除青關會的條幅保護法輪功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81e1c89b7e097a6f0eeda462095685852b8862bb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:81e1c89b7e097a6f0eeda462095685852b8862bb
+
+下载BT种子 [中共病毒侵害歐洲東京奧運延後一年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6e7f7304dc10aaa10b93466bed1dd501a91f783.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b6e7f7304dc10aaa10b93466bed1dd501a91f783
 
 下载BT种子 [歐洲病毒學家揭中共病毒六大特點完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7882ff76870fc83d6218bd1a89ed740a107ae34d.torrent)
 
@@ -512,14 +524,6 @@
 下载BT种子 [地鐵乘客大減紐約客：沒看過這種景象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17addc067cb6f8e03cebcef5fc5054330c61e61a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:17addc067cb6f8e03cebcef5fc5054330c61e61a
-
-下载BT种子 [嚴陣以待大華府醫院搭棚分流病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36a00afea8d4f57357c3be1db20c243a3cfb3cdf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:36a00afea8d4f57357c3be1db20c243a3cfb3cdf
-
-下载BT种子 [黎巴嫩放人川普再次成功營救美國人質已成功營救了42名美國人質.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/664abd76b7ecc29c3dda69ba378d915e4117badc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:664abd76b7ecc29c3dda69ba378d915e4117badc
 
 下载BT种子 [【禁闻】路透曝光中共武警曾监视反送中前线.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfa9800b85bff503982c3cbdcd20909214106064.torrent)
 
