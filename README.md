@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pef73v)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/J4U6HZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】强制复工遇外贸订单取消陆企纷关门.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e42f9081c201fbf18d153a9da5bfd2c441da9f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e42f9081c201fbf18d153a9da5bfd2c441da9f7
 
 下载BT种子 [【禁闻】疫情加速粮食危机大陆多地砍树种粮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/341eae189eaadef224d0c1e8166507cfd484d522.torrent)
 
@@ -536,10 +540,6 @@
 下载BT种子 [【禁闻】3月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f54820f9e30a91a8cbc8c461bed77c5fb4685b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6f54820f9e30a91a8cbc8c461bed77c5fb4685b6
-
-下载BT种子 [【中國禁聞】3月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4d623279347b2712ed47f21ae02708c5b6addc4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c4d623279347b2712ed47f21ae02708c5b6addc4
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
