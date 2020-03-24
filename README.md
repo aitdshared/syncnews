@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/akhKll)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OW6j11)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約「非基本企業」關門直擊法拉盛現況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fdeef3d1202ca35d52dd3f46e35c093d2bf5790.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2fdeef3d1202ca35d52dd3f46e35c093d2bf5790
+
+下载BT种子 [【禁闻】中共“黑锅”乱甩美国遇阻再换意大利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5817cbdde260cc40178ded473250ba05aaa2a7af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5817cbdde260cc40178ded473250ba05aaa2a7af
 
 下载BT种子 [中共病毒衝擊波英國旅遊小鎮上演空城計.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b279f70cbb84d63a3e4a62ac8c79df2e02b17a6.torrent)
 
@@ -524,14 +532,6 @@
 下载BT种子 [狂风大火侵袭北京，天灭中共已经拉开序幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf98a42067472743a2bf417a8c78bd40c3943fd6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cf98a42067472743a2bf417a8c78bd40c3943fd6
-
-下载BT种子 [《濤哥侃封神》「封神演義第三十二回黃天化潼關會父」五道玄功妙莫量隨風化氣涉滄茫須臾歷遍閻浮世頃刻遨游泰岳邙「賈氏幽魂救飛虎黃滾愚忠陷子孫黃明智取界牌關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b185ec86fab28d1781187838e185d340b1d47226.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b185ec86fab28d1781187838e185d340b1d47226
-
-下载BT种子 [《濤哥侃封神》「封神演義第三十三回黃飛虎泗水大戰」賈氏幽魂救飛虎黃滾愚忠陷子孫黃明智取界牌關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da2bd76b410bd24a5bda5d4bdbf25c7afb7be93d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da2bd76b410bd24a5bda5d4bdbf25c7afb7be93d
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
