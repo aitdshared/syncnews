@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UK2hzE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TzUSjh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [青壯年男性確診多紐約禁止公園人群聚集.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9be71e37c70e0a94b939e996cd4166b1e6ded013.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9be71e37c70e0a94b939e996cd4166b1e6ded013
+
+下载BT种子 [川普呼籲保護美國亞裔不是他們的錯打擊囤物和欺詐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ddbd160e660b97fc2497aab2a48bc5657a26e22.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2ddbd160e660b97fc2497aab2a48bc5657a26e22
 
 下载BT种子 [《石濤聚焦》「習總鐵腕清零復工瘟神再出手-最致命鼠疫-出血熱3小時亡」雲南往山東復工者33人大客途徑陝西宁陕4人狀況1人死亡「漢他病毒-流行性出血热最致命4級病毒死亡率40-50%」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b180c437d1b7a12e5b97ab2a5ffbd4c2e6cf32.torrent)
 
@@ -508,14 +516,6 @@
 下载BT种子 [【禁闻】3月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f54820f9e30a91a8cbc8c461bed77c5fb4685b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6f54820f9e30a91a8cbc8c461bed77c5fb4685b6
-
-下载BT种子 [戰時手段應對中共病毒美《國防生產法》的作用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/574d4a58acac2c548e098b840a95a880b2fd7b21.torrent)
-
-磁力链接 magnet:?xt=urn:btih:574d4a58acac2c548e098b840a95a880b2fd7b21
-
-下载BT种子 [川普抗瘧藥「氯喹」或可扭轉疫情幾乎可以立即提供這一藥物.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c381ba383e184b108edfb773696f211f5427bd2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c381ba383e184b108edfb773696f211f5427bd2
 
 下载BT种子 [【中國禁聞】3月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4d623279347b2712ed47f21ae02708c5b6addc4.torrent)
 
