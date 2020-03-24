@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EFtNYq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8UI2fO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢疫情「政治清零」，造假大騙局；中國隱藏4.3萬確診病人；中共病毒栽贓意大利，露出馬腳（2020.3.24）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3431113b98498786a8dadd481abbbeb9e1c9c725.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3431113b98498786a8dadd481abbbeb9e1c9c725
+
+下载BT种子 [【环球直击】3月24日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8a8d83101c0e928b3a16d1aaacd09783384c3fe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c8a8d83101c0e928b3a16d1aaacd09783384c3fe
 
 下载BT种子 [🆘三峽大壩再現崩潰徵兆！武漢又在風險區；病毒蔓延下，紅二代造反！發「檄文」劍指習近平，王岐山是幕後？中國問題根源是什麼；紹興隔離點如監獄；紀念721八個月，女子被港警搜身時亂摸新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d8bcbb7e30a1b7dcf531a42c4354fd0291795ab.torrent)
 
@@ -524,14 +532,6 @@
 下载BT种子 [《石濤聚焦》「中共病毒🦠偏愛親共者」全球24萬死亡破萬義大利死亡超3400成最多美擴散太快達1.1萬亡160最嚴重州皆親共英法死亡徒增40%以色列禁足外出豐田關閉北美廠蘋果手機限購.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95e9ded4d730137ede7dfa1ea76fb63c4c3daeb1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:95e9ded4d730137ede7dfa1ea76fb63c4c3daeb1
-
-下载BT种子 [【禁闻】武汉疫情危险讯号再现民众已悲观疲劳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3003e9e04cd030892494939b1c4cfc37228ae1a4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3003e9e04cd030892494939b1c4cfc37228ae1a4
-
-下载BT种子 [意大利亡数超中国？各国必须索赔！美军三大主力集结南海。特朗普发出暗示.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db4b2886692e5f9bd6674a99fabba1d2ba42d271.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db4b2886692e5f9bd6674a99fabba1d2ba42d271
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
