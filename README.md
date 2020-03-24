@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cblSsJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7a6SBs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [受中共肺炎疫情的影響加拿大和澳洲退出東京奧運籲推遲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8ebe0dc6a976c7c59d42f39a544ad52fa4cd161.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8ebe0dc6a976c7c59d42f39a544ad52fa4cd161
+
+下载BT种子 [中共肺炎疫情下美政府提醒民眾警惕假信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f65c57ccc15210d500666b5e56b68fb9564a2310.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f65c57ccc15210d500666b5e56b68fb9564a2310
+
+下载BT种子 [中共病毒防護五要點情緒影響免疫力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b61dffbb174abff3faa458e057da7ed962f9f6ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b61dffbb174abff3faa458e057da7ed962f9f6ef
+
+下载BT种子 [美聯儲「無限量寬」救市財長促助小企業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a80bb656b129a5c121e882d94130d004dc7b3e72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a80bb656b129a5c121e882d94130d004dc7b3e72
 
 下载BT种子 [紐約「非基本企業」關門直擊法拉盛現況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fdeef3d1202ca35d52dd3f46e35c093d2bf5790.torrent)
 
@@ -516,22 +532,6 @@
 下载BT种子 [中共病毒散播意大利單日死亡和確診新高歐洲央行警告經濟可能衰退5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c61de6bbe07a4626e5afd649c9039028b334c2bf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c61de6bbe07a4626e5afd649c9039028b334c2bf
-
-下载BT种子 [人權觀察：中共逐美國記者危害人權顯示中共從未停止新聞審查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b8e767cea1cab560a47fbb831ea69eddfba7be8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b8e767cea1cab560a47fbb831ea69eddfba7be8
-
-下载BT种子 [【环球直击】3月19日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37ee87408a1ce2f5772b9e5fd1642a8836c374a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f37ee87408a1ce2f5772b9e5fd1642a8836c374a
-
-下载BT种子 [驅逐3大美媒記者，升級信息戰，中共強硬出擊轉嫁危機？國際將對中共追責與要求賠償橫河楊建利熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c918b7f5e7a1ea047526e2743792e4d080e28a28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c918b7f5e7a1ea047526e2743792e4d080e28a28
-
-下载BT种子 [狂风大火侵袭北京，天灭中共已经拉开序幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf98a42067472743a2bf417a8c78bd40c3943fd6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf98a42067472743a2bf417a8c78bd40c3943fd6
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
