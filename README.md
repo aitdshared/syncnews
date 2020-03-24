@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7a6SBs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GT0k2Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】3月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8de0fadb25434f2c22ac17c0c0ef203875b419d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8de0fadb25434f2c22ac17c0c0ef203875b419d2
+
+下载BT种子 [川普对习近平表示失望；战狼赵立坚再撕咬，武汗市民梁旭光起诉美国政府；华邮说：中美经济这些方面应该脱钩（政论天下第140集20200323）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c228cbe738c215785449e864490a2c92598b61c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4c228cbe738c215785449e864490a2c92598b61c
+
+下载BT种子 [【禁闻】病毒冲击严重伊朗与中共关系一览.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0de51f6f4d15896108e5e3c649975dc0bfca18c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c0de51f6f4d15896108e5e3c649975dc0bfca18c
 
 下载BT种子 [受中共肺炎疫情的影響加拿大和澳洲退出東京奧運籲推遲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8ebe0dc6a976c7c59d42f39a544ad52fa4cd161.torrent)
 
@@ -520,18 +532,6 @@
 下载BT种子 [【全球新闻】川普启动海军医疗船支援纽约网民群起指名“中共病毒”（3月18日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/586aaf2d750445b3979d34f42e6779918f06b99d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:586aaf2d750445b3979d34f42e6779918f06b99d
-
-下载BT种子 [川普：只要我當總統就不允許抹黑美軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6fb3e003d61a67f50d19db59d61252bef9b4058.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a6fb3e003d61a67f50d19db59d61252bef9b4058
-
-下载BT种子 [韓國正處在中共病毒爆發期間中企參與韓國電網招標引爭議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c98e138431e7e75ae19faf7e864f12f75ba30fb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3c98e138431e7e75ae19faf7e864f12f75ba30fb
-
-下载BT种子 [中共病毒散播意大利單日死亡和確診新高歐洲央行警告經濟可能衰退5%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c61de6bbe07a4626e5afd649c9039028b334c2bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c61de6bbe07a4626e5afd649c9039028b334c2bf
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
