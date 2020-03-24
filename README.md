@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u9ifXg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/33RliY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情衝擊下大陸多地商戶上街要求減租此起彼伏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dbb9f89d61f62e615d7e5d7501fb3aae5c5494.torrent)
+
+磁力链接 magnet:?xt=urn:btih:53dbb9f89d61f62e615d7e5d7501fb3aae5c5494
+
+下载BT种子 [遼寧粥店巨大橫幅“祝美日爆發疫情”網友批：泯滅人性迎合什麼樣的顧客.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f395262b1f6a992c011f58b0b3651632ce6088e9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f395262b1f6a992c011f58b0b3651632ce6088e9
+
+下载BT种子 [美參議員：成立特別工作組對抗中共疫情大外宣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f024bb3118bdcbf340b9f2f8be2ba280e4c81904.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f024bb3118bdcbf340b9f2f8be2ba280e4c81904
 
 下载BT种子 [青壯年男性確診多紐約禁止公園人群聚集.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9be71e37c70e0a94b939e996cd4166b1e6ded013.torrent)
 
@@ -521,21 +533,9 @@
 
 磁力链接 magnet:?xt=urn:btih:c4d623279347b2712ed47f21ae02708c5b6addc4
 
-下载BT种子 [地鐵乘客大減紐約客：沒看過這種景象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17addc067cb6f8e03cebcef5fc5054330c61e61a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:17addc067cb6f8e03cebcef5fc5054330c61e61a
-
-下载BT种子 [【禁闻】路透曝光中共武警曾监视反送中前线.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfa9800b85bff503982c3cbdcd20909214106064.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfa9800b85bff503982c3cbdcd20909214106064
-
 下载BT种子 [意大利数字超中国？各国须索赔！特朗普暗示或有所行动。美军三大主力集结南海.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1163d863d9ffd86f99ed6967f848cd2b8e423e95.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1163d863d9ffd86f99ed6967f848cd2b8e423e95
-
-下载BT种子 [武漢「雙清零」習催促復工，疫情好了嗎？小湯山啟用，亮馬河飯店被徵用，川普首批北京隱瞞疫情，趙立堅沒音了？12級「妖風」狂，京城四周爆炸起火，昆明湖又漲潮了，要改朝換代？【新聞看點李沐陽03.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e9c3618b05f9d5939f4f2b73d7d84ce4bd37d62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8e9c3618b05f9d5939f4f2b73d7d84ce4bd37d62
 
 下载BT种子 [《石濤聚焦》「中共病毒🦠偏愛親共者」全球24萬死亡破萬義大利死亡超3400成最多美擴散太快達1.1萬亡160最嚴重州皆親共英法死亡徒增40%以色列禁足外出豐田關閉北美廠蘋果手機限購.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95e9ded4d730137ede7dfa1ea76fb63c4c3daeb1.torrent)
 
