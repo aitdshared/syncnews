@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Dqk6EH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lza7Dh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】监狱隔离点怪象几百无名氏检测数千次.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7d55676d1321bfcbf2b517341e552e5eac7f13e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c7d55676d1321bfcbf2b517341e552e5eac7f13e
+
+下载BT种子 [準確數字：中國手機用戶2月份減少1945万！人去哪兒了？（20200324第723期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/255ae91eac25e072a6dc107e79c05b065c20a67f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:255ae91eac25e072a6dc107e79c05b065c20a67f
 
 下载BT种子 [局势微妙！国内媒体大赞习近平近期的两个对头。美中发言人互呛，谁在耍宝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27ed80aa4464df9d2899c9c66d7100f756404f1f.torrent)
 
@@ -364,10 +372,6 @@
 下载BT种子 [紐約市確診超6000州府援助百萬N95口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24263b9f1543161beadf5b61d09466ef404ee289.torrent)
 
 磁力链接 magnet:?xt=urn:btih:24263b9f1543161beadf5b61d09466ef404ee289
-
-下载BT种子 [【禁闻】巴西总统之子：瘟疫带着一个名字“中国共产党”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39b63f70c5a048a0599a0d4f264262f18b2bbc20.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39b63f70c5a048a0599a0d4f264262f18b2bbc20
 
 下载BT种子 [遏制病毒傳播美國墨西哥將關閉邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5bec223a63939caf88244d8e2ffaaa0fd4faf18c.torrent)
 
