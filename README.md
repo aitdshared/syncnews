@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mc966j)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZUBFjY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國經濟是否將陷入衰退專家﹕能否讓企業儘快恢復運作是關鍵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fadbfeaf1794264ad4d3f695ed0d0a3221342cf7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fadbfeaf1794264ad4d3f695ed0d0a3221342cf7
+
+下载BT种子 [美國加大病毒檢測力度全國累計5萬多例川普希望美國復活節前解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ecf5657f319437f3728676850f51fb4ab555815.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ecf5657f319437f3728676850f51fb4ab555815
+
+下载BT种子 [最新研究發現華氏80度以上可殺病毒共用自助洗衣機仍安全.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cffe089dde59548c351640ce8a3025047a68570.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cffe089dde59548c351640ce8a3025047a68570
 
 下载BT种子 [【禁闻】3月24日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1444b612f14d6ead495a6b4677e9521e8449cb5c.torrent)
 
@@ -409,10 +421,6 @@
 
 磁力链接 magnet:?xt=urn:btih:eef97777abc05c683f9ed16c60c1a181017ee65d
 
-下载BT种子 [中共病毒國際傳播意大利死亡人數破3400西班牙單日新增235死亡病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05f51ccdb1f3fca4734c027510948c63a48b849a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:05f51ccdb1f3fca4734c027510948c63a48b849a
-
 下载BT种子 [中共肺炎擴散160多國意大利單日627人亡為最多的一天西班牙累計確診達2萬5千多例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/906a2dce2ab4b71ca1b4237bdd7f21036b255b5d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:906a2dce2ab4b71ca1b4237bdd7f21036b255b5d
@@ -420,10 +428,6 @@
 下载BT种子 [【禁闻】李文亮调查报告避重就轻民忧悲剧重演.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f57d4c9f9cc2640e1ffceef021a05795f199b094.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f57d4c9f9cc2640e1ffceef021a05795f199b094
-
-下载BT种子 [疫情急升歐洲多國實施全國封閉政策中国以外將近20萬人感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20fc4762495a777f6575dab6ae91a7b70948fec7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20fc4762495a777f6575dab6ae91a7b70948fec7
 
 下载BT种子 [【解讀】囤糧了沒？蟲害、病毒爭奪糧食；中共病毒，越親近越受害；台灣如何對抗紅色媒體？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/754b1f73a4dffc923ae7ad7cff0d86e303610e90.torrent)
 
@@ -512,10 +516,6 @@
 下载BT种子 [中共宣傳戰勝利？垮台風險在即；返回中國隔離，竟跳樓輕生；如何應對網軍、小粉紅？（2020.3.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce39f3d0c5621e8da1e7a25f66cefa89701160d6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ce39f3d0c5621e8da1e7a25f66cefa89701160d6
-
-下载BT种子 [不信中共「零確診」港律師揭逐外媒原因中共對人類造成極大的傷害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d30d235ff155e68e059bd945784234c09568920.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7d30d235ff155e68e059bd945784234c09568920
 
 下载BT种子 [大紀元獨家取得文件中共官方隱報確診數據僅一天新增病例比官方數據至少多出22倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d82a850d7ef3a75df76a92250ff0ec7b8ccf0e9f.torrent)
 
