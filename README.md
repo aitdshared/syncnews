@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cvo2JW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MoHD80)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [㊙️至少4萬無症！政府醫院官媒拒確診，聯手保零；健康證10元一份；病毒來自太空？湖北解封，武漢或4.8，兩會4.18？會前先隔離；復工卻失業；供銷合作社全面回歸；中國真在查兵源新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a51f0cf895bec136da2d1e078e850bc67c6db989.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a51f0cf895bec136da2d1e078e850bc67c6db989
+
+下载BT种子 [习近平行路将尽，当下中共权斗解析，不想斗都不行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01219db1e550be07f942e95c5b16a4c17485c02a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:01219db1e550be07f942e95c5b16a4c17485c02a
 
 下载BT种子 [东京奥运会推迟一年;武汗4月8日解封;美国计划复活节恢复正常;美好时光在四月降临(政论天下第141集20200324)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ab09c65b14a778ef82bef39f5a900b601416240.torrent)
 
@@ -485,10 +493,6 @@
 
 磁力链接 magnet:?xt=urn:btih:f430d1cfcb9c039d1ea842249dcbbc56a9d102e0
 
-下载BT种子 [【禁闻】中国本土连日零新增？网民和医生曝光实情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93c6e19233dabb874290073547297954ee9a0b67.torrent)
-
-磁力链接 magnet:?xt=urn:btih:93c6e19233dabb874290073547297954ee9a0b67
-
 下载BT种子 [疫情捲土重來？居家隔離11天仍要集中隔離，國際國內追究原罪，復工復產受制歐美，習近平四大關難過！大外宣承包戶被收拾，黨員幹部「下館子」【新聞看點李沐陽】（20200321）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cdb555a699e152cb6e72c9239b4b45a2950bc8b5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cdb555a699e152cb6e72c9239b4b45a2950bc8b5
@@ -560,10 +564,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第叄十叄回黃飛虎泗水大戰」余化“戮魂幡”黃家眾將插翅也難逃「總然天意安排定說到封神淚滿襟」終將余化成畫餅莫用心機空自勞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab03cf5144d5877141f07f1a2345e7b4e648b420.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ab03cf5144d5877141f07f1a2345e7b4e648b420
-
-下载BT种子 [【禁闻】肺炎疫情难控西班牙与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8a35c478881e457386a04c1f11c02b3297ed25c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e8a35c478881e457386a04c1f11c02b3297ed25c
 
 下载BT种子 [【禁闻】3月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f54820f9e30a91a8cbc8c461bed77c5fb4685b6.torrent)
 
