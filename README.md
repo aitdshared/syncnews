@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gxhXIi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wSMjhg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共肺炎三大谜团疫情疫苗股票.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddebab88eb830c32a9a7eac1f6d415ff485dedcf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ddebab88eb830c32a9a7eac1f6d415ff485dedcf
+
+下载BT种子 [紐約三週後如何？美中抗疫的不同，西方該向中共「抄作業」？「零蛋」碎武漢能解封？兩會日期已定？學者7問無人敢應，「出血熱」來了，趙立堅甩鍋代表誰？【新聞看點李沐陽03.21】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7c6536d5d0c688cbffee74039bb4e8090a1f1c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7c6536d5d0c688cbffee74039bb4e8090a1f1c5
 
 下载BT种子 [【禁闻】监狱隔离点怪象几百无名氏检测数千次.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7d55676d1321bfcbf2b517341e552e5eac7f13e.torrent)
 
