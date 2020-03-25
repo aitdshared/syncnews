@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DpDZtT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uxhVhh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國國會欲向中共索賠，怎麼賠？彭培奧談將有重大決定，暗示什麼（20200325第724期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cba6ad97c09e9e41e124091527d412afb876325.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2cba6ad97c09e9e41e124091527d412afb876325
+
+下载BT种子 [【禁闻】捷克买中国检测盒准确率不及抛硬币.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ea190d5aefd9092390ef8818ec0f0d656c1fb9b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3ea190d5aefd9092390ef8818ec0f0d656c1fb9b
 
 下载BT种子 [美国决议案：索赔！李克强高呼不得瞒报。习近平恨上一个人。胡公子三度受阻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23226adf9b41d9a60096ec7339c3f1f660ef8aa8.torrent)
 
@@ -533,10 +541,6 @@
 
 磁力链接 magnet:?xt=urn:btih:eef97777abc05c683f9ed16c60c1a181017ee65d
 
-下载BT种子 [《华邮》“首义”一鸣惊人，直怼中共要害部位！世界离大萧条有多远？（20200320第721期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2de137dc61df912384b0b47dd2a2223d5cfe649.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c2de137dc61df912384b0b47dd2a2223d5cfe649
-
 下载BT种子 [【环球直击】3月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c6e80bc9131a8babcba229da3fe9b3c62636b47.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9c6e80bc9131a8babcba229da3fe9b3c62636b47
@@ -580,10 +584,6 @@
 下载BT种子 [谁信！这个国家超过中国？诺奖作家有话说。美国大军挺进敏感海域.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e81d865df604a62d5822c62953d358ef069c3f60.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e81d865df604a62d5822c62953d358ef069c3f60
-
-下载BT种子 [《濤哥侃封神》「封神演義第叄十叄回黃飛虎泗水大戰」余化“戮魂幡”黃家眾將插翅也難逃「總然天意安排定說到封神淚滿襟」終將余化成畫餅莫用心機空自勞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab03cf5144d5877141f07f1a2345e7b4e648b420.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ab03cf5144d5877141f07f1a2345e7b4e648b420
 
 下载BT种子 [【禁闻】3月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f54820f9e30a91a8cbc8c461bed77c5fb4685b6.torrent)
 
