@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZUBFjY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kILyXg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [崔天凱趙立堅唱雙簧？馬列教授千里散送大禮！瀋陽慶祝美國形勢失控！紐約分得親共紅利！（老北京茶館第273集20200324）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/294973dd32326b3d640e35e999344d1d85806b8b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:294973dd32326b3d640e35e999344d1d85806b8b
 
 下载BT种子 [美國經濟是否將陷入衰退專家﹕能否讓企業儘快恢復運作是關鍵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fadbfeaf1794264ad4d3f695ed0d0a3221342cf7.torrent)
 
