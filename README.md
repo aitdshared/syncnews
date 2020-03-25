@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dTmOY8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xrxOuP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月25日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e26ae43950b0a0fff97cbd11bc9e42d1d3f51c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e26ae43950b0a0fff97cbd11bc9e42d1d3f51c2
 
 下载BT种子 [武漢解封，李克強暗示疫情再起？關鍵三招，有效控制疫情；美國主流媒體向中共叩頭？（2020.3.25）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f745c9f4a330be73c4e634359d7a70a33b0bf662.torrent)
 
@@ -472,10 +476,6 @@
 下载BT种子 [美國參議院公布救助計劃價值上萬億美元的經濟救助提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eef97777abc05c683f9ed16c60c1a181017ee65d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eef97777abc05c683f9ed16c60c1a181017ee65d
-
-下载BT种子 [【解讀】囤糧了沒？蟲害、病毒爭奪糧食；中共病毒，越親近越受害；台灣如何對抗紅色媒體？｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/754b1f73a4dffc923ae7ad7cff0d86e303610e90.torrent)
-
-磁力链接 magnet:?xt=urn:btih:754b1f73a4dffc923ae7ad7cff0d86e303610e90
 
 下载BT种子 [《石濤聚焦》「東京奧運會聖火火種🔥-熄滅宙斯赫拉不給憤怒？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54b863c5ba1bf4872dc8296d68fc491d11a6fa56.torrent)
 
