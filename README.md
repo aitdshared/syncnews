@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PABgRI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KiR8Mz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月24日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1444b612f14d6ead495a6b4677e9521e8449cb5c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1444b612f14d6ead495a6b4677e9521e8449cb5c
+
+下载BT种子 [【禁闻】荷官员：听信中共和世卫欧洲沦重灾区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ded58ab9f9eba3a8003a5ddbcc87015796adf3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f7ded58ab9f9eba3a8003a5ddbcc87015796adf3
 
 下载BT种子 [【禁闻】3月24日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/813a41cc6d1e2ec1cd1f49dd1abba7fbaf6aed2c.torrent)
 
@@ -413,10 +421,6 @@
 
 磁力链接 magnet:?xt=urn:btih:f57d4c9f9cc2640e1ffceef021a05795f199b094
 
-下载BT种子 [白宮疫情每日發佈會20日單日測試量19萬5千.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f249ecffc7a6859879aaf8ee3e068cbc40f8eb6e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f249ecffc7a6859879aaf8ee3e068cbc40f8eb6e
-
 下载BT种子 [疫情急升歐洲多國實施全國封閉政策中国以外將近20萬人感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20fc4762495a777f6575dab6ae91a7b70948fec7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:20fc4762495a777f6575dab6ae91a7b70948fec7
@@ -540,10 +544,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第叄十叄回黃飛虎泗水大戰」余化“戮魂幡”黃家眾將插翅也難逃「總然天意安排定說到封神淚滿襟」終將余化成畫餅莫用心機空自勞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab03cf5144d5877141f07f1a2345e7b4e648b420.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ab03cf5144d5877141f07f1a2345e7b4e648b420
-
-下载BT种子 [【禁闻】李文亮调查报告再次激起民愤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3f21c18c18f27602a7cc4895dfb6861b67fb1eb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c3f21c18c18f27602a7cc4895dfb6861b67fb1eb
 
 下载BT种子 [【禁闻】肺炎疫情难控西班牙与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8a35c478881e457386a04c1f11c02b3297ed25c.torrent)
 
