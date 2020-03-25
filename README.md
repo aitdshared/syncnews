@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZleRgW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KU0qua)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -532,10 +532,6 @@
 下载BT种子 [《华邮》“首义”一鸣惊人，直怼中共要害部位！世界离大萧条有多远？（20200320第721期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2de137dc61df912384b0b47dd2a2223d5cfe649.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c2de137dc61df912384b0b47dd2a2223d5cfe649
-
-下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23765fc1d280b6d42bd6caf75a1e204f4edd0197.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23765fc1d280b6d42bd6caf75a1e204f4edd0197
 
 下载BT种子 [【环球直击】3月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c6e80bc9131a8babcba229da3fe9b3c62636b47.torrent)
 
