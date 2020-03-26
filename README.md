@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kFgiG0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k3lX7R)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e350fafe85b856336ee302f2d65f3bb849761ae3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e350fafe85b856336ee302f2d65f3bb849761ae3
 
 下载BT种子 [【全球新闻】3月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a96c4cf8a7d4927f0bb27fb0edf8069ab6fe0308.torrent)
 
@@ -564,10 +568,6 @@
 下载BT种子 [美國CDC旅行警告最高級：請勿出國並敦促滯留海外的美國人立即回國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dbdd8cfd0fd3586cfcff76f99d61c8d7633d8d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2dbdd8cfd0fd3586cfcff76f99d61c8d7633d8d0
-
-下载BT种子 [【环球直击】3月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad0f9dd1210764f04a313fcea97d5c818cbffaa5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad0f9dd1210764f04a313fcea97d5c818cbffaa5
 
 下载BT种子 [吳斯懷稱共機繞台非挑釁國防部駁斥.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3afb73b1783bf80668f4d49e9b54f8fb7a914b3d.torrent)
 
