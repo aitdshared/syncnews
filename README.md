@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9KYFqj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/53nCGn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月26日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/465128645077fe420ba49b15cdb73182a4ba8353.torrent)
+
+磁力链接 magnet:?xt=urn:btih:465128645077fe420ba49b15cdb73182a4ba8353
 
 下载BT种子 [紅二代倒習建議書已是第三波；中共黨內鬥爭隨時生變？台海異動頻繁，要出事了？美要求索賠之聲已上升到政府層面陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdcc8368704e6ad1d0b91a9a8e145df90bab1fe1.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [吳斯懷稱共機繞台非挑釁國防部駁斥.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3afb73b1783bf80668f4d49e9b54f8fb7a914b3d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3afb73b1783bf80668f4d49e9b54f8fb7a914b3d
-
-下载BT种子 [【禁闻】3月20日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09119e3e8f5188aa2b12c07b4ffbe29f41a23190.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09119e3e8f5188aa2b12c07b4ffbe29f41a23190
 
 下载BT种子 [紐約市確診超6000州府援助百萬N95口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24263b9f1543161beadf5b61d09466ef404ee289.torrent)
 
