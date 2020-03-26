@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oTEVrr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T4jbSF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [高层动态，韩正去向不明！围观中美日：三个情景的生动对照.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27ab9aa140fe4002ded67ea8d0a310ff43237086.torrent)
+
+磁力链接 magnet:?xt=urn:btih:27ab9aa140fe4002ded67ea8d0a310ff43237086
 
 下载BT种子 [《石濤聚焦》「美國損失50萬個百萬富翁頂級富豪喪失4.5千億」川普聲言“4月12日是個好日子復活節-復工”「瘟神呂岳三頭六臂7件寶物冠狀病毒武漢肺炎-中共病毒-人間第七種」奇妙難言表幾家苦歡愁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/489db9157ef5e862654fa8825219aa75438ccf65.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [《石濤聚焦》「習近平世家摯友香港陳平：召開政治局擴大會議討論習近平問題」李克強汪洋王岐山組成政治局領導小組-「過度式權力機構」全面回歸鄧小平路線打倒當代四人幫「中南海系統性反對習近平勢力巨大」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/175f2df6f66d8458d958b99b971925da239ec35f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:175f2df6f66d8458d958b99b971925da239ec35f
-
-下载BT种子 [【严真点评】外交部大实话：美媒觉醒为“中国病毒”正名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fe8c23c55d0a69f81245172d71e3d881e00e77c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3fe8c23c55d0a69f81245172d71e3d881e00e77c
-
-下载BT种子 [【时事小品】万里投毒你最快.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9d80aee42c40ed3a40df90c28c32b8009c54a19.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9d80aee42c40ed3a40df90c28c32b8009c54a19
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十四回飛虎歸周見子牙」哪吒金磚敗韓榮乾坤圈余化筋斷骨折子牙不知飛虎緣武成王鎮國變開國「子牙從此刀兵動準備四九伐西岐」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/804bb7b7bf057cc8c7a8ad6584f4253c022f5314.torrent)
 
