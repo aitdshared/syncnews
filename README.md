@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/J8UmVe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9KYFqj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紅二代倒習建議書已是第三波；中共黨內鬥爭隨時生變？台海異動頻繁，要出事了？美要求索賠之聲已上升到政府層面陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdcc8368704e6ad1d0b91a9a8e145df90bab1fe1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bdcc8368704e6ad1d0b91a9a8e145df90bab1fe1
 
 下载BT种子 [《石濤.News》「時間是個神3月13日疫情大拐點」後12天確診數2.24倍前52天總和死亡-2.92倍「天主正在更新地球」「我們還有信仰秉持正信疫情過後我們擁有將來與希望」（2503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbba0ddd8a11055259eab9e58c5769bbbd367033.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [美國參議院公布救助計劃價值上萬億美元的經濟救助提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eef97777abc05c683f9ed16c60c1a181017ee65d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eef97777abc05c683f9ed16c60c1a181017ee65d
-
-下载BT种子 [【禁闻】3月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f54820f9e30a91a8cbc8c461bed77c5fb4685b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6f54820f9e30a91a8cbc8c461bed77c5fb4685b6
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
