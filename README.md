@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T4jbSF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QCiM6I)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [高层动态，韩正不知去向！中美日：三个情景的对照。心动时刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecce874e94a76a177ff76ee99d23e1479b028220.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ecce874e94a76a177ff76ee99d23e1479b028220
 
 下载BT种子 [高层动态，韩正去向不明！围观中美日：三个情景的生动对照.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27ab9aa140fe4002ded67ea8d0a310ff43237086.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [一周经济回顾：中共病毒全球传染川普推出大手笔救济政策.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7edc9aac9dc28915da56ac47a4567af9a8f63a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c7edc9aac9dc28915da56ac47a4567af9a8f63a0
-
-下载BT种子 [病毒祖先有紀錄，「史詩級」戰狼碰瓷失敗；美國手握5張牌反擊，全面競爭或到來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cd72670a484d2a09b6c75ad4c06bc2ed1af2658.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5cd72670a484d2a09b6c75ad4c06bc2ed1af2658
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
