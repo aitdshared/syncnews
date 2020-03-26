@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Y3vzCd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pC4LyI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🎯大起底！FBI曾約談「美軍是毒源」的傳言者；真正病毒來自德國？武漢墓地外排大隊，中南醫生：街上毒源多；中國快篩檢疫錯率80%！川習通話，中共態度轉：同舟共濟；美再加關稅新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75689d88d0a605b4dd6731ec1f4cf144ccc81af3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:75689d88d0a605b4dd6731ec1f4cf144ccc81af3
 
 下载BT种子 [【禁闻】肺炎疫情严峻纽约与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f8c0844db2ac1fe40a27f2cff42cc2d8f6f6148.torrent)
 
@@ -569,10 +573,6 @@
 
 磁力链接 magnet:?xt=urn:btih:4f1cb44161c894f3467e8668b9e1b1b8a396bfd1
 
-下载BT种子 [美國CDC旅行警告最高級：請勿出國並敦促滯留海外的美國人立即回國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dbdd8cfd0fd3586cfcff76f99d61c8d7633d8d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2dbdd8cfd0fd3586cfcff76f99d61c8d7633d8d0
-
 下载BT种子 [吳斯懷稱共機繞台非挑釁國防部駁斥.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3afb73b1783bf80668f4d49e9b54f8fb7a914b3d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3afb73b1783bf80668f4d49e9b54f8fb7a914b3d
@@ -596,10 +596,6 @@
 下载BT种子 [美國參議院公布救助計劃價值上萬億美元的經濟救助提案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eef97777abc05c683f9ed16c60c1a181017ee65d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eef97777abc05c683f9ed16c60c1a181017ee65d
-
-下载BT种子 [川普首次批中共隱瞞！美國家安全委員會的一條推文，拉開追責的序幕；川普動用國防生產法授權，將從哪裏開刀？唐靖遠田園熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd145c53bd8c534893e8383d4088bca7ed6ebc37.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dd145c53bd8c534893e8383d4088bca7ed6ebc37
 
 下载BT种子 [大紀元獨家取得文件中共官方隱報確診數據僅一天新增病例比官方數據至少多出22倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d82a850d7ef3a75df76a92250ff0ec7b8ccf0e9f.torrent)
 
