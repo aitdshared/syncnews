@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Drj3mE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0QLvsh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】500万武汉人移动轨迹与全球疫情吻合.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ea2be159b454ad2813c6ac205e9845c523c704.torrent)
+
+磁力链接 magnet:?xt=urn:btih:97ea2be159b454ad2813c6ac205e9845c523c704
+
+下载BT种子 [【禁闻】3月26日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/741e3f4c75c7a175f39cda45e1c39d7d5739e947.torrent)
+
+磁力链接 magnet:?xt=urn:btih:741e3f4c75c7a175f39cda45e1c39d7d5739e947
+
+下载BT种子 [【禁闻】防中共获得救援金美议员提《禁中国法案》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8248f9f8696924929ab2ea2302e5b149495b52b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e8248f9f8696924929ab2ea2302e5b149495b52b
 
 下载BT种子 [【中国禁闻】3月26日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44d90e0c6573ab3d41f22aa255f50c27a49e3395.torrent)
 
@@ -608,10 +620,6 @@
 下载BT种子 [【禁闻】疫情敲全球化丧钟世界加速与中共脱钩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9ef288c09078abe8b1128c6dcfa8d99397c6410.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c9ef288c09078abe8b1128c6dcfa8d99397c6410
-
-下载BT种子 [「石濤的聲音-石濤.Radio」需要時⋯淡泊之語恰似無垠臂膀直面塵世宿命⋯⋯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03fdd81d6a5ed2aa92f10b2ecd29a3fbdfc385c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03fdd81d6a5ed2aa92f10b2ecd29a3fbdfc385c9
 
 下载BT种子 [《石濤.News》「中共病毒-武漢肺炎：共產主義百年紅潮終結篇」1917-18列寧-蘇俄PK2017-18習近平-中共「1918-20西班牙流感PK2019-20武漢肺炎-中共病毒」天滅中共！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94b05d53e4b828454678807277cffc2e7c45a8d.torrent)
 
