@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Y2Ka2L)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h32hEU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [国内经济大跌与国外索赔要求,击垮中共的风暴正在形成,兼谈”国家主权豁免“和为何要”正名“(政论天下第142集20200325)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33b98ca37c3d2cca8f2a81c7801c489cc78ecf6e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:33b98ca37c3d2cca8f2a81c7801c489cc78ecf6e
 
 下载BT种子 [武漢開始領骨灰😢！任志強絕食🤐老友看望，醫護👩🏻‍⚕️被追回疫情補助金💰，領導會搶鏡，第二波疫情「一定出現」？向中共索賠有依據！多國🈲糧食出口，中國人需未雨綢繆😨【新聞看點李沐陽03.26】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a224d1d12211702ae36fec394673a663e476c1a1.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [副主席提议召开政治局扩大会议？解决习近平！党内外最大共识.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a41725f9ccedac55ac66de7cd2f5aff7c1fbcf44.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a41725f9ccedac55ac66de7cd2f5aff7c1fbcf44
-
-下载BT种子 [【禁闻】疫情敲全球化丧钟世界加速与中共脱钩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9ef288c09078abe8b1128c6dcfa8d99397c6410.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c9ef288c09078abe8b1128c6dcfa8d99397c6410
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
