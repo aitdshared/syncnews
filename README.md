@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YhKPrM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2s2hSr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共甩鍋瘟疫責任又一表現：黨媒修改已發表報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/427898e7443ac126b49004b2f11ec81cf6acdc42.torrent)
+
+磁力链接 magnet:?xt=urn:btih:427898e7443ac126b49004b2f11ec81cf6acdc42
+
+下载BT种子 [G20舉行電視峰會聚焦對抗中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a05e9a6909d10c082f247cae6adad77b302531ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a05e9a6909d10c082f247cae6adad77b302531ef
+
+下载BT种子 [川普醫療船下週一到位美國將儘快復工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ead8594a0de04dbee287d2729f3a62655a0521ea.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ead8594a0de04dbee287d2729f3a62655a0521ea
+
+下载BT种子 [中共病毒來襲美國單週增328萬失業人口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff568d43ed9c5528322dd31c6e866623848f7ec4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff568d43ed9c5528322dd31c6e866623848f7ec4
+
+下载BT种子 [「未見人傳人拒過度反應」世衛被指偏袒中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e8406dfa31ebd8990a5bfb703a1cb77f4ced19f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4e8406dfa31ebd8990a5bfb703a1cb77f4ced19f
+
+下载BT种子 [蓬佩奧﹕七國集團外長將共同抵制中共針對這場瘟疫的假消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/681ba1ec8dfa9a49cca634d3aba8b573d5f2ac66.torrent)
+
+磁力链接 magnet:?xt=urn:btih:681ba1ec8dfa9a49cca634d3aba8b573d5f2ac66
 
 下载BT种子 [疫情玩笑開不得挑戰舔馬桶感染「中共肺炎」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ba40c02133ff21c2a468053dfd3c0586b510a52.torrent)
 
@@ -604,34 +628,6 @@
 下载BT种子 [【禁闻】海内外有共识：命名“中共病毒”最准确.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f95b6f0cdbf0a0e3b2433d8d4447d7aef351f39d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f95b6f0cdbf0a0e3b2433d8d4447d7aef351f39d
-
-下载BT种子 [【禁闻】3月22日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92ef331d19ab352f3834f93968d239654cc5ce24.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92ef331d19ab352f3834f93968d239654cc5ce24
-
-下载BT种子 [【禁闻】3月22日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7685163c7e02a828a8385c347426881d5bd8f7c2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7685163c7e02a828a8385c347426881d5bd8f7c2
-
-下载BT种子 [【禁闻】中共急聘留学生拍视频制造假新闻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e787521fa3918a8663679afc759af99902ae634a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e787521fa3918a8663679afc759af99902ae634a
-
-下载BT种子 [政治局扩大会议罢免习近平？美律师起诉中共求偿20万亿美元；将改变中共国际环境的白宫联署正名运动（政论天下第139集20200322）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cf6d82383371708cb23e559b260f713013bcdc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0cf6d82383371708cb23e559b260f713013bcdc5
-
-下载BT种子 [【环球直击】3月22日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2931f2ec5a7f8ed5f2d6a4541e7c39b1ce4624a2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2931f2ec5a7f8ed5f2d6a4541e7c39b1ce4624a2
-
-下载BT种子 [【禁闻】追责中共隐瞒疫情法律专家已提六方案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e620382149810e4addff4aa699d1c79ef27e38.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55e620382149810e4addff4aa699d1c79ef27e38
-
-下载BT种子 [副主席提议召开政治局扩大会议？解决习近平！党内外最大共识.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a41725f9ccedac55ac66de7cd2f5aff7c1fbcf44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a41725f9ccedac55ac66de7cd2f5aff7c1fbcf44
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
