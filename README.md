@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CODgA1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6MzKiG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [天下苦中共久矣，就算中国人沉默，外国人也不会放过中共的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ca2a22748d9c3591802ba75c80c470d9e27c9c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ca2a22748d9c3591802ba75c80c470d9e27c9c3
+
+下载BT种子 [南海發導彈、美艦過台灣海峽、國會索賠，美國行動力對抗中共嘴上功夫；外交外宣齊轉風，保G20習近平的面子（江峰漫談20200327第144期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/670c77c0808d680aa5cd9fd986f0a6bcac05d31e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:670c77c0808d680aa5cd9fd986f0a6bcac05d31e
 
 下载BT种子 [🈲️拿人做藥物實驗？武漢監獄378無名氏；補助三千換不哭！武漢領骨灰排長隊；中共禁外國人入境，病毒全網改稱不明肺炎，要以疫苗交換利益？中國750公司破產10萬註銷；加州大量坦克新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67e6ab7108d5e82f86a5cdbe58ecb94f81fdab1d.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [黨內行動黨外發力，政治局緊急擴大會議目標明確：拉習近平下馬；為什麼會是任志強、陳平吹響號角（江峰漫談20200322第141期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f39c44ac67d5da299fff33994dcbdf34510324e4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f39c44ac67d5da299fff33994dcbdf34510324e4
-
-下载BT种子 [《濤哥侃封神》「封神演義第叄十五回晁田兵探西岐事」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1812e30cd6f60e2f1096649e9ccc1d24b867ad2f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1812e30cd6f60e2f1096649e9ccc1d24b867ad2f
-
-下载BT种子 [【中國禁聞】3月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4be869949e662b1b6147261cd38051278773a18.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4be869949e662b1b6147261cd38051278773a18
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
