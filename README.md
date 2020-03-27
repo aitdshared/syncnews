@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o1smlx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Iv6Skt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月26日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efdb4d109c750b911dbfdbd0482512bb5d1d6c3a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:efdb4d109c750b911dbfdbd0482512bb5d1d6c3a
 
 下载BT种子 [【禁闻】500万武汉人移动轨迹与全球疫情吻合.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ea2be159b454ad2813c6ac205e9845c523c704.torrent)
 
@@ -624,14 +628,6 @@
 下载BT种子 [《石濤.News》「中共病毒-武漢肺炎：共產主義百年紅潮終結篇」1917-18列寧-蘇俄PK2017-18習近平-中共「1918-20西班牙流感PK2019-20武漢肺炎-中共病毒」天滅中共！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f94b05d53e4b828454678807277cffc2e7c45a8d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f94b05d53e4b828454678807277cffc2e7c45a8d
-
-下载BT种子 [《石濤聚焦》「習近平世家摯友香港陳平：召開政治局擴大會議討論習近平問題」李克強汪洋王岐山組成政治局領導小組-「過度式權力機構」全面回歸鄧小平路線打倒當代四人幫「中南海系統性反對習近平勢力巨大」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/175f2df6f66d8458d958b99b971925da239ec35f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:175f2df6f66d8458d958b99b971925da239ec35f
-
-下载BT种子 [《濤哥侃封神》「封神演義第叄十四回飛虎歸周見子牙」哪吒金磚敗韓榮乾坤圈余化筋斷骨折子牙不知飛虎緣武成王鎮國變開國「子牙從此刀兵動準備四九伐西岐」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/804bb7b7bf057cc8c7a8ad6584f4253c022f5314.torrent)
-
-磁力链接 magnet:?xt=urn:btih:804bb7b7bf057cc8c7a8ad6584f4253c022f5314
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
