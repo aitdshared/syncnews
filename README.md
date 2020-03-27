@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eBePVM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o3M9dx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】纽约疫情肆虐特别车队传递避疫信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee75d51952039df6d972c2b098e33dca60a9d44e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee75d51952039df6d972c2b098e33dca60a9d44e
+
+下载BT种子 [【禁闻】隐性感染者达60%或引发第二波疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dc03b832e645638af8c6a540c9b2e737aff0cb3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9dc03b832e645638af8c6a540c9b2e737aff0cb3
+
+下载BT种子 [【禁闻】3月27日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3de88fb34ba4e852996bc8be5d0ebc53fa72bf8e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3de88fb34ba4e852996bc8be5d0ebc53fa72bf8e
 
 下载BT种子 [【禁闻】死亡知多少？武汉殡仪馆骨灰盒数泄密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89ed5269ee5f745c4dcf052116ca4336b8336d8f.torrent)
 
@@ -608,14 +620,6 @@
 下载BT种子 [【禁闻】大陆实习医生：ICU里秘密杀人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7cf62bd057e071a921bd816ec00914495399df8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b7cf62bd057e071a921bd816ec00914495399df8
-
-下载BT种子 [【禁闻】出售变捐赠中共“口罩外交”骗到谁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56fea47e7020bf285198a236cf845682484d9bb3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:56fea47e7020bf285198a236cf845682484d9bb3
-
-下载BT种子 [【微视频】共产党“控制”的不是病毒而是消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d430348c2e4e6cf7e3dae85eafaf6246059d3363.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d430348c2e4e6cf7e3dae85eafaf6246059d3363
 
 下载BT种子 [《石濤聚焦》「美媒：習近平與WHO聯手把人類推上了歷史的絕境」本可減少95%全球擴散現狀川普父子先後轉推「WHO稱讚中共國一切所為類比CCTV譴責西方社會媒體一切質疑PK中共外交部發言人」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8570dc85ed92f66b682c7408ac3e8827c378ebfc.torrent)
 
