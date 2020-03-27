@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MR7PzK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9IgCoP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [時間大限逼近，習近平演繹“墨菲定律”；川普示範撒錢；四百年前有一課（20200327第725期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24c179a841101b54a3ad493241565040f86d1af3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24c179a841101b54a3ad493241565040f86d1af3
 
 下载BT种子 [《石濤聚焦》「川普在讚習總美確診破10萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5255a7db779192dd59c58ef4772d39bc807aaac9.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [倒習力量急動員，喊習近平下課！3+1政變模式那款適合（20200323第722期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fba3d08b66ae9417c1a389c0bda8b6ad8c6c8ae1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fba3d08b66ae9417c1a389c0bda8b6ad8c6c8ae1
-
-下载BT种子 [（大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91bbc2feae949293520461466ba8f08fab96502.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b91bbc2feae949293520461466ba8f08fab96502
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
