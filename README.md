@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XBO0wn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YbnD4E)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [質疑中共病毒數據川普與習通話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47d9c2abafb733fd8f48e74990c7d125a58d9ed4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:47d9c2abafb733fd8f48e74990c7d125a58d9ed4
 
 下载BT种子 [湖北解封後多地車站擠滿出省務工人潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6bb892e53aaad691e323b82d59b015740ed59f4.torrent)
 
@@ -617,33 +621,9 @@
 
 磁力链接 magnet:?xt=urn:btih:e9b0909e94d6a6c402f1e6cdc5a38bf46de23b86
 
-下载BT种子 [疫情影響世界東奧會恐延期香港封關意大利總理：正面臨二戰後最大危機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e72f9bc5e1c0577b70ec4f3e8c4395d7fcd84909.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e72f9bc5e1c0577b70ec4f3e8c4395d7fcd84909
-
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb
-
-下载BT种子 [中共官方向全球散佈假消息美國會議員籲推特刪除中共官方帳號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e416ef08db6c1389201bcb7c3de34659da704666.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e416ef08db6c1389201bcb7c3de34659da704666
-
-下载BT种子 [川普啟動三州國民警衛隊應對疫情願意爲朝鮮和伊朗提供援助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83dacd1119eb2d2682926e1476f86fd347161838.torrent)
-
-磁力链接 magnet:?xt=urn:btih:83dacd1119eb2d2682926e1476f86fd347161838
-
-下载BT种子 [造假新聞拍攝兩小時60歐元網曝中共黨媒急聘留學生擺拍疫情視頻內容涉歧視華人現象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9c10906c4f09217779cc57adf691a0079105fd8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9c10906c4f09217779cc57adf691a0079105fd8
-
-下载BT种子 [【环球直击】3月23日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee57b43f9964a42b87277e2575c0fafe3796f637.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee57b43f9964a42b87277e2575c0fafe3796f637
-
-下载BT种子 [【精彩回放】阿中部長盡心防疫大學生製Q版翻糖蛋糕表謝意！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b916f8b715cc80a30f6806e7e6abccec33ceaf05.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b916f8b715cc80a30f6806e7e6abccec33ceaf05
 
 下载BT种子 [美國加州出現首個死亡案例洛杉磯突然增加至7人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90e034614e8f5ad2bc563d0fc718fd23d8b1350f.torrent)
 
