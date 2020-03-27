@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/94a53D)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P838dh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月27日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4d0bb475a3cded8b63ca361edb19543349ac0b1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f4d0bb475a3cded8b63ca361edb19543349ac0b1
+
+下载BT种子 [【重播】3.27紐約州州長庫默召開疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c9d6c36f223eede49256129749325154f6b1a84.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c9d6c36f223eede49256129749325154f6b1a84
+
+下载BT种子 [美國北加州疫情升溫至尊公主號兩隔離客離世.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01d078bcfe013cc9476f9799778c43b1958642d6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:01d078bcfe013cc9476f9799778c43b1958642d6
 
 下载BT种子 [《石濤聚焦》「網傳：馬雲李嘉誠聯手上書溫家寶李瑞環五老進言-力保任志強」鐵板圖是白羽鳥撞山而亡並非山塌所致「王岐山自絕17萬人大會-習近平無法接受」習江山岐山打路人皆知（2703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16403692fbbbbc4a056836c8b0714bfd1c238571.torrent)
 
@@ -616,10 +628,6 @@
 下载BT种子 [造假新聞拍攝兩小時60歐元網曝中共黨媒急聘留學生擺拍疫情視頻內容涉歧視華人現象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9c10906c4f09217779cc57adf691a0079105fd8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a9c10906c4f09217779cc57adf691a0079105fd8
-
-下载BT种子 [《石濤聚焦》「要求習近平擔責下台建議書轉發者陳平回覆：建議信‘溫和理性’這樣下去肯定不太好辦」與習相識40年與王岐山任志強很熟「很多人特別體制內的都這樣想」任志强的批评文章尖锐深刻（2303）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2c9ba8b081dc3166dac3e5a5d3addf9a9f2982b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f2c9ba8b081dc3166dac3e5a5d3addf9a9f2982b
 
 下载BT种子 [【环球直击】3月23日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee57b43f9964a42b87277e2575c0fafe3796f637.torrent)
 
