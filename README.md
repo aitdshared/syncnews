@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h0MVBF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XBO0wn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [湖北解封後多地車站擠滿出省務工人潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6bb892e53aaad691e323b82d59b015740ed59f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e6bb892e53aaad691e323b82d59b015740ed59f4
+
+下载BT种子 [中共隱瞞疫情惹民憤：呼籲「解散共產黨」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0768aeaa14a9658b363d7e360bea64ad0ff34b43.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0768aeaa14a9658b363d7e360bea64ad0ff34b43
+
+下载BT种子 [武漢8個殯儀館外大排長龍骨灰盒堆積成山民眾對官方死亡數據發出質疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb226b189959606b9037e71f5ba30f14b5abee03.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb226b189959606b9037e71f5ba30f14b5abee03
 
 下载BT种子 [【环球直击】3月27日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4d0bb475a3cded8b63ca361edb19543349ac0b1.torrent)
 
@@ -612,10 +624,6 @@
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb
-
-下载BT种子 [湖北連五天無新增病例湖北一名記者以親身經歷揭露真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed1c2ada51a811c42515056bf1fde38631ebb7db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed1c2ada51a811c42515056bf1fde38631ebb7db
 
 下载BT种子 [中共官方向全球散佈假消息美國會議員籲推特刪除中共官方帳號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e416ef08db6c1389201bcb7c3de34659da704666.torrent)
 
