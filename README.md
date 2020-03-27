@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pqMtbl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9DesUS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [任案升级！习近平想扳倒副主席？遭五名政治老人警告。与特朗普通话，四大隐语.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ca1a6048c41953f93fa8dd8ff0f0f82f20798f0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ca1a6048c41953f93fa8dd8ff0f0f82f20798f0
 
 下载BT种子 [質疑中共病毒數據川普與習通話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47d9c2abafb733fd8f48e74990c7d125a58d9ed4.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [（大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91bbc2feae949293520461466ba8f08fab96502.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b91bbc2feae949293520461466ba8f08fab96502
-
-下载BT种子 [參加一帶一路武漢姊妹城德國疫情嚴重累計2萬1463人確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfe46979a9e54b38cef028887cf8ad51133d8738.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cfe46979a9e54b38cef028887cf8ad51133d8738
 
 下载BT种子 [澳洲女孩發起道歉活動海外華人青年紛紛網上發布視頻參與與中共切割.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9b0909e94d6a6c402f1e6cdc5a38bf46de23b86.torrent)
 
