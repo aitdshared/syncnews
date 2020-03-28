@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CWZLCQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ir5FSA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【蕭茗訪談】中共病毒肆虐暴露美國哪些弱點？中共能否改變自己.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29db11d2cc71d717fee2bd2d84f0dea47c66113c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:29db11d2cc71d717fee2bd2d84f0dea47c66113c
+
+下载BT种子 [對抗中共病毒國際網球明星各顯身手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b7d248c6d4c4a2c584fbf5809cebcf1ba096685.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b7d248c6d4c4a2c584fbf5809cebcf1ba096685
+
+下载BT种子 [前鳳凰網記者：中共的疫情宣傳策略有長久預案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70d8f766599580b8eac03a380ff72baa7ad35200.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70d8f766599580b8eac03a380ff72baa7ad35200
 
 下载BT种子 [與習近平通話談疫情川普：我問他何時知道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0607660a5e8429067c3819606c48f2376407c6e.torrent)
 
@@ -605,25 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:294973dd32326b3d640e35e999344d1d85806b8b
 
-下载BT种子 [美國經濟是否將陷入衰退專家﹕能否讓企業儘快恢復運作是關鍵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fadbfeaf1794264ad4d3f695ed0d0a3221342cf7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fadbfeaf1794264ad4d3f695ed0d0a3221342cf7
-
 下载BT种子 [美國加大病毒檢測力度全國累計5萬多例川普希望美國復活節前解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ecf5657f319437f3728676850f51fb4ab555815.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4ecf5657f319437f3728676850f51fb4ab555815
-
-下载BT种子 [最新研究發現華氏80度以上可殺病毒共用自助洗衣機仍安全.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cffe089dde59548c351640ce8a3025047a68570.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cffe089dde59548c351640ce8a3025047a68570
-
-下载BT种子 [【禁闻】3月24日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1444b612f14d6ead495a6b4677e9521e8449cb5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1444b612f14d6ead495a6b4677e9521e8449cb5c
-
-下载BT种子 [【禁闻】荷官员：听信中共和世卫欧洲沦重灾区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ded58ab9f9eba3a8003a5ddbcc87015796adf3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7ded58ab9f9eba3a8003a5ddbcc87015796adf3
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
