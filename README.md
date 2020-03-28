@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QozsmC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U5f4kV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [兩萬億美元經濟刺激方案通過我能拿到多少？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c29b8035a5ed686104e22bf96002bb718e386b7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0c29b8035a5ed686104e22bf96002bb718e386b7
+
+下载BT种子 [川普簽《台北法案》疫情下強化美台關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd
+
+下载BT种子 [川普簽22萬億援助法案抗中共病毒美國史上金額最大援助法案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02de566767b1374279813c4b7f678c9c868f6205.torrent)
+
+磁力链接 magnet:?xt=urn:btih:02de566767b1374279813c4b7f678c9c868f6205
+
+下载BT种子 [中共病毒攻陷199國地區歐洲疫情慘重中國大陸以外確診衝破50萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55ee075e6e285a31d21de56ee95c392cdeae9e02.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55ee075e6e285a31d21de56ee95c392cdeae9e02
+
+下载BT种子 [繼王儲確診感染後英國首相及衛生大臣也先後宣布確診感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ca46193019096c03bb2b62b3e79f7f36529fcce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8ca46193019096c03bb2b62b3e79f7f36529fcce
+
+下载BT种子 [美國以販毒罪起訴委總統馬杜羅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4dd866a784b1bf5b6d487b999e071e5092629c6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c4dd866a784b1bf5b6d487b999e071e5092629c6
 
 下载BT种子 [買墓地高價排號，鄂贛萬人大戰💥砸毀掀翻警車🚓，中國假藥被退貨，川習通話4件事，貴州復課大疫爆209學生感染，江蘇數萬人抽血體檢💉，東莞街頭老人倒地，武漢逾4.2萬人亡😱？【新聞看點李沐陽03.27】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96709e7b3fc0580a3bf96c94858bf236978b0831.torrent)
 
@@ -604,10 +628,6 @@
 下载BT种子 [中共肺炎疫情下美政府提醒民眾警惕假信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f65c57ccc15210d500666b5e56b68fb9564a2310.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f65c57ccc15210d500666b5e56b68fb9564a2310
-
-下载BT种子 [中共病毒防護五要點情緒影響免疫力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b61dffbb174abff3faa458e057da7ed962f9f6ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b61dffbb174abff3faa458e057da7ed962f9f6ef
 
 下载BT种子 [美聯儲「無限量寬」救市財長促助小企業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a80bb656b129a5c121e882d94130d004dc7b3e72.torrent)
 
