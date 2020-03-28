@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lYP9YK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yd9mCo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [副总理因何事大笑？王沪宁指控官员：对习近平失去信仰！北朝鲜金氏神药.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c29ba5efbe077f6778007bcaab5d714ce4884086.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c29ba5efbe077f6778007bcaab5d714ce4884086
 
 下载BT种子 [【百姓聲音】外國政府忙著給自己人民發援助金中共忙著給外國大撒幣中國百姓呢？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0953d79b5893491b50249bb97a8cde06ed91acd.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [紐約三週後如何？美中抗疫的不同，西方該向中共「抄作業」？「零蛋」碎武漢能解封？兩會日期已定？學者7問無人敢應，「出血熱」來了，趙立堅甩鍋代表誰？【新聞看點李沐陽03.21】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7c6536d5d0c688cbffee74039bb4e8090a1f1c5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a7c6536d5d0c688cbffee74039bb4e8090a1f1c5
-
-下载BT种子 [準確數字：中國手機用戶2月份減少1945万！人去哪兒了？（20200324第723期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/255ae91eac25e072a6dc107e79c05b065c20a67f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:255ae91eac25e072a6dc107e79c05b065c20a67f
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
