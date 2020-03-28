@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cyVrss)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/K0o4Y1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【百姓聲音】復工不到一個月又放假三個月員工都一臉愁容大陸多少工廠一片沉寂和蕭條！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b717e999f87703d1dec53448b467da4e197ad7a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1b717e999f87703d1dec53448b467da4e197ad7a
+
+下载BT种子 [【百姓聲音】武漢人仍要小心從方艙回來的表哥結果昨天晚上就走了才40歲精神很好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20620ac21f143de3ee8d1948b3344c1c1b896c46.torrent)
+
+磁力链接 magnet:?xt=urn:btih:20620ac21f143de3ee8d1948b3344c1c1b896c46
 
 下载BT种子 [《石濤聚焦》「川普：我問他（習近平）病毒是什麼時候開始發現的？」習近平告訴了我細節比美國的時間早多了「江西公安與湖北交警‘長江一號’大橋火爆交手」驗證習總‘清零’民間根本不買賬（2803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df497e88c3146a56b5f7f47442146b6f449068bc.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [局势微妙！国内媒体大赞习近平近期的两个对头。美中发言人互呛，谁在耍宝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27ed80aa4464df9d2899c9c66d7100f756404f1f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27ed80aa4464df9d2899c9c66d7100f756404f1f
-
-下载BT种子 [【禁闻】强制复工遇外贸订单取消陆企纷关门.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e42f9081c201fbf18d153a9da5bfd2c441da9f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1e42f9081c201fbf18d153a9da5bfd2c441da9f7
-
-下载BT种子 [【禁闻】疫情加速粮食危机大陆多地砍树种粮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/341eae189eaadef224d0c1e8166507cfd484d522.torrent)
-
-磁力链接 magnet:?xt=urn:btih:341eae189eaadef224d0c1e8166507cfd484d522
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
