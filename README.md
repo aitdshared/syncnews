@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dwnISg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CvlyMV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】“病毒携带者”是他？全球连署要谭德塞下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/213c6e2c7e7c03958fffd86f962a03140021f94f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:213c6e2c7e7c03958fffd86f962a03140021f94f
+
+下载BT种子 [湖北多地解封後被江西公安入境兩省公安混戰警車被掀翻上萬民眾加入混戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbfa6b738a46fa8e0c5aa8e80d3e2f02dac8518c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bbfa6b738a46fa8e0c5aa8e80d3e2f02dac8518c
 
 下载BT种子 [《石濤聚焦》「1月28日英國首相接受“華為5G”」英國首相衛生大臣首席醫生跟隨王子查爾斯被確診「英國內閣與下院議員都在可能中」如首相無法履職將由外相主持政府（2703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e966bbe24c9fd99d1d62a61a207d9cf61eddf01.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [中共病毒衝擊波英國旅遊小鎮上演空城計.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b279f70cbb84d63a3e4a62ac8c79df2e02b17a6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4b279f70cbb84d63a3e4a62ac8c79df2e02b17a6
-
-下载BT种子 [習斥「美軍播毒論」瘋狂!!疫苗試驗揭秘，「有一例就追責」，區長守夜禁上報，「暖新聞」炮製過程，火葬場處理手機視頻曝光，川普對習「有點失望」，大褲衩掐戰鬥部，紅二代倒戈，【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f2f5f092c6ee955d95b818b5f17df49f7075522.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3f2f5f092c6ee955d95b818b5f17df49f7075522
-
-下载BT种子 [【禁闻】内斗激烈？倒习公开信罕见在微信流传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09dafbca91ed6cfdbe1cd1d19736f211cc2f0846.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09dafbca91ed6cfdbe1cd1d19736f211cc2f0846
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
