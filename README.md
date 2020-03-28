@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CmptxO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0wgYj5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [江西湖北警察激烈衝突，四大挑戰衝擊中共；美中台緊張台海要開戰？（2020.3.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b4de27204386aec1f593fdcb866065ec1e57505.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5b4de27204386aec1f593fdcb866065ec1e57505
 
 下载BT种子 [20天内，首尔1600家餐厅关门，猜猜韩国政府给民众发多少钱？韩国的经济模式或导致大量人口失业.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e5cd7ac7a2d33f3440877d8ebe00e08cbd7071.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [歐洲病毒學家揭中共病毒六大特點完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7882ff76870fc83d6218bd1a89ed740a107ae34d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7882ff76870fc83d6218bd1a89ed740a107ae34d
-
-下载BT种子 [武漢疫情「政治清零」，造假大騙局；中國隱藏4.3萬確診病人；中共病毒栽贓意大利，露出馬腳（2020.3.24）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3431113b98498786a8dadd481abbbeb9e1c9c725.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3431113b98498786a8dadd481abbbeb9e1c9c725
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
