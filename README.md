@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CvlyMV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LkWPGj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [買墓地高價排號，鄂贛萬人大戰💥砸毀掀翻警車🚓，中國假藥被退貨，川習通話4件事，貴州復課大疫爆209學生感染，江蘇數萬人抽血體檢💉，東莞街頭老人倒地，武漢逾4.2萬人亡😱？【新聞看點李沐陽03.27】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96709e7b3fc0580a3bf96c94858bf236978b0831.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96709e7b3fc0580a3bf96c94858bf236978b0831
 
 下载BT种子 [【禁闻】“病毒携带者”是他？全球连署要谭德塞下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/213c6e2c7e7c03958fffd86f962a03140021f94f.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】中共“黑锅”乱甩美国遇阻再换意大利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5817cbdde260cc40178ded473250ba05aaa2a7af.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5817cbdde260cc40178ded473250ba05aaa2a7af
-
-下载BT种子 [中共病毒衝擊波英國旅遊小鎮上演空城計.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b279f70cbb84d63a3e4a62ac8c79df2e02b17a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b279f70cbb84d63a3e4a62ac8c79df2e02b17a6
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
