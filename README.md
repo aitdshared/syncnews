@@ -21,13 +21,49 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0Tr7Et)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RwIDp2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約州死亡率持續飆升曼哈頓臨時醫院竣工容1000個床位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/920133f40ca6fbc75f08050f22e81eea62ec623e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:920133f40ca6fbc75f08050f22e81eea62ec623e
+
+下载BT种子 [美國確診超過10萬人川普令趕工10萬呼吸器納瓦羅督軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ae9f001f776f2693c1f34bb3fd0a8cd6b45a907.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ae9f001f776f2693c1f34bb3fd0a8cd6b45a907
+
+下载BT种子 [中共肺炎肆虐全球超過了53萬人馬克龍：不要被宣傳毒害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39b53cbd478487d97c15eb4dd6066dd559221211.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39b53cbd478487d97c15eb4dd6066dd559221211
+
+下载BT种子 [【环球直击】3月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e859634f8a22a87f199755f54e82ae53176a60.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55e859634f8a22a87f199755f54e82ae53176a60
+
+下载BT种子 [江西警察阻湖北人入境引發萬人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3444c24049c5f9d11880b3351576795845651a72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3444c24049c5f9d11880b3351576795845651a72
+
+下载BT种子 [美國洛杉磯確診染疫者四天翻三倍美國海軍醫療船「仁慈號」靠港就緒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db73a0e5bb8f2a92cdabf5dcf15eaaecea7add80.torrent)
+
+磁力链接 magnet:?xt=urn:btih:db73a0e5bb8f2a92cdabf5dcf15eaaecea7add80
+
+下载BT种子 [包機接人陳時中提湖北解封衝突：盼勿生變數.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3bd73e21b54245faea0cce5b7f435c3034d82e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b3bd73e21b54245faea0cce5b7f435c3034d82e
+
+下载BT种子 [美國務院：中共發現散佈病毒來自美國沒市場後轉向宣傳自己了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c070dd1e822c485365c57398afad05441945bae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c070dd1e822c485365c57398afad05441945bae
+
+下载BT种子 [微信售賣「中共病毒」自測試劑FDA：別上當.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e2fc83a747dce45e45e5334d9f93f863952f8b9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e2fc83a747dce45e45e5334d9f93f863952f8b9
 
 下载BT种子 [江西湖北警察激烈衝突，四大挑戰衝擊中共；美中台緊張台海要開戰？（2020.3.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b4de27204386aec1f593fdcb866065ec1e57505.torrent)
 
@@ -584,10 +620,6 @@
 下载BT种子 [疫情衝擊下大陸多地商戶上街要求減租此起彼伏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dbb9f89d61f62e615d7e5d7501fb3aae5c5494.torrent)
 
 磁力链接 magnet:?xt=urn:btih:53dbb9f89d61f62e615d7e5d7501fb3aae5c5494
-
-下载BT种子 [遼寧粥店巨大橫幅“祝美日爆發疫情”網友批：泯滅人性迎合什麼樣的顧客.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f395262b1f6a992c011f58b0b3651632ce6088e9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f395262b1f6a992c011f58b0b3651632ce6088e9
 
 下载BT种子 [美參議員：成立特別工作組對抗中共疫情大外宣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f024bb3118bdcbf340b9f2f8be2ba280e4c81904.torrent)
 
