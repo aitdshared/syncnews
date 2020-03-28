@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XVOgyP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dwnISg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「1月28日英國首相接受“華為5G”」英國首相衛生大臣首席醫生跟隨王子查爾斯被確診「英國內閣與下院議員都在可能中」如首相無法履職將由外相主持政府（2703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e966bbe24c9fd99d1d62a61a207d9cf61eddf01.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e966bbe24c9fd99d1d62a61a207d9cf61eddf01
+
+下载BT种子 [《石濤聚焦》「川普在讚習總美確診破10萬」紐約州佔45%川普動用《國防生產法》命令通用汽車生產呼吸機並簽署2萬億拯救資金法案（2703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58420d616b0efc2f6e5ae3a194c865c1f51abfea.torrent)
+
+磁力链接 magnet:?xt=urn:btih:58420d616b0efc2f6e5ae3a194c865c1f51abfea
 
 下载BT种子 [【禁闻】纽约疫情肆虐特别车队传递避疫信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee75d51952039df6d972c2b098e33dca60a9d44e.torrent)
 
@@ -612,18 +620,6 @@
 下载BT种子 [【禁闻】内斗激烈？倒习公开信罕见在微信流传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09dafbca91ed6cfdbe1cd1d19736f211cc2f0846.torrent)
 
 磁力链接 magnet:?xt=urn:btih:09dafbca91ed6cfdbe1cd1d19736f211cc2f0846
-
-下载BT种子 [党内分歧公开化！崔大使明确反对那个人。习近平要抛弃某常委？美军又有两个大动作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cc5d9bbf3c87b912c427ec91bb25f553cf707bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7cc5d9bbf3c87b912c427ec91bb25f553cf707bf
-
-下载BT种子 [【禁闻】大陆实习医生：ICU里秘密杀人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7cf62bd057e071a921bd816ec00914495399df8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b7cf62bd057e071a921bd816ec00914495399df8
-
-下载BT种子 [《石濤聚焦》「美媒：習近平與WHO聯手把人類推上了歷史的絕境」本可減少95%全球擴散現狀川普父子先後轉推「WHO稱讚中共國一切所為類比CCTV譴責西方社會媒體一切質疑PK中共外交部發言人」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8570dc85ed92f66b682c7408ac3e8827c378ebfc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8570dc85ed92f66b682c7408ac3e8827c378ebfc
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
