@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p8Th6v)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o8OhYO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】染疫死亡率全美最高华州与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a
+
+下载BT种子 [中共病毒詭！專家：患者有抗體仍排毒疫苗有效？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/786131ee792f75142f5722243dc8152fcdaf943e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:786131ee792f75142f5722243dc8152fcdaf943e
 
 下载BT种子 [兩萬億美元經濟刺激方案通過我能拿到多少？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c29b8035a5ed686104e22bf96002bb718e386b7.torrent)
 
@@ -612,34 +620,6 @@
 下载BT种子 [【全球新闻】3月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8de0fadb25434f2c22ac17c0c0ef203875b419d2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8de0fadb25434f2c22ac17c0c0ef203875b419d2
-
-下载BT种子 [川普对习近平表示失望；战狼赵立坚再撕咬，武汗市民梁旭光起诉美国政府；华邮说：中美经济这些方面应该脱钩（政论天下第140集20200323）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c228cbe738c215785449e864490a2c92598b61c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4c228cbe738c215785449e864490a2c92598b61c
-
-下载BT种子 [【禁闻】病毒冲击严重伊朗与中共关系一览.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0de51f6f4d15896108e5e3c649975dc0bfca18c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c0de51f6f4d15896108e5e3c649975dc0bfca18c
-
-下载BT种子 [受中共肺炎疫情的影響加拿大和澳洲退出東京奧運籲推遲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8ebe0dc6a976c7c59d42f39a544ad52fa4cd161.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f8ebe0dc6a976c7c59d42f39a544ad52fa4cd161
-
-下载BT种子 [中共肺炎疫情下美政府提醒民眾警惕假信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f65c57ccc15210d500666b5e56b68fb9564a2310.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f65c57ccc15210d500666b5e56b68fb9564a2310
-
-下载BT种子 [美聯儲「無限量寬」救市財長促助小企業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a80bb656b129a5c121e882d94130d004dc7b3e72.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a80bb656b129a5c121e882d94130d004dc7b3e72
-
-下载BT种子 [紐約「非基本企業」關門直擊法拉盛現況.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fdeef3d1202ca35d52dd3f46e35c093d2bf5790.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2fdeef3d1202ca35d52dd3f46e35c093d2bf5790
-
-下载BT种子 [【禁闻】中共“黑锅”乱甩美国遇阻再换意大利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5817cbdde260cc40178ded473250ba05aaa2a7af.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5817cbdde260cc40178ded473250ba05aaa2a7af
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
