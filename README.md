@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RwIDp2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vIKvth)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「奇特事實：美國疫情最嚴重10個州民主黨分攤8個半」感染者的80%過世者75%總統大選民主黨競選者：桑德斯-社會主義者拜登-拒絕透露拿了中共多少錢「第一顧問拉里剛被中共病毒擊斃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15e014437423e177ffb2e5f943af84080b986db6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15e014437423e177ffb2e5f943af84080b986db6
 
 下载BT种子 [紐約州死亡率持續飆升曼哈頓臨時醫院竣工容1000個床位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/920133f40ca6fbc75f08050f22e81eea62ec623e.torrent)
 
@@ -616,42 +620,6 @@
 下载BT种子 [《石濤.News》「2月全球統收口罩😷20億3月18日反售送82國‘習傯-人類救世主了’」反美-遣返記者栽贓美軍趙立堅狂飆復工清零-習思想輝煌習近平親自慰問歐洲諸國「性本惡-習總成鬼之本」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efb19a59c229132864acaa2f9a0944e8cbe74131.torrent)
 
 磁力链接 magnet:?xt=urn:btih:efb19a59c229132864acaa2f9a0944e8cbe74131
-
-下载BT种子 [疫情衝擊下大陸多地商戶上街要求減租此起彼伏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53dbb9f89d61f62e615d7e5d7501fb3aae5c5494.torrent)
-
-磁力链接 magnet:?xt=urn:btih:53dbb9f89d61f62e615d7e5d7501fb3aae5c5494
-
-下载BT种子 [美參議員：成立特別工作組對抗中共疫情大外宣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f024bb3118bdcbf340b9f2f8be2ba280e4c81904.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f024bb3118bdcbf340b9f2f8be2ba280e4c81904
-
-下载BT种子 [青壯年男性確診多紐約禁止公園人群聚集.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9be71e37c70e0a94b939e996cd4166b1e6ded013.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9be71e37c70e0a94b939e996cd4166b1e6ded013
-
-下载BT种子 [川普呼籲保護美國亞裔不是他們的錯打擊囤物和欺詐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ddbd160e660b97fc2497aab2a48bc5657a26e22.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ddbd160e660b97fc2497aab2a48bc5657a26e22
-
-下载BT种子 [《石濤聚焦》「習總鐵腕清零復工瘟神再出手-最致命鼠疫-出血熱3小時亡」雲南往山東復工者33人大客途徑陝西宁陕4人狀況1人死亡「漢他病毒-流行性出血热最致命4級病毒死亡率40-50%」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b180c437d1b7a12e5b97ab2a5ffbd4c2e6cf32.torrent)
-
-磁力链接 magnet:?xt=urn:btih:15b180c437d1b7a12e5b97ab2a5ffbd4c2e6cf32
-
-下载BT种子 [蓬佩奧列五大事實駁斥伊朗誣衊「中共病毒」為美國製造.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/667209f3feea71e616d345c0580d051917af9b5e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:667209f3feea71e616d345c0580d051917af9b5e
-
-下载BT种子 [香港議員要求拆除青關會的條幅保護法輪功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81e1c89b7e097a6f0eeda462095685852b8862bb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:81e1c89b7e097a6f0eeda462095685852b8862bb
-
-下载BT种子 [中共病毒侵害歐洲東京奧運延後一年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6e7f7304dc10aaa10b93466bed1dd501a91f783.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b6e7f7304dc10aaa10b93466bed1dd501a91f783
-
-下载BT种子 [歐洲病毒學家揭中共病毒六大特點完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7882ff76870fc83d6218bd1a89ed740a107ae34d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7882ff76870fc83d6218bd1a89ed740a107ae34d
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
