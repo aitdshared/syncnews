@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ir5FSA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cA1rWF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中央对地方权威下坠,党内反习势力集结,习近平日子很难过;任志强儿子和秘书被抓,对党内大佬与民营企业家上书营救的分析(政论天下第143集20200328)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c529b991a575aa6ae5a0f03c6177b59f85046fc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0c529b991a575aa6ae5a0f03c6177b59f85046fc
 
 下载BT种子 [【蕭茗訪談】中共病毒肆虐暴露美國哪些弱點？中共能否改變自己.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29db11d2cc71d717fee2bd2d84f0dea47c66113c.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [崔天凱趙立堅唱雙簧？馬列教授千里散送大禮！瀋陽慶祝美國形勢失控！紐約分得親共紅利！（老北京茶館第273集20200324）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/294973dd32326b3d640e35e999344d1d85806b8b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:294973dd32326b3d640e35e999344d1d85806b8b
-
-下载BT种子 [美國加大病毒檢測力度全國累計5萬多例川普希望美國復活節前解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ecf5657f319437f3728676850f51fb4ab555815.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4ecf5657f319437f3728676850f51fb4ab555815
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
