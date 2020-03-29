@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ooodw4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/509QD5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平之惑：割據真開始了？員警助孫春蘭扳回一局？領取裝親人盒子洩密，清零真相再曝光！（老北京茶館第275集20200328）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1c16bf0d32e0d2efa94497857795f13c31dd985.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1c16bf0d32e0d2efa94497857795f13c31dd985
 
 下载BT种子 [【Jason快評】如何能預見各國疫情曙光的到來？這次瘟疫到什麼時候會是個頭？用數據和歷史說話熱點互動03282020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e4f182f9a152f801149d20e82a767a394b320a5.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「英國：武漢封城前6萬人逃離進入382個城市—製造百年大災難」實現習總民族夢：人類命運共同體「習總手中最銳利的武器：被無神-進化論洗腦用所為科學包裝的中國人」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/793797be89a178c5b915e40e0b3135bf45c6b9a6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:793797be89a178c5b915e40e0b3135bf45c6b9a6
-
-下载BT种子 [【中國禁聞】3月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3178aa6b87e1fbecd0070b71ddf52a8fba576ae8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3178aa6b87e1fbecd0070b71ddf52a8fba576ae8
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
