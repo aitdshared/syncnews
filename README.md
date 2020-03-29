@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UMOW4Z)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZJGylt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大事情！习近平顶不住了，接班人出炉！副主席发挥关键作用。全球退货中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c685402e60cce96ae44a76149c98d45febd67fdd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c685402e60cce96ae44a76149c98d45febd67fdd
 
 下载BT种子 [【禁闻】蓬佩奥：中共对我们的健康构成重大威胁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0afa5f18400233a63e2ba5a97a81d68207403813.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [疫情肆虐歐美企業紛紛取消中國的訂單中國陷「無工可復」困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f553cc37a8b40c0d5426aa64ebdd6fa1c3ceec53.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f553cc37a8b40c0d5426aa64ebdd6fa1c3ceec53
-
-下载BT种子 [美國就2萬億美元達成有史以來最大救助方案應對中共病毒帶來的經濟衝擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8482a6d17943285bd780cc3c0fdc502af75f89b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8482a6d17943285bd780cc3c0fdc502af75f89b0
 
 下载BT种子 [武漢部分公交開通醫生警告：解封後會很危險囤好食物不要出門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e5ac078d6d6d3636d9fe39113307f73a0ba073d.torrent)
 
