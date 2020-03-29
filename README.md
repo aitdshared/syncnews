@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yQN9Rd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TCPqDO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美軍派指揮小組進駐「核末日庇護所」」美国在做最坏打算州界之间出现隔离动用州警与國民衛隊（2903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91913771f462819fbe6a868da0c06c650f9fc1a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91913771f462819fbe6a868da0c06c650f9fc1a7
 
 下载BT种子 [《石濤聚焦》「日媒：王岐山出生7月1日白羽鳥撞山更具意義？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b181ab1b5cfce6e9d2f786d9c3604e744b55f319.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [武漢解封，李克強暗示疫情再起？關鍵三招，有效控制疫情；美國主流媒體向中共叩頭？（2020.3.25）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f745c9f4a330be73c4e634359d7a70a33b0bf662.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f745c9f4a330be73c4e634359d7a70a33b0bf662
-
-下载BT种子 [【重播】3月24日美國政府就中共病毒疫情開新聞發布會（中文同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2526ec0df21ac23a63569fa3626ef357695d4239.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2526ec0df21ac23a63569fa3626ef357695d4239
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
