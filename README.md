@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pn8ssB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u784e5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「大批烏鴉突襲華盛頓州大量蝙蝠暴斃以色列」瘟疫醫師源自路易十三御醫-黑死病烏鴉曾出現武漢北京「神之憤怒降災瘟疫懲罰出自聖經記載」（2903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3df3176f952cbec37574d58135b4a96ee041aa74.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3df3176f952cbec37574d58135b4a96ee041aa74
 
 下载BT种子 [【环球直击】3月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/871219b89e241f57e9d39384e0f9dc9e4ca67566.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「美大使館盛讚崔天凱痛斥趙立堅‘瘋狂的謊言’」美軍武漢播毒只說崔天凱直斥這個謠言是“瘋癲”的陰謀論「美公開伊朗精神領袖哈梅內伊有“幾十億免稅對衝基金”」暗指“必要時公開中共高官在美資產」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a253fb124c64af1bbc5b0bccc8236cd113e68ed.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2a253fb124c64af1bbc5b0bccc8236cd113e68ed
-
-下载BT种子 [【环球直击】3月25日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e26ae43950b0a0fff97cbd11bc9e42d1d3f51c2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e26ae43950b0a0fff97cbd11bc9e42d1d3f51c2
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
