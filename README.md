@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8J8g4c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sNAk2O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第叄十七回姜子牙一上崑崙」天尊再三叮囑子牙依舊回頭申公豹應運子牙而生修行數千載只為仙界大洗禮封神榜高懸岐山人間因妖怪佞臣惑亂而改朝換代（中集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1edc602fe3def4df60169f025419a7f41fdae204.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1edc602fe3def4df60169f025419a7f41fdae204
 
 下载BT种子 [【百姓自拍】準備鎖國了？北京政府：28日起暫停外國人入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c23f96e18f686104567bce5f86d0f307b4dd21db.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [中共外交官直接侮辱川普，上一次對美國總統個人攻擊發生在朝鮮戰爭時期；微信號召海外華人組成自救群落，千萬別上當（江峰漫談20200325第143期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22693354714188f0e4f78cdd11cab832da473a30.torrent)
 
 磁力链接 magnet:?xt=urn:btih:22693354714188f0e4f78cdd11cab832da473a30
-
-下载BT种子 [【唐靖遠快評】中國三大電訊運營商1-2月用戶銳減2100萬！消失的用戶去了哪裡？熱點互動03242020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5835e7ebd3e976fc1f3c7887b56af2bb0ee8768b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5835e7ebd3e976fc1f3c7887b56af2bb0ee8768b
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
