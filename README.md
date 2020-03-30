@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qs6wxI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lKncy5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情「受控」真相：湖北人持「綠碼」入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/146e976c546d903b7e720b94409484c1e623151b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:146e976c546d903b7e720b94409484c1e623151b
+
+下载BT种子 [英國內閣大臣：中共應該為英國的測試負責要求約翰遜推翻之前允許華爲5G進入英國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc57a41286797932cc76736494d3cade03470b52.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc57a41286797932cc76736494d3cade03470b52
+
+下载BT种子 [中共病毒國際傳播英國宣布緊急狀態印度總理為突然的封鎖舉措向人民道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04c0f0fa8e449329e2646d1eae996ff3bf7e173e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:04c0f0fa8e449329e2646d1eae996ff3bf7e173e
+
+下载BT种子 [WHO官員避談台灣蔡英文：有台灣參與世界醫療體系會更好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e77832bbeec3678fd262ce36a5c6c0b40d55148.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1e77832bbeec3678fd262ce36a5c6c0b40d55148
+
+下载BT种子 [湖南火車出軌網友批中共：又說沒死人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0585568bcf3da17cb7215d54eb59ccb77980305c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0585568bcf3da17cb7215d54eb59ccb77980305c
+
+下载BT种子 [美參議員科頓：中共仍在病毒問題上撒謊美國藥物生產應減少對中共的依賴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5787d0a5212769fb993452ee591e618db9ba5c84.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5787d0a5212769fb993452ee591e618db9ba5c84
+
+下载BT种子 [武漢發放骨灰遭疑非親人骨灰知情爆料：骨灰全部混合等分按照登記領取.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/431ea85fe7d6e2d16a8a859b03e99010322ebecb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:431ea85fe7d6e2d16a8a859b03e99010322ebecb
 
 下载BT种子 [【环球直击】3月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c13ea90eab89181d7de5cac7d1bc7c83408cf26.torrent)
 
@@ -589,37 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:24252c7b1da32d3009abe77edd027e6e63079024
 
-下载BT种子 [中國學者研究：武漢六成感染者未被發現解封可能再度引爆疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4b3e767933876bed09fdab749c24b7a1b9e3b0b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4b3e767933876bed09fdab749c24b7a1b9e3b0b
-
-下载BT种子 [川普社交疏離見效現金援助將迅速到位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b14f597a9121c5ee04a8180800993d053c151e8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b14f597a9121c5ee04a8180800993d053c151e8f
-
-下载BT种子 [N95口罩只供醫護不零售民眾需小心中國假冒貨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c85050297bd8ad53de5fc56dc449a96fa1046ec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c85050297bd8ad53de5fc56dc449a96fa1046ec
-
 下载BT种子 [中共掩蓋致瘟疫大流行美民間、官方齊力追責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dcb564f73bf1f3c40e9ef8948fdf55075817274.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7dcb564f73bf1f3c40e9ef8948fdf55075817274
-
-下载BT种子 [蓬佩奧中共拖延並瞞報疫情欺騙全世界全世界將追究中共的責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71528e0bd8c21022bed9c49d0098c1adef3ead6d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71528e0bd8c21022bed9c49d0098c1adef3ead6d
-
-下载BT种子 [紐約州長指住院率下降社交距離防疫見效.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/081f3bd4dd95d4b5b0b9f9bfaea000df1bd5d80e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:081f3bd4dd95d4b5b0b9f9bfaea000df1bd5d80e
-
-下载BT种子 [【禁闻】台湾去年底示警人传人WHO为何不公告？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/834f757b011f13fc1d34fe545eb862fcb0b9a6fc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:834f757b011f13fc1d34fe545eb862fcb0b9a6fc
-
-下载BT种子 [【禁闻】3月25日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/773e5dc472f897c68f09302ba75e571b42fcfb4a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:773e5dc472f897c68f09302ba75e571b42fcfb4a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
