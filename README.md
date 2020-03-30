@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/drFalh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VbaVt8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4631193158adf5a1871915157b1731544dbe3723.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4631193158adf5a1871915157b1731544dbe3723
+
+下载BT种子 [【禁闻】3月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd9104d94aa7babe7353a54136dd3348febb2e2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8cd9104d94aa7babe7353a54136dd3348febb2e2
+
+下载BT种子 [【禁聞】前鳳凰網記者揭秘中共疫情宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d792b1e0ce8d4a5e1af97747a1e5ada911d84cd2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d792b1e0ce8d4a5e1af97747a1e5ada911d84cd2
 
 下载BT种子 [【禁闻】中共颁禁航令被批变相阻中国公民回国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3b3bf1e864bfe149f54e3c401caaeedbb1debe.torrent)
 
@@ -608,18 +620,6 @@
 下载BT种子 [美国决议案：索赔！李克强高呼不得瞒报。习近平恨上一个人。胡公子三度受阻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23226adf9b41d9a60096ec7339c3f1f660ef8aa8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:23226adf9b41d9a60096ec7339c3f1f660ef8aa8
-
-下载BT种子 [《石濤聚焦》「義大利與歐洲O號病人-武漢封城日飛米蘭華中師大首席馬列專家胡亞敏」攜中共病毒引爆歐美大流行49天義國免費治癒致歐洲死傷過萬義國議員「中共國是地球的毒瘤巨大危險」（2503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3b71896c06eb50cff6e08707ad63330286385ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3b71896c06eb50cff6e08707ad63330286385ab
-
-下载BT种子 [《石濤聚焦》「任志強最新：12日被滯留重案-王岐山救不了」兒子秘書同時被帶走承認他寫的11人分享「剝光了衣服也要堅持當皇帝的小丑」針對「王岐山缺席」17萬人大會「死磕習近平攤牌決勝負」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32636db1c6b994e791ae6cee8441bb8bb91ab84a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:32636db1c6b994e791ae6cee8441bb8bb91ab84a
-
-下载BT种子 [《石濤聚焦》「任志強最新：12日被滯留重案-王岐山救不了」兒子秘書同時被帶走承認他寫的11人分享「剝光了衣服也要堅持當皇帝的小丑」針對「王岐山缺席」17萬人大會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f307552655a3ffc3de9e7314fa9a3c4790696b88.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f307552655a3ffc3de9e7314fa9a3c4790696b88
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
