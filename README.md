@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WsW7Kq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/spo79v)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [禁止外國人入境，結果一看，趕回來的都是華裔；復工等於停產，習近平再提新時代勞動教育，上山下鄉你準備好了麼？（江峰漫談20200329第146期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e2a7f8cbb8e6fdd9897a07cc4f36a79b30c93a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e2a7f8cbb8e6fdd9897a07cc4f36a79b30c93a7
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十七回姜子牙一上崑崙」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b0e0a92133d20b7e039cf5c7700469f77b543e8.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [美國國會欲向中共索賠，怎麼賠？彭培奧談將有重大決定，暗示什麼（20200325第724期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cba6ad97c09e9e41e124091527d412afb876325.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2cba6ad97c09e9e41e124091527d412afb876325
-
-下载BT种子 [【禁闻】捷克买中国检测盒准确率不及抛硬币.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ea190d5aefd9092390ef8818ec0f0d656c1fb9b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3ea190d5aefd9092390ef8818ec0f0d656c1fb9b
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
