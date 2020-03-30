@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8BeufP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QCCzVR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】前凤凰网记者揭秘中共疫情宣传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb6fad5cc9e013640ea9027f8407c937a0b63930.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb6fad5cc9e013640ea9027f8407c937a0b63930
 
 下载BT种子 [【禁闻】荷兰弃用130万个中国劣质口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ec54b9ad9186be19c22222f7600747eb7764a94.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [加國會議員：中共武漢肺炎信息不透明籲人們認清中共的獨裁體制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30d6de75fe2b52c334a91d4e9aa4a5231f9d7672.torrent)
 
 磁力链接 magnet:?xt=urn:btih:30d6de75fe2b52c334a91d4e9aa4a5231f9d7672
-
-下载BT种子 [首位國家元首確診感染曾10次訪華與中共十分親近.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5e644716e450b113d128691ed519bcb5bfec085.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d5e644716e450b113d128691ed519bcb5bfec085
 
 下载BT种子 [疫情嚴峻英國王儲查理斯確診感染印度宣布21天全國封鎖泰國實施全國緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee93cd165482c40f8300440ecec55edbcc633d02.torrent)
 
