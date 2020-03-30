@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7IJvdj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ehqIVZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國本次排名世界第一的老底被揭？！特朗普驚問：習近平，任志強真走了嗎？（老北京茶館第276集20200329）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/156149a78d87b4b391e18a82463b6ae5b9360c1d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:156149a78d87b4b391e18a82463b6ae5b9360c1d
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十七回姜子牙一上崑崙」申公豹惑子牙砍頭空中飄南極仙翁急出手姜尚愚庸禍招身三十六路討伐劫難逃全因子牙一念差（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dd5ae6bf4f51c540d84b1793c45d766138f7c24.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】中共违反世卫规定各国索赔有法可依.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/030e8df26ae14b5f774b6777071d87a2dea5a1ee.torrent)
 
 磁力链接 magnet:?xt=urn:btih:030e8df26ae14b5f774b6777071d87a2dea5a1ee
-
-下载BT种子 [【禁闻】新增清零无症状感染者或成“游荡毒源”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23bd86f73cd550f3e64bbeb98ab8061d37b32101.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23bd86f73cd550f3e64bbeb98ab8061d37b32101
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
