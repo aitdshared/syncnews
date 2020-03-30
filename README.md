@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xrthZc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CVuPLe)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月29日完整版（字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40b7af84419925ec2a9aefdad14ef246d739c622.torrent)
+
+磁力链接 magnet:?xt=urn:btih:40b7af84419925ec2a9aefdad14ef246d739c622
 
 下载BT种子 [中共如何做到武漢肺炎0增長？300人記者團入住武漢做什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d510ae3aa35ba50e4f0e16f93d27406a9b9f59d.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【中國禁聞】3月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e350fafe85b856336ee302f2d65f3bb849761ae3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e350fafe85b856336ee302f2d65f3bb849761ae3
-
-下载BT种子 [【全球新闻】3月25日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a96c4cf8a7d4927f0bb27fb0edf8069ab6fe0308.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a96c4cf8a7d4927f0bb27fb0edf8069ab6fe0308
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
