@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6EUCWb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0LLXnS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共颁禁航令被批变相阻中国公民回国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3b3bf1e864bfe149f54e3c401caaeedbb1debe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b3b3bf1e864bfe149f54e3c401caaeedbb1debe
 
 下载BT种子 [【重播】3.29美國政府每日疫情發布會（中文同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f0a315a3c52c7c00a42bfda150da566d62dbae9.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「任志強最新：12日被滯留重案-王岐山救不了」兒子秘書同時被帶走承認他寫的11人分享「剝光了衣服也要堅持當皇帝的小丑」針對「王岐山缺席」17萬人大會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f307552655a3ffc3de9e7314fa9a3c4790696b88.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f307552655a3ffc3de9e7314fa9a3c4790696b88
-
-下载BT种子 [《石濤聚焦》「黨媒自爆義大利與歐洲O號病人：華中師大首席馬列專家」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b403d708a1d265fd1dc1d3a5e88b6215fcb88088.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b403d708a1d265fd1dc1d3a5e88b6215fcb88088
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
