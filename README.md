@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pi1Fjw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dCeM9O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平不安全？寸步不离两个人！设局监视高层。中共抄台湾作业。多国有话说.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fb02ea7213ed23b686d092c836033e251eea625.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7fb02ea7213ed23b686d092c836033e251eea625
 
 下载BT种子 [《石濤聚焦》「習總至交陽光陳平：有話要說-陽光被逐離大陸」網文：王岐山牽頭聯手俞振聲等‘拿下’習家軍‘？任志強露面已獲釋3天？（3003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecbbbeea161d115f60afeb15907e655d02238f92.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [紅二代倒習建議書已是第三波；中共黨內鬥爭隨時生變？台海異動頻繁，要出事了？美要求索賠之聲已上升到政府層面陳破空唐靖遠熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdcc8368704e6ad1d0b91a9a8e145df90bab1fe1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bdcc8368704e6ad1d0b91a9a8e145df90bab1fe1
-
-下载BT种子 [《石濤.News》「時間是個神3月13日疫情大拐點」後12天確診數2.24倍前52天總和死亡-2.92倍「天主正在更新地球」「我們還有信仰秉持正信疫情過後我們擁有將來與希望」（2503）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbba0ddd8a11055259eab9e58c5769bbbd367033.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cbba0ddd8a11055259eab9e58c5769bbbd367033
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
