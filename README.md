@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lKncy5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zh8Euy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普：社交距離指南延長至4月底確保平穩度過疫情高峰期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb32fd26ac00839c0123e7383e2e96dc7a75c194.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb32fd26ac00839c0123e7383e2e96dc7a75c194
 
 下载BT种子 [疫情「受控」真相：湖北人持「綠碼」入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/146e976c546d903b7e720b94409484c1e623151b.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [中國大陸以外確診人數已超過38萬死亡超過1萬7600人全球醫療系統不堪重負川普應對獲支持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24252c7b1da32d3009abe77edd027e6e63079024.torrent)
 
 磁力链接 magnet:?xt=urn:btih:24252c7b1da32d3009abe77edd027e6e63079024
-
-下载BT种子 [中共掩蓋致瘟疫大流行美民間、官方齊力追責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dcb564f73bf1f3c40e9ef8948fdf55075817274.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7dcb564f73bf1f3c40e9ef8948fdf55075817274
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
