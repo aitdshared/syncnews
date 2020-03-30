@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ys9noy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YqVUXi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】3月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c13ea90eab89181d7de5cac7d1bc7c83408cf26.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c13ea90eab89181d7de5cac7d1bc7c83408cf26
 
 下载BT种子 [病毒針對共產黨而來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37e9ed52c99b1993ccbfbaac32d67f35448e36db.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】3月25日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/773e5dc472f897c68f09302ba75e571b42fcfb4a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:773e5dc472f897c68f09302ba75e571b42fcfb4a
-
-下载BT种子 [天價治療費自負🤢，武漢醫生要家屬「六親不認」😱！中共密令曝光，甩鍋因為「禍太大」歐盟警告小心中共「慷慨政治」印度封國、英國禁足，新西蘭緊急狀態。【新聞看點李沐陽03.25】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/965b04db054365784c05e831369f9a9b723acdf0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:965b04db054365784c05e831369f9a9b723acdf0
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
