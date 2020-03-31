@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dQrbNu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xmKZDP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「中南海大動盪：習近平發小兒陳平再談-晚節不保」涉及習家貪腐中國夢普世價值「王岐山最清楚胡錦濤劉源胡德平」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18.torrent)
+
+磁力链接 magnet:?xt=urn:btih:83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18
+
+下载BT种子 [【全球疫情直擊】海外感染70萬高峰未到紐約成美國武漢確診人數飆升紐約中央公園建野戰醫院舒適號醫療船抵達紐約華人超市紛紛關店香港人報恩捐50萬口罩援助美國醫護湖北人持綠碼入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac312713f3836d237eb42ac2b11fada61b4dffe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3ac312713f3836d237eb42ac2b11fada61b4dffe
+
+下载BT种子 [【中國禁聞】3月30日完整版（字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92a3c039c732fc2dd5115a50aeac73e912b8ff92.torrent)
+
+磁力链接 magnet:?xt=urn:btih:92a3c039c732fc2dd5115a50aeac73e912b8ff92
+
+下载BT种子 [【环球直击】3月31日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a07ed05a4c3569e992cd57642270ceab4c63dbd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a07ed05a4c3569e992cd57642270ceab4c63dbd
+
+下载BT种子 [【全球新闻】3月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89588c811fd586d581157db1bb9a8284213b846c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89588c811fd586d581157db1bb9a8284213b846c
+
+下载BT种子 [盼用鮮血喚良知昔日小粉紅喊：共產黨下課.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6248683b5da584820e86ba3fe7bfc04586c7d9d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6248683b5da584820e86ba3fe7bfc04586c7d9d4
 
 下载BT种子 [【重播】3.31媒體聯訪陳時中基隆市防疫演習現場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a631aefb6233920118c4c8063ca2244ccdd134c.torrent)
 
@@ -616,10 +640,6 @@
 下载BT种子 [中共病毒來襲美國單週增328萬失業人口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff568d43ed9c5528322dd31c6e866623848f7ec4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ff568d43ed9c5528322dd31c6e866623848f7ec4
-
-下载BT种子 [「未見人傳人拒過度反應」世衛被指偏袒中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e8406dfa31ebd8990a5bfb703a1cb77f4ced19f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e8406dfa31ebd8990a5bfb703a1cb77f4ced19f
 
 下载BT种子 [蓬佩奧﹕七國集團外長將共同抵制中共針對這場瘟疫的假消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/681ba1ec8dfa9a49cca634d3aba8b573d5f2ac66.torrent)
 
