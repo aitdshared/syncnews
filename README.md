@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yUjQnu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Z5P6VN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】3月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a536b30dcb468dc9cb3310a5bba4960afebea35e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a536b30dcb468dc9cb3310a5bba4960afebea35e
 
 下载BT种子 [慶功！中共外交部耿爽離奇預言給習近平成功挖坑！世界各國感謝中共，感謝清單出爐啦……（老北京茶館第277集20200330）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e8aacaf0b7d32e1ae0bdc301493bfd6f882676.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】美媒中共后病毒战略利用疫情称霸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/565ea0fbdd8930b99344f864fd00a490afc1f54e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:565ea0fbdd8930b99344f864fd00a490afc1f54e
-
-下载BT种子 [【禁闻】甩锅美国遭反击中共对外三喉舌齐改口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c6898c8583792586c241650beb2efa6034a963e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c6898c8583792586c241650beb2efa6034a963e
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
