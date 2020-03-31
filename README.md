@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0pEpPO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6VWhT0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】ICU里的谋杀大陆医生揭医院黑幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ce1ba4a3e0b00c1ced35b3e72ac263cd477cf6c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9ce1ba4a3e0b00c1ced35b3e72ac263cd477cf6c
 
 下载BT种子 [對比美中疫情處理武漢市民：還是美國好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/565c5ca7ddb22ab8f09db6246795c75f87c4e756.torrent)
 
