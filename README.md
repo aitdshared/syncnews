@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qP99oJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0pEpPO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [對比美中疫情處理武漢市民：還是美國好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/565c5ca7ddb22ab8f09db6246795c75f87c4e756.torrent)
+
+磁力链接 magnet:?xt=urn:btih:565c5ca7ddb22ab8f09db6246795c75f87c4e756
+
+下载BT种子 [華人回國被封門留學生談回國後的遭遇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26381a5c933a03f477e198673d656a2e6d4458c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:26381a5c933a03f477e198673d656a2e6d4458c2
+
+下载BT种子 [中共及伊朗散佈假信息蓬佩奧再次批中共散佈假信息蓬佩奧表示要警惕中共援助各國的宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a8035ee331d9790d0a531fb633a20cf459784b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a8035ee331d9790d0a531fb633a20cf459784b5
+
+下载BT种子 [中共散毒再甩鍋意大利記者：為什麼意大利人對中共不滿要求「戰爭賠償」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b04609a6102285d068ac798c9dd3ab70f49d82e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2b04609a6102285d068ac798c9dd3ab70f49d82e
+
+下载BT种子 [口罩外交、甩鍋病毒，中共想扭轉貿易戰？小粉紅翻墻覺醒，盼共產黨滅亡（2020.3.31）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dacfa25ba96f6e7db8a22084683a260374631243.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dacfa25ba96f6e7db8a22084683a260374631243
 
 下载BT种子 [《石濤.News》「中南海大動盪：習近平發小兒陳平再談-晚節不保」涉及習家貪腐中國夢普世價值「王岐山最清楚胡錦濤劉源胡德平」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18.torrent)
 
@@ -596,18 +616,6 @@
 下载BT种子 [【环球直击】3月27日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46cf62d9773c9288a0363c80ab492a29ff4c8ada.torrent)
 
 磁力链接 magnet:?xt=urn:btih:46cf62d9773c9288a0363c80ab492a29ff4c8ada
-
-下载BT种子 [G20疫情峰會習近平透露甚麼信號；武漢清零？發燒仍頻傳；NBC集團CEO確診，跟中共靠太近？（2020.3.27）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ea5158c1234c0050b572f0ae54ea4777e0a4385.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8ea5158c1234c0050b572f0ae54ea4777e0a4385
-
-下载BT种子 [天下苦中共久矣，就算中国人沉默，外国人也不会放过中共的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ca2a22748d9c3591802ba75c80c470d9e27c9c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0ca2a22748d9c3591802ba75c80c470d9e27c9c3
-
-下载BT种子 [南海發導彈、美艦過台灣海峽、國會索賠，美國行動力對抗中共嘴上功夫；外交外宣齊轉風，保G20習近平的面子（江峰漫談20200327第144期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/670c77c0808d680aa5cd9fd986f0a6bcac05d31e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:670c77c0808d680aa5cd9fd986f0a6bcac05d31e
 
 下载BT种子 [🈲️拿人做藥物實驗？武漢監獄378無名氏；補助三千換不哭！武漢領骨灰排長隊；中共禁外國人入境，病毒全網改稱不明肺炎，要以疫苗交換利益？中國750公司破產10萬註銷；加州大量坦克新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67e6ab7108d5e82f86a5cdbe58ecb94f81fdab1d.torrent)
 
