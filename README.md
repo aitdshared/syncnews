@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Z5P6VN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1WwxqP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】瞄准推特中共外宣手法遭曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4f970bdeaeff7788230165b1f62fbaef73a56ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4f970bdeaeff7788230165b1f62fbaef73a56ae
 
 下载BT种子 [【中国禁闻】3月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a536b30dcb468dc9cb3310a5bba4960afebea35e.torrent)
 
@@ -609,17 +613,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ecce874e94a76a177ff76ee99d23e1479b028220
 
-下载BT种子 [高层动态，韩正去向不明！围观中美日：三个情景的生动对照.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27ab9aa140fe4002ded67ea8d0a310ff43237086.torrent)
-
-磁力链接 magnet:?xt=urn:btih:27ab9aa140fe4002ded67ea8d0a310ff43237086
-
 下载BT种子 [《石濤聚焦》「美國損失50萬個百萬富翁頂級富豪喪失4.5千億」川普聲言“4月12日是個好日子復活節-復工”「瘟神呂岳三頭六臂7件寶物冠狀病毒武漢肺炎-中共病毒-人間第七種」奇妙難言表幾家苦歡愁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/489db9157ef5e862654fa8825219aa75438ccf65.torrent)
 
 磁力链接 magnet:?xt=urn:btih:489db9157ef5e862654fa8825219aa75438ccf65
-
-下载BT种子 [【禁闻】美媒中共后病毒战略利用疫情称霸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/565ea0fbdd8930b99344f864fd00a490afc1f54e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:565ea0fbdd8930b99344f864fd00a490afc1f54e
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
