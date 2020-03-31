@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zKClH4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dX86mO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】3月31日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50eb451f0686b2922f2634ffa2d73a803a5128ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:50eb451f0686b2922f2634ffa2d73a803a5128ef
+
+下载BT种子 [【禁闻】武汉死了多少人法国媒体集体质疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7379d144a6f370ab7002b92393f5f8e20c2362c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7379d144a6f370ab7002b92393f5f8e20c2362c5
 
 下载BT种子 [【禁闻】谋财害命中共向世界输出劣质防疫用品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65929d4cf3b60d13b58c91b905d4e3830ccd5c09.torrent)
 
