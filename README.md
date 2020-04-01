@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/57o9Ad)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fi0GZC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「蔡英文震驚全球：捐贈1000萬口罩」歐盟主席歷史性稱讚澳洲禁止醫護用品出口中國新西蘭唯一死亡女士：我已擁有美好一生把生的機會留給年輕人吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f1da28706aa699d4c519e94bcd1d0c84b344a8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6f1da28706aa699d4c519e94bcd1d0c84b344a8
 
 下载BT种子 [《石濤聚焦》「聯合國-可能爆發糧食危機全球供應鏈太脆弱」重慶再搶糧越南泰國等限制糧食出口美國法國疫情嚴重直接威脅糧食進口國中共國4.2億人每日消費進口糧（0104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d500e319d54c61835b35daff25dcc5640bf8a51.torrent)
 
@@ -564,10 +568,6 @@
 下载BT种子 [《石濤聚焦》「奇特事實：美國疫情最嚴重10個州民主黨分攤8個半」感染者的80%過世者75%總統大選民主黨競選者：桑德斯-社會主義者拜登-拒絕透露拿了中共多少錢「第一顧問拉里剛被中共病毒擊斃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15e014437423e177ffb2e5f943af84080b986db6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15e014437423e177ffb2e5f943af84080b986db6
-
-下载BT种子 [紐約州死亡率持續飆升曼哈頓臨時醫院竣工容1000個床位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/920133f40ca6fbc75f08050f22e81eea62ec623e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:920133f40ca6fbc75f08050f22e81eea62ec623e
 
 下载BT种子 [美國確診超過10萬人川普令趕工10萬呼吸器納瓦羅督軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ae9f001f776f2693c1f34bb3fd0a8cd6b45a907.torrent)
 
