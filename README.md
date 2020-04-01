@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M6jr7Q)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3csvOG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月1日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f5814e1c23262b6c6742c408014f05097f88e92.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6f5814e1c23262b6c6742c408014f05097f88e92
+
+下载BT种子 [庫默的弟弟確診感染州長稱低估疫情專家：與中共為伍傷害深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e976d4e9fbf7bd108c0cfb6c821b31dd2bbb86e7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e976d4e9fbf7bd108c0cfb6c821b31dd2bbb86e7
+
+下载BT种子 [8萬醫護願援紐約華人捐口罩助醫院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f362e88e3748c4daef5f12a7190b02b087dd2960.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f362e88e3748c4daef5f12a7190b02b087dd2960
 
 下载BT种子 [疫情關鍵時刻白宮新幕僚長梅多斯上任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90d0d911eac2b79dc7cda6bd4de9186aa906eadb.torrent)
 
@@ -580,22 +592,6 @@
 下载BT种子 [【禁闻】染疫死亡率全美最高华州与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a
-
-下载BT种子 [中共病毒詭！專家：患者有抗體仍排毒疫苗有效？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/786131ee792f75142f5722243dc8152fcdaf943e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:786131ee792f75142f5722243dc8152fcdaf943e
-
-下载BT种子 [川普簽《台北法案》疫情下強化美台關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd
-
-下载BT种子 [中共病毒攻陷199國地區歐洲疫情慘重中國大陸以外確診衝破50萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55ee075e6e285a31d21de56ee95c392cdeae9e02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55ee075e6e285a31d21de56ee95c392cdeae9e02
-
-下载BT种子 [繼王儲確診感染後英國首相及衛生大臣也先後宣布確診感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ca46193019096c03bb2b62b3e79f7f36529fcce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8ca46193019096c03bb2b62b3e79f7f36529fcce
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
