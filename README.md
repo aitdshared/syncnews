@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D8cVNv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qrk7t7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「聯合國-可能爆發糧食危機全球供應鏈太脆弱」重慶再搶糧越南泰國等限制糧食出口美國法國疫情嚴重直接威脅糧食進口國中共國4.2億人每日消費進口糧（0104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d500e319d54c61835b35daff25dcc5640bf8a51.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5d500e319d54c61835b35daff25dcc5640bf8a51
+
+下载BT种子 [【环球直击】4月1日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/559b901305b37728c72ff838a8294fef837589d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:559b901305b37728c72ff838a8294fef837589d0
 
 下载BT种子 [【探索与洞见】预告片.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7514106847833245232d9eb066c1608f3e579f66.torrent)
 
@@ -584,14 +592,6 @@
 下载BT种子 [包機接人陳時中提湖北解封衝突：盼勿生變數.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3bd73e21b54245faea0cce5b7f435c3034d82e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9b3bd73e21b54245faea0cce5b7f435c3034d82e
-
-下载BT种子 [美國務院：中共發現散佈病毒來自美國沒市場後轉向宣傳自己了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c070dd1e822c485365c57398afad05441945bae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c070dd1e822c485365c57398afad05441945bae
-
-下载BT种子 [微信售賣「中共病毒」自測試劑FDA：別上當.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e2fc83a747dce45e45e5334d9f93f863952f8b9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e2fc83a747dce45e45e5334d9f93f863952f8b9
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
