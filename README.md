@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/64luqK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lYJJax)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「路透：趙立堅戰狼外交習近平親自部署」‘腚於一尊’習總只是聢-屁股王滬寧為尊-習思想之創造「任志強依在醫院」（0104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126c58cfb2d75c9da55fd7fc719c7c8b63d46c5c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:126c58cfb2d75c9da55fd7fc719c7c8b63d46c5c
 
 下载BT种子 [《危難時刻》有良方《歸途》將網絡首映.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f45af540d0052e2883052092a7c038cc0947dec.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [江西湖北警察激烈衝突，四大挑戰衝擊中共；美中台緊張台海要開戰？（2020.3.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b4de27204386aec1f593fdcb866065ec1e57505.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5b4de27204386aec1f593fdcb866065ec1e57505
-
-下载BT种子 [20天内，首尔1600家餐厅关门，猜猜韩国政府给民众发多少钱？韩国的经济模式或导致大量人口失业.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e5cd7ac7a2d33f3440877d8ebe00e08cbd7071.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55e5cd7ac7a2d33f3440877d8ebe00e08cbd7071
 
 下载BT种子 [馬雲、柳傳志民企大家上書，李瑞環、溫家寶五老上書，中共政權飄零；川習通話，川普被騙背書習近平？美國兩萬億救濟金讓權貴走開（江峰漫談20200328第145期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1626ed6c8eca003cf842ed8b11ceaa5607e5393b.torrent)
 
