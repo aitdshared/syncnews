@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Vo5qAu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D8cVNv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【探索与洞见】预告片.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7514106847833245232d9eb066c1608f3e579f66.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7514106847833245232d9eb066c1608f3e579f66
 
 下载BT种子 [《石濤聚焦》「路透：趙立堅戰狼外交習近平親自部署」‘腚於一尊’習總只是聢-屁股王滬寧為尊-習思想之創造「任志強依在醫院」（0104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126c58cfb2d75c9da55fd7fc719c7c8b63d46c5c.torrent)
 
@@ -588,26 +592,6 @@
 下载BT种子 [微信售賣「中共病毒」自測試劑FDA：別上當.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e2fc83a747dce45e45e5334d9f93f863952f8b9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6e2fc83a747dce45e45e5334d9f93f863952f8b9
-
-下载BT种子 [江西湖北警察激烈衝突，四大挑戰衝擊中共；美中台緊張台海要開戰？（2020.3.28）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b4de27204386aec1f593fdcb866065ec1e57505.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b4de27204386aec1f593fdcb866065ec1e57505
-
-下载BT种子 [馬雲、柳傳志民企大家上書，李瑞環、溫家寶五老上書，中共政權飄零；川習通話，川普被騙背書習近平？美國兩萬億救濟金讓權貴走開（江峰漫談20200328第145期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1626ed6c8eca003cf842ed8b11ceaa5607e5393b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1626ed6c8eca003cf842ed8b11ceaa5607e5393b
-
-下载BT种子 [《濤哥侃封神》「封神演義第叄十七回姜子牙一上崑崙」哪吒打斷張桂芳筋骨子牙回崑崙求法退商兵天尊不理凡間事親授封神切叮囑『誰叫你也莫回頭』姜尚根淺悟性差不尊師囑難逃劫（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/233a49d1b757fcda482b32c338d5293124e7fb9d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:233a49d1b757fcda482b32c338d5293124e7fb9d
-
-下载BT种子 [【全球新闻】3月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbbd549e9d233cf7812851123a2e791d4ba4d4b9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bbbd549e9d233cf7812851123a2e791d4ba4d4b9
-
-下载BT种子 [【禁闻】染疫死亡率全美最高华州与中共关系透视.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc6fc70c87ce42d745a4e9ce60a9bf1d8f7c162a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
