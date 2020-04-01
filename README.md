@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QC57qD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/81GJTl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情還沒爆發，軍方就研製疫苗？🧐病毒去年10月已肆虐？😷全球病毒可溯源中國👈🏻（2020.04.01)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0776ee6edf1c698546930184714921a4eb5d3587.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0776ee6edf1c698546930184714921a4eb5d3587
 
 下载BT种子 [【中國禁聞】3月31日完整版（有字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/190026560f4778fc36b36f778e10c1ad81ce79df.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [川普簽《台北法案》疫情下強化美台關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd
-
-下载BT种子 [川普簽22萬億援助法案抗中共病毒美國史上金額最大援助法案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02de566767b1374279813c4b7f678c9c868f6205.torrent)
-
-磁力链接 magnet:?xt=urn:btih:02de566767b1374279813c4b7f678c9c868f6205
 
 下载BT种子 [中共病毒攻陷199國地區歐洲疫情慘重中國大陸以外確診衝破50萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55ee075e6e285a31d21de56ee95c392cdeae9e02.torrent)
 
