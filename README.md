@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RjDxUB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PENiAq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】向中共靠拢NBA十几名球员染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/488c3e03f5582398c511c3b281d071ff9cdbb2d3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:488c3e03f5582398c511c3b281d071ff9cdbb2d3
 
 下载BT种子 [糧食短缺迫近，要備糧備荒嗎？川普做最壞交底，習近平呢？（文昭談古論今20200401第728期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/458f4be0f8672d6e880354232a5556260c4d52b0.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [《石濤聚焦》「奇特事實：美國疫情最嚴重10個州民主黨分攤8個半」感染者的80%過世者75%總統大選民主黨競選者：桑德斯-社會主義者拜登-拒絕透露拿了中共多少錢「第一顧問拉里剛被中共病毒擊斃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15e014437423e177ffb2e5f943af84080b986db6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15e014437423e177ffb2e5f943af84080b986db6
-
-下载BT种子 [中共肺炎肆虐全球超過了53萬人馬克龍：不要被宣傳毒害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39b53cbd478487d97c15eb4dd6066dd559221211.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39b53cbd478487d97c15eb4dd6066dd559221211
 
 下载BT种子 [【环球直击】3月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e859634f8a22a87f199755f54e82ae53176a60.torrent)
 
