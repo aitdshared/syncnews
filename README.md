@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IeXCOl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Fv7M19)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [應對中共假信息戰？美國歷數援助各國抗疫蓬佩奧：美國遠超中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a2bebdfff8797c61808d71f24b34a65f4495499.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a2bebdfff8797c61808d71f24b34a65f4495499
+
+下载BT种子 [美國公佈防疫指南專家預估死亡過10萬川普：未來30天很關鍵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef701d876c8faaebfd905738fbee76ceb0666f8e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef701d876c8faaebfd905738fbee76ceb0666f8e
+
+下载BT种子 [美國領取$1200援助金專家：三方面要求才有領取援助金資格.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a48c3a5139c67260778d95296746a846824124f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a48c3a5139c67260778d95296746a846824124f
 
 下载BT种子 [森林大火火勢一度直逼西昌市區造成近二十名消防員死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/265c2d0741403d059482bfb413fb01f82c1d83da.torrent)
 
@@ -576,10 +588,6 @@
 下载BT种子 [20天内，首尔1600家餐厅关门，猜猜韩国政府给民众发多少钱？韩国的经济模式或导致大量人口失业.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55e5cd7ac7a2d33f3440877d8ebe00e08cbd7071.torrent)
 
 磁力链接 magnet:?xt=urn:btih:55e5cd7ac7a2d33f3440877d8ebe00e08cbd7071
-
-下载BT种子 [【百姓自拍】什麼情況！湖北黃梅警察與民眾一起跟江西警察干架了。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7122cb7457de283349bd44589408551e2e65d983.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7122cb7457de283349bd44589408551e2e65d983
 
 下载BT种子 [🔥救任志強、並要求政改！馬雲等富商上書中共；溫家寶等五老上書，中央震動；習近平G20視頻會照片有玄機；武漢骨灰盒數目驚人！209人發熱！貴州高中集體感染是腸炎？英首相染病毒新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66cb2c001196540a287c0c88457778ae3c2b54fb.torrent)
 
