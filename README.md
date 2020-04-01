@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u3e1ws)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6ePLjc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】3月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7147bc2c537c5e6844c708657972c5d185b0ac1c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7147bc2c537c5e6844c708657972c5d185b0ac1c
 
 下载BT种子 [【禁闻】3月31日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50eb451f0686b2922f2634ffa2d73a803a5128ef.torrent)
 
@@ -588,34 +592,6 @@
 下载BT种子 [【禁闻】“病毒携带者”是他？全球连署要谭德塞下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/213c6e2c7e7c03958fffd86f962a03140021f94f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:213c6e2c7e7c03958fffd86f962a03140021f94f
-
-下载BT种子 [湖北多地解封後被江西公安入境兩省公安混戰警車被掀翻上萬民眾加入混戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbfa6b738a46fa8e0c5aa8e80d3e2f02dac8518c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bbfa6b738a46fa8e0c5aa8e80d3e2f02dac8518c
-
-下载BT种子 [【禁闻】500万武汉人移动轨迹与全球疫情吻合.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ea2be159b454ad2813c6ac205e9845c523c704.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97ea2be159b454ad2813c6ac205e9845c523c704
-
-下载BT种子 [【禁闻】3月26日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/741e3f4c75c7a175f39cda45e1c39d7d5739e947.torrent)
-
-磁力链接 magnet:?xt=urn:btih:741e3f4c75c7a175f39cda45e1c39d7d5739e947
-
-下载BT种子 [【禁闻】防中共获得救援金美议员提《禁中国法案》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8248f9f8696924929ab2ea2302e5b149495b52b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e8248f9f8696924929ab2ea2302e5b149495b52b
-
-下载BT种子 [【中国禁闻】3月26日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44d90e0c6573ab3d41f22aa255f50c27a49e3395.torrent)
-
-磁力链接 magnet:?xt=urn:btih:44d90e0c6573ab3d41f22aa255f50c27a49e3395
-
-下载BT种子 [高层动态，韩正不知去向！中美日：三个情景的对照。心动时刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecce874e94a76a177ff76ee99d23e1479b028220.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecce874e94a76a177ff76ee99d23e1479b028220
-
-下载BT种子 [《石濤聚焦》「美國損失50萬個百萬富翁頂級富豪喪失4.5千億」川普聲言“4月12日是個好日子復活節-復工”「瘟神呂岳三頭六臂7件寶物冠狀病毒武漢肺炎-中共病毒-人間第七種」奇妙難言表幾家苦歡愁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/489db9157ef5e862654fa8825219aa75438ccf65.torrent)
-
-磁力链接 magnet:?xt=urn:btih:489db9157ef5e862654fa8825219aa75438ccf65
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
