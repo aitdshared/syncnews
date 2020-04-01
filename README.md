@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D8s5fa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QC57qD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】3月31日完整版（有字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/190026560f4778fc36b36f778e10c1ad81ce79df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:190026560f4778fc36b36f778e10c1ad81ce79df
 
 下载BT种子 [🇺🇳聯合國：糧荒迫近！買光口罩不給美國留，華女佛州被舉報；早有預謀？中共買空全球醫療物資；任志強新視頻；中國開始隔離無症患者；武漢緊急叫停公交火車；額溫槍故障，怎麼測都發燒新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/802a70b7b4590de3ce8e068d96c4d845449ff36d.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [中共病毒詭！專家：患者有抗體仍排毒疫苗有效？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/786131ee792f75142f5722243dc8152fcdaf943e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:786131ee792f75142f5722243dc8152fcdaf943e
-
-下载BT种子 [兩萬億美元經濟刺激方案通過我能拿到多少？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c29b8035a5ed686104e22bf96002bb718e386b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c29b8035a5ed686104e22bf96002bb718e386b7
 
 下载BT种子 [川普簽《台北法案》疫情下強化美台關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c95f3ea6fd16d8c892f32b57f2fd4c17f512bccd.torrent)
 
