@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oZATq8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8P4CPa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「瑞典媒體稱：習總病毒-中共國製造」蔡英文震驚全球：捐贈1000萬口罩歐盟主席歷史性稱讚澳洲禁止醫護用品出口中國新西蘭唯一死亡女士「我已擁有美好一生機會留給年輕人吧」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82a7df96d87d4027b2d0c92ca95cded7be32a596.torrent)
+
+磁力链接 magnet:?xt=urn:btih:82a7df96d87d4027b2d0c92ca95cded7be32a596
 
 下载BT种子 [《石濤聚焦》「蔡英文震驚全球：捐贈1000萬口罩」歐盟主席歷史性稱讚澳洲禁止醫護用品出口中國新西蘭唯一死亡女士：我已擁有美好一生把生的機會留給年輕人吧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f1da28706aa699d4c519e94bcd1d0c84b344a8.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [美國洛杉磯確診染疫者四天翻三倍美國海軍醫療船「仁慈號」靠港就緒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db73a0e5bb8f2a92cdabf5dcf15eaaecea7add80.torrent)
 
 磁力链接 magnet:?xt=urn:btih:db73a0e5bb8f2a92cdabf5dcf15eaaecea7add80
-
-下载BT种子 [包機接人陳時中提湖北解封衝突：盼勿生變數.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3bd73e21b54245faea0cce5b7f435c3034d82e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b3bd73e21b54245faea0cce5b7f435c3034d82e
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
