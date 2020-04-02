@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4UqW0Z)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lYhUox)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國總統约翰肯尼迪大去之日突然降臨！是外星人干的嗎？（探索與洞見第001集老北京茶館20200401）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2b0cfb67cc7c09a6b69106b331f22bf9486ff4e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f2b0cfb67cc7c09a6b69106b331f22bf9486ff4e
 
 下载BT种子 [经济困境中，韩国人居然这么做，您也会这么做吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/055bc96d4fd7e45ed76a1db978b17f71e361621c.torrent)
 
