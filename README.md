@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tTW0IN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6dEosB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「橫掃佛州的‘漂亮’東北女人再視頻-向粉絲呼籲」被揭底“2018年因家暴被抓”專營網購直言「本想息事寧人為了祖國為心無愧身正不怕影子斜」網友反饋「很中國」（0204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd8cb487d2989c00619379e4f4a56d43310cb45.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dfd8cb487d2989c00619379e4f4a56d43310cb45
+
+下载BT种子 [美情深重，纽约人为何不逃不抢不乱？高层内战：某常委大胆提议，习近平一票否决.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/201947327a8d8558fa1374a0a60a2e7cf128af4b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:201947327a8d8558fa1374a0a60a2e7cf128af4b
 
 下载BT种子 [三公民記者查疫情真相被抓美議員籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd8488c946bb30ef29df3b749e29fbde458fc11.torrent)
 
@@ -581,17 +589,9 @@
 
 磁力链接 magnet:?xt=urn:btih:5042381f239d8f5c3bef5dd0dd9f402daaf5df6e
 
-下载BT种子 [【禁闻】3月29日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6be8a2b89f2a2b0cd592c7268a2e4a4ea51f8e7b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6be8a2b89f2a2b0cd592c7268a2e4a4ea51f8e7b
-
 下载BT种子 [【禁闻】江西拒湖北人入境酿大冲突祸根在北京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a6974562c2598cce1bd89d9d5129c6ad29bf675.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a6974562c2598cce1bd89d9d5129c6ad29bf675
-
-下载BT种子 [【禁闻】前凤凰网记者揭秘中共疫情宣传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb6fad5cc9e013640ea9027f8407c937a0b63930.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fb6fad5cc9e013640ea9027f8407c937a0b63930
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
