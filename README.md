@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lYhUox)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/46CELG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -592,10 +592,6 @@
 下载BT种子 [與習近平通話談疫情川普：我問他何時知道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0607660a5e8429067c3819606c48f2376407c6e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c0607660a5e8429067c3819606c48f2376407c6e
-
-下载BT种子 [舒適號軍艦起航川普：考慮隔離紐約等三州.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7c06c933ffb6a8af759b0ddf3e32bfee3689918.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d7c06c933ffb6a8af759b0ddf3e32bfee3689918
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
