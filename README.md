@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QaGDxq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4UqW0Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [经济困境中，韩国人居然这么做，您也会这么做吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/055bc96d4fd7e45ed76a1db978b17f71e361621c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:055bc96d4fd7e45ed76a1db978b17f71e361621c
+
+下载BT种子 [【禁闻】4月1日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a173d845d338bab4706db93820b02e27a9ee6e89.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a173d845d338bab4706db93820b02e27a9ee6e89
 
 下载BT种子 [📣回應網友：為何美國疫情重？二戰後的最嚴重危機出現💥！美國可能死亡20萬？😱㊙️趙立堅叛逃美國？美中醫療水平的差距，疫情終點「還很遙遠」，游動炸彈有多少？💣💣💣健康碼成控制工具？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b392cd6b502477ecb6b38442f8135fd481cd8a1d.torrent)
 
@@ -584,14 +592,6 @@
 下载BT种子 [舒適號軍艦起航川普：考慮隔離紐約等三州.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7c06c933ffb6a8af759b0ddf3e32bfee3689918.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d7c06c933ffb6a8af759b0ddf3e32bfee3689918
-
-下载BT种子 [西班牙「紅色公主」死於中共病毒全球第一位因中共病毒去世的王室成員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db609f517cd7a7d870957210fc5dfdc22f4aa61e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db609f517cd7a7d870957210fc5dfdc22f4aa61e
-
-下载BT种子 [中共病毒美國重災區直擊紐約客超強DIY防疫裝街頭教你防疫（cc字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38c612e98c2d3ed01d72993971e9a34d7528be36.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38c612e98c2d3ed01d72993971e9a34d7528be36
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
