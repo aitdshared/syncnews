@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eHNxAE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JM739e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三公民記者查疫情真相被抓美議員籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd8488c946bb30ef29df3b749e29fbde458fc11.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6bd8488c946bb30ef29df3b749e29fbde458fc11
+
+下载BT种子 [全球感染人數逼近100萬美軍航空母艦已確診近百人西班牙超過1萬人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/446231ee49aeaf9ef131cd6f6d92325655ddacb1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:446231ee49aeaf9ef131cd6f6d92325655ddacb1
+
+下载BT种子 [《石濤.News》「中共病毒-武漢肺炎正式突破100萬死亡破5萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a6ad8105c81aa1dada82f5485cde13d59f9031f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a6ad8105c81aa1dada82f5485cde13d59f9031f
+
+下载BT种子 [紐約中央公園野戰醫院啟用直擊患者收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79b5eed69581195b71faf13da643c8db5aee69fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:79b5eed69581195b71faf13da643c8db5aee69fb
+
+下载BT种子 [川普再提中共數據不實警告伊朗如果偷襲美軍將付出沉重代價.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d77a068fd1c4fce5e08f4314d77fe4008fd601ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d77a068fd1c4fce5e08f4314d77fe4008fd601ec
 
 下载BT种子 [【重播】4.2紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87ccaafd88fa5c60643d766ea2a472bcdf1fb1f6.torrent)
 
@@ -572,30 +592,6 @@
 下载BT种子 [【禁闻】前凤凰网记者揭秘中共疫情宣传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb6fad5cc9e013640ea9027f8407c937a0b63930.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fb6fad5cc9e013640ea9027f8407c937a0b63930
-
-下载BT种子 [【禁闻】荷兰弃用130万个中国劣质口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ec54b9ad9186be19c22222f7600747eb7764a94.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7ec54b9ad9186be19c22222f7600747eb7764a94
-
-下载BT种子 [大事情！习近平顶不住了，接班人出炉！副主席发挥关键作用。全球退货中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c685402e60cce96ae44a76149c98d45febd67fdd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c685402e60cce96ae44a76149c98d45febd67fdd
-
-下载BT种子 [【禁闻】蓬佩奥：中共对我们的健康构成重大威胁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0afa5f18400233a63e2ba5a97a81d68207403813.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0afa5f18400233a63e2ba5a97a81d68207403813
-
-下载BT种子 [习近平顶不住了，接班人出炉！副主席发挥关键作用。全球退货中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa67eb37d452b7cec430c0d754d8981115a9b529.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa67eb37d452b7cec430c0d754d8981115a9b529
-
-下载BT种子 [《石濤聚焦》「大批烏鴉突襲華盛頓州大量蝙蝠暴斃以色列」瘟疫醫師源自路易十三御醫-黑死病烏鴉曾出現武漢北京「神之憤怒降災瘟疫懲罰出自聖經記載」（2903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3df3176f952cbec37574d58135b4a96ee041aa74.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3df3176f952cbec37574d58135b4a96ee041aa74
-
-下载BT种子 [【环球直击】3月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/871219b89e241f57e9d39384e0f9dc9e4ca67566.torrent)
-
-磁力链接 magnet:?xt=urn:btih:871219b89e241f57e9d39384e0f9dc9e4ca67566
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
