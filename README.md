@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YAdQlv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iuNZIO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】多地出现无症状感染者传播病毒引担忧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/307bee1c830690708a21fda4fee6a29a3b50e9c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:307bee1c830690708a21fda4fee6a29a3b50e9c4
+
+下载BT种子 [【中国禁闻】4月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6414d7015c1e8935388f3e6cc2c443456e24283c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6414d7015c1e8935388f3e6cc2c443456e24283c
+
+下载BT种子 [【禁闻】蔡英文：向疫情严重国家捐一千万片口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef5a0885d5cdd456bb95c90a3f9d890b5fb3eba0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef5a0885d5cdd456bb95c90a3f9d890b5fb3eba0
+
+下载BT种子 [【禁闻】4月1日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8ff9a05da1914ffef50de4ac2f51eb087e54ac7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c8ff9a05da1914ffef50de4ac2f51eb087e54ac7
 
 下载BT种子 [聯合國專家擔心全球的糧食供應鏈中共密令屯糧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45d124ab0fe7e92913edae754e54782927439108.torrent)
 
@@ -576,22 +592,6 @@
 下载BT种子 [副总理因何事大笑？王沪宁指控官员：对习近平失去信仰！北朝鲜金氏神药.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c29ba5efbe077f6778007bcaab5d714ce4884086.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c29ba5efbe077f6778007bcaab5d714ce4884086
-
-下载BT种子 [【百姓聲音】外國政府忙著給自己人民發援助金中共忙著給外國大撒幣中國百姓呢？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0953d79b5893491b50249bb97a8cde06ed91acd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f0953d79b5893491b50249bb97a8cde06ed91acd
-
-下载BT种子 [《石濤.News》「網傳：王岐山辭職相逼朱鎔基介入任志強自由3天」政治局昨天27日開會「中南海黑雲壓城難脫大劫年」（2803）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f98445b1f9415940b1ea27d3b12fdb114102ab7c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f98445b1f9415940b1ea27d3b12fdb114102ab7c
-
-下载BT种子 [【百姓聲音】復工不到一個月又放假三個月員工都一臉愁容大陸多少工廠一片沉寂和蕭條！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b717e999f87703d1dec53448b467da4e197ad7a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1b717e999f87703d1dec53448b467da4e197ad7a
-
-下载BT种子 [【百姓聲音】武漢人仍要小心從方艙回來的表哥結果昨天晚上就走了才40歲精神很好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20620ac21f143de3ee8d1948b3344c1c1b896c46.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20620ac21f143de3ee8d1948b3344c1c1b896c46
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
