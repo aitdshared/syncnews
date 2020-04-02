@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3Uwj9T)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PIUcIv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -588,10 +588,6 @@
 下载BT种子 [《石濤聚焦》「美軍派指揮小組進駐「核末日庇護所」」美国在做最坏打算州界之间出现隔离动用州警与國民衛隊（2903）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91913771f462819fbe6a868da0c06c650f9fc1a7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:91913771f462819fbe6a868da0c06c650f9fc1a7
-
-下载BT种子 [《石濤聚焦》「日媒：王岐山出生7月1日白羽鳥撞山更具意義？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b181ab1b5cfce6e9d2f786d9c3604e744b55f319.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b181ab1b5cfce6e9d2f786d9c3604e744b55f319
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
