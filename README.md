@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iuNZIO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XSKfQT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [📣回應網友：為何美國疫情重？二戰後的最嚴重危機出現💥！美國可能死亡20萬？😱㊙️趙立堅叛逃美國？美中醫療水平的差距，疫情終點「還很遙遠」，游動炸彈有多少？💣💣💣健康碼成控制工具？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b392cd6b502477ecb6b38442f8135fd481cd8a1d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b392cd6b502477ecb6b38442f8135fd481cd8a1d
 
 下载BT种子 [【禁闻】多地出现无症状感染者传播病毒引担忧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/307bee1c830690708a21fda4fee6a29a3b50e9c4.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [中共病毒美國重災區直擊紐約客超強DIY防疫裝街頭教你防疫（cc字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38c612e98c2d3ed01d72993971e9a34d7528be36.torrent)
 
 磁力链接 magnet:?xt=urn:btih:38c612e98c2d3ed01d72993971e9a34d7528be36
-
-下载BT种子 [副总理因何事大笑？王沪宁指控官员：对习近平失去信仰！北朝鲜金氏神药.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c29ba5efbe077f6778007bcaab5d714ce4884086.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c29ba5efbe077f6778007bcaab5d714ce4884086
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
