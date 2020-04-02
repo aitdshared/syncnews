@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7EO9kK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3Uwj9T)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [受中共病毒影響中國經濟損失慘重株洲數百商戶聚集政府門口要求減租.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/459c62ec04325df3b28c4d565675f46df80696da.torrent)
+
+磁力链接 magnet:?xt=urn:btih:459c62ec04325df3b28c4d565675f46df80696da
+
+下载BT种子 [武漢最近頻傳新疫情市民惶恐不安市內交通系統也再次暫停.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8d6597f72a101fcb0b3e03a1a8c431602dbc025.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8d6597f72a101fcb0b3e03a1a8c431602dbc025
 
 下载BT种子 [【中國禁聞】4月1日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb4e895fb083747e2cece9bd8d0c55a65b217d61.torrent)
 
@@ -584,14 +592,6 @@
 下载BT种子 [《石濤聚焦》「日媒：王岐山出生7月1日白羽鳥撞山更具意義？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b181ab1b5cfce6e9d2f786d9c3604e744b55f319.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b181ab1b5cfce6e9d2f786d9c3604e744b55f319
-
-下载BT种子 [【全球疫情直擊】骨灰盒洩死亡人數川普問習近平疫情敏感細節反應負面中共漸放棄病毒陰謀論全球確診超53萬死亡超2.5萬親社會主義西班牙公主死於中共病毒江西警察阻湖北人入境萬人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7080d92b11430416b08b44aca7f3752f9077576.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e7080d92b11430416b08b44aca7f3752f9077576
-
-下载BT种子 [【严真点评】外交部大实话：要中共赔偿呼声渐起甩锅不成战狼转向.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f532c36c16d60d3db43ca1ef7ad980e5921145e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f532c36c16d60d3db43ca1ef7ad980e5921145e1
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
