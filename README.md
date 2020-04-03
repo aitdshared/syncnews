@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KS25jm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6djylQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平敢吹響武統台灣的號角麼？羅斯福號航母中招，官兵上岸，美軍戰力銳減；戴旭謊言操控舉國歡騰（江峰漫談20200402第149期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a05d413e2d5a1e16915f5dd2bd6d8f5db0a9432.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a05d413e2d5a1e16915f5dd2bd6d8f5db0a9432
 
 下载BT种子 [《濤哥侃封神》『封神演義第叄十九回姜子牙冰凍岐山』魯雄滔滔敘兵策不如子牙一咒訣夏秋飛雪凍三尺玉虛玄妙盡乾坤（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed4b958bd1896ab3ccac27248ee6e428ce7bf8ba.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【重磅突發】西昌發生森林大火正在蔓延危及市區詭異的是與去年森林大火同一天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b703f3d615da4d659c1c635b440c8aee988abe7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8b703f3d615da4d659c1c635b440c8aee988abe7
-
-下载BT种子 [【环球直击】3月30日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7036b62e1236a830dc93532a821349814d5653db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7036b62e1236a830dc93532a821349814d5653db
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
