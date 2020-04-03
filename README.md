@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YvLUC2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6LhEDS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「CIA：習近平自己也不清楚中共國的感染數與死亡數」川普說：沒太說數字，主要是說他們做了什麼、做得怎麼樣（0304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/968428d6d68415c91c6e5f0a6b41c534125c4cb5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:968428d6d68415c91c6e5f0a6b41c534125c4cb5
 
 下载BT种子 [布朗巴克：大疫下速釋法輪功等良心犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c249aa62d080ed7b4f0a1b904419b7c63b57de16.torrent)
 
