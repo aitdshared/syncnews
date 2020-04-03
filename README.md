@@ -21,13 +21,45 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/52F9ba)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YvLUC2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [布朗巴克：大疫下速釋法輪功等良心犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c249aa62d080ed7b4f0a1b904419b7c63b57de16.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c249aa62d080ed7b4f0a1b904419b7c63b57de16
+
+下载BT种子 [【重播】4.3紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cecd8990e395bceee333d3a07c7b6766680b400d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cecd8990e395bceee333d3a07c7b6766680b400d
+
+下载BT种子 [先拉後拒留學生買高價票回國面臨什麼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/230409e0165c5b81f9f8e23ad6f0db016359e72b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:230409e0165c5b81f9f8e23ad6f0db016359e72b
+
+下载BT种子 [中共病毒超過1百萬確診澳洲真實情況1千萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbe3960e77ccd0a15739ac5de907c2ce9081be6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cbe3960e77ccd0a15739ac5de907c2ce9081be6f
+
+下载BT种子 [吹哨人李文亮被評烈士發哨人艾芬疑失踪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece94c64b4663ed81357ea5aa62a3e6b0e01a535.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ece94c64b4663ed81357ea5aa62a3e6b0e01a535
+
+下载BT种子 [川普再檢測呈陰性將實施《薪酬保障計劃》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54
+
+下载BT种子 [微博節目《兩岸青年說》洗腦大陸人波特王揭幕後黑手是中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a606378540eee3ff73385234a9209ce32948d7c8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a606378540eee3ff73385234a9209ce32948d7c8
+
+下载BT种子 [瑞幸咖啡造假股票暴跌或面臨112億索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/433b7a0ad96d96f5aafa66d66a1ce95cb683dff8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:433b7a0ad96d96f5aafa66d66a1ce95cb683dff8
 
 下载BT种子 [《石濤聚焦》「突發：王岐山與習近平七常委露面北京：氣色不錯笑容尷尬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1eabd50d602563173c45a81e3472edd6ae042881.torrent)
 
@@ -560,38 +592,6 @@
 下载BT种子 [【禁闻】济南至广州列车湖南侧翻百余死伤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b0388f4c4b5b1ca201902639f49b30eed9f211.torrent)
 
 磁力链接 magnet:?xt=urn:btih:36b0388f4c4b5b1ca201902639f49b30eed9f211
-
-下载BT种子 [【禁闻】瞄准推特中共外宣手法遭曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4f970bdeaeff7788230165b1f62fbaef73a56ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4f970bdeaeff7788230165b1f62fbaef73a56ae
-
-下载BT种子 [【中国禁闻】3月30日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a536b30dcb468dc9cb3310a5bba4960afebea35e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a536b30dcb468dc9cb3310a5bba4960afebea35e
-
-下载BT种子 [慶功！中共外交部耿爽離奇預言給習近平成功挖坑！世界各國感謝中共，感謝清單出爐啦……（老北京茶館第277集20200330）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8e8aacaf0b7d32e1ae0bdc301493bfd6f882676.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f8e8aacaf0b7d32e1ae0bdc301493bfd6f882676
-
-下载BT种子 [紐約州為美國重災區確診超過6萬6「舒適號」醫療船抵紐約.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0768dfe0c420ac409a4f58d6c1490f422494ddb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0768dfe0c420ac409a4f58d6c1490f422494ddb
-
-下载BT种子 [中共病毒海外感染近70萬全球範圍內的疫情高峰仍未到義大利死亡率達11.4%法國疫情發展迅猛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/beb0d584e03dfa068f1173471786d77f1eb1b2e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:beb0d584e03dfa068f1173471786d77f1eb1b2e0
-
-下载BT种子 [124年來首次日本奧運組委會宣布東京奧運推遲至明年舉行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eeafe505c6a36f86af25fd25db8600aa5ecfaad3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eeafe505c6a36f86af25fd25db8600aa5ecfaad3
-
-下载BT种子 [疫情令中國「明斯基時刻」越來越近第二輪經濟衝擊波可能隨即到來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8c8077bacdb1cd91cfee853c645ab6c6ff4605.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e8c8077bacdb1cd91cfee853c645ab6c6ff4605
-
-下载BT种子 [美測試超百萬川普：延長30天社交疏離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bbc2eedf702d12f41630f4fe651a06aa948968a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6bbc2eedf702d12f41630f4fe651a06aa948968a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
