@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Oy8dLT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kKF1h0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【蕭茗訪談】“共產主義就像一種病毒”遠離它還是消滅它？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3d186f28ab948e1ab29c1be48cb5d0dbd022829.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d3d186f28ab948e1ab29c1be48cb5d0dbd022829
 
 下载BT种子 [【环球直击】川普再检测呈阴性留学生买高价票回国面临什么(4月3日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b5e1d32727223ed20755ab72e805f02f55cd45a.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [《石濤聚焦》「漂亮中共國女人超開心自視頻：像做賊掃蕩半個佛州的口罩」美護士哭訴：口罩被中國人搶光了2月搶購20億口罩3月習近平派送售百國「習總-救世主」誕生於“口罩大外交”「絕頂聰明之高級動物」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03ce1566f02ce92f6529b76ce4fc0c0a3610e199.torrent)
 
 磁力链接 magnet:?xt=urn:btih:03ce1566f02ce92f6529b76ce4fc0c0a3610e199
-
-下载BT种子 [台湾民众在日本受到礼遇，羽田机场走特别通道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d794b4e653b29e897ffeb2731ff9d9e0f141cd3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5d794b4e653b29e897ffeb2731ff9d9e0f141cd3
 
 下载BT种子 [【禁闻】济南至广州列车湖南侧翻百余死伤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b0388f4c4b5b1ca201902639f49b30eed9f211.torrent)
 
