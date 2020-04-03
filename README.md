@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WjeX7Z)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Wxev4A)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京，似乎发生大事！大量士兵进京。就在习近平返京次日。俄罗斯倒向美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/280d8e59e111189e91e28bc6852395ab38e82d6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:280d8e59e111189e91e28bc6852395ab38e82d6f
 
 下载BT种子 [快讯：北京异常，疑似发生政变！大量士兵进京。就在习近平返京次日。俄罗斯倒向美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c45ff781009418b102001bdb231a06990c234195.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [英国首相对中共出离愤怒,华为5G欧洲泡汤,当前危机将重塑全球秩序(哲思心语第8集20200330)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e107abf325c6608cd7c2ba38eab90ac8479293e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e107abf325c6608cd7c2ba38eab90ac8479293e2
-
-下载BT种子 [【微视频】中共系统性造假地方须脱党自治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f747c8d197edb1ceccabeb5d3f0b57d94a636c6c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f747c8d197edb1ceccabeb5d3f0b57d94a636c6c
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
