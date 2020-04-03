@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GQl02T)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9NF7DY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [台湾一石四鸟，中共羡慕嫉妒恨，西方大国要反省.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d91dacf6dde6f51b69243061b6fc8f2b460b4a06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d91dacf6dde6f51b69243061b6fc8f2b460b4a06
 
 下载BT种子 [【微视频】习近平和川普关于疫情谈了什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad6f56d35ce583f8c7586342c3841b58d8e3ab33.torrent)
 
@@ -588,22 +592,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第叄十七回姜子牙一上崑崙」申公豹惑子牙砍頭空中飄南極仙翁急出手姜尚愚庸禍招身三十六路討伐劫難逃全因子牙一念差（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dd5ae6bf4f51c540d84b1793c45d766138f7c24.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5dd5ae6bf4f51c540d84b1793c45d766138f7c24
-
-下载BT种子 [禁止外國人入境，結果一看，趕回來的都是華裔；復工等於停產，習近平再提新時代勞動教育，上山下鄉你準備好了麼？（江峰漫談20200329第146期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e2a7f8cbb8e6fdd9897a07cc4f36a79b30c93a7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e2a7f8cbb8e6fdd9897a07cc4f36a79b30c93a7
-
-下载BT种子 [【禁闻】中共颁禁航令被批变相阻中国公民回国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b3b3bf1e864bfe149f54e3c401caaeedbb1debe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b3b3bf1e864bfe149f54e3c401caaeedbb1debe
-
-下载BT种子 [【重播】3.29美國政府每日疫情發布會（中文同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f0a315a3c52c7c00a42bfda150da566d62dbae9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f0a315a3c52c7c00a42bfda150da566d62dbae9
-
-下载BT种子 [《石濤.News》「日本PK義大利：無狀不檢測13老人擠地鐵下館子夜總會」沒事兒！全球病毒專家無解！華府專家：他們幹對了什麼事兒？東京人「强烈感到神的力量—高不可及灾难降临神一定拯救众生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5042381f239d8f5c3bef5dd0dd9f402daaf5df6e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5042381f239d8f5c3bef5dd0dd9f402daaf5df6e
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
