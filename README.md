@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k6we2X)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IZiSDt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美情報機構機密報告遞交白宮：中共疫情數字造假是「故意為之」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c452623854ec0e5b20aea06086a55dc991ae419d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c452623854ec0e5b20aea06086a55dc991ae419d
+
+下载BT种子 [中共肺炎死亡西班牙破萬法國單日創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b11a00cba92e9038917d9368903a7a9d54ac7d73.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b11a00cba92e9038917d9368903a7a9d54ac7d73
+
+下载BT种子 [疫情或致大蕭條歐盟1萬億歐元應對失業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42cdb00e402d7e20f903905bae6594a0e5ed6c9b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42cdb00e402d7e20f903905bae6594a0e5ed6c9b
+
+下载BT种子 [【全球新闻】4月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd6de00261763d293de4e256edbd35ad19663cd1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cd6de00261763d293de4e256edbd35ad19663cd1
 
 下载BT种子 [川普政府出臺的援助陸續到位川普第二次病毒檢測仍為陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3829cf81b5e0e1c00a7a0f8271fc91bd610d40b.torrent)
 
@@ -580,10 +596,6 @@
 下载BT种子 [英國內閣大臣：中共應該為英國的測試負責要求約翰遜推翻之前允許華爲5G進入英國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc57a41286797932cc76736494d3cade03470b52.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc57a41286797932cc76736494d3cade03470b52
-
-下载BT种子 [中共病毒國際傳播英國宣布緊急狀態印度總理為突然的封鎖舉措向人民道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04c0f0fa8e449329e2646d1eae996ff3bf7e173e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:04c0f0fa8e449329e2646d1eae996ff3bf7e173e
 
 下载BT种子 [WHO官員避談台灣蔡英文：有台灣參與世界醫療體系會更好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e77832bbeec3678fd262ce36a5c6c0b40d55148.torrent)
 
