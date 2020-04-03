@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JzCwQW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JxHEpS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad6874eaaa06e6af80e36d237d61129fa24eb493.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ad6874eaaa06e6af80e36d237d61129fa24eb493
 
 下载BT种子 [《石濤聚焦》「CIA：習近平自己也不清楚中共國的感染數與死亡數」川普說：沒太說數字，主要是說他們做了什麼、做得怎麼樣（0304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/968428d6d68415c91c6e5f0a6b41c534125c4cb5.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [台湾民众在日本受到礼遇，羽田机场走特别通道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d794b4e653b29e897ffeb2731ff9d9e0f141cd3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5d794b4e653b29e897ffeb2731ff9d9e0f141cd3
-
-下载BT种子 [【禁闻】企图篡改疫情历史党媒偷删“武汉病毒”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9716f92130a85b4100187785bfa48fc958d5d5f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f9716f92130a85b4100187785bfa48fc958d5d5f
 
 下载BT种子 [【禁闻】中共隐瞒疫情英国政府愤怒要追责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64e88ba17061201eb9fd4718efd2d1d78b0af57a.torrent)
 
