@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mdZj13)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KPHkka)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ba16f9fc8958f7e7545daa06cf9cfef77c235d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ba16f9fc8958f7e7545daa06cf9cfef77c235d2
 
 下载BT种子 [《石濤聚焦》「深夜疲憊孤身返回白宮」川普：未來2週美國人可能面對地獄般的生活可能韓戰與越戰死亡之總和『逃跑式防疫－保持社交距離』唯一有效方法（0204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a48d776f39485b965e8184b4d0ce52fc755ebb8.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【环球直击】3月30日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c13ea90eab89181d7de5cac7d1bc7c83408cf26.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9c13ea90eab89181d7de5cac7d1bc7c83408cf26
-
-下载BT种子 [病毒針對共產黨而來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37e9ed52c99b1993ccbfbaac32d67f35448e36db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:37e9ed52c99b1993ccbfbaac32d67f35448e36db
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
