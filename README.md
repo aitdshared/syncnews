@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o2IbtQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GsHXdX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：王岐山與習近平七常委露面北京：氣色不錯笑容尷尬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1eabd50d602563173c45a81e3472edd6ae042881.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1eabd50d602563173c45a81e3472edd6ae042881
+
+下载BT种子 [（字幕）大陸某軍醫專家內部講話：這病毒有二段基因是合成的根本無法治療只有三個方法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d61fc95613b2055a4ca883456839365a131bb112.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d61fc95613b2055a4ca883456839365a131bb112
 
 下载BT种子 [北京，似乎发生大事！大量士兵进京。就在习近平返京次日。俄罗斯倒向美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/280d8e59e111189e91e28bc6852395ab38e82d6f.torrent)
 
@@ -584,14 +592,6 @@
 下载BT种子 [美測試超百萬川普：延長30天社交疏離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bbc2eedf702d12f41630f4fe651a06aa948968a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6bbc2eedf702d12f41630f4fe651a06aa948968a
-
-下载BT种子 [疫情蔓延川普政府加速修復醫療供應鏈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61a9e1658f981c4e423b78b47592a01fee6597de.torrent)
-
-磁力链接 magnet:?xt=urn:btih:61a9e1658f981c4e423b78b47592a01fee6597de
-
-下载BT种子 [英国首相对中共出离愤怒,华为5G欧洲泡汤,当前危机将重塑全球秩序(哲思心语第8集20200330)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e107abf325c6608cd7c2ba38eab90ac8479293e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e107abf325c6608cd7c2ba38eab90ac8479293e2
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
