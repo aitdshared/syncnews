@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oTKHv4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Uy7aKr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美官員質疑中共器官來源台國會議員呼籲密切關注中共秘密人體試驗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f87be0bb67be5b2f5b2314ecb000637ca87e4a90.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f87be0bb67be5b2f5b2314ecb000637ca87e4a90
 
 下载BT种子 [台灣捐贈千萬口罩獲歐盟美國等讚譽台灣是真正的朋友.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e18ad984e17c7fecbe69e30aa2f37e22384e8839.torrent)
 
@@ -588,26 +592,6 @@
 下载BT种子 [中共如何做到武漢肺炎0增長？300人記者團入住武漢做什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d510ae3aa35ba50e4f0e16f93d27406a9b9f59d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9d510ae3aa35ba50e4f0e16f93d27406a9b9f59d
-
-下载BT种子 [【百姓聲音】一位大陸大學生曾經的小粉紅公開喊出“習近平下課，共產黨下課！”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/960d6340a14ed740880b14d67b9dbc85dd66fb23.torrent)
-
-磁力链接 magnet:?xt=urn:btih:960d6340a14ed740880b14d67b9dbc85dd66fb23
-
-下载BT种子 [英國內閣大臣：中共應該為英國的測試負責要求約翰遜推翻之前允許華爲5G進入英國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc57a41286797932cc76736494d3cade03470b52.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc57a41286797932cc76736494d3cade03470b52
-
-下载BT种子 [WHO官員避談台灣蔡英文：有台灣參與世界醫療體系會更好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e77832bbeec3678fd262ce36a5c6c0b40d55148.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1e77832bbeec3678fd262ce36a5c6c0b40d55148
-
-下载BT种子 [湖南火車出軌網友批中共：又說沒死人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0585568bcf3da17cb7215d54eb59ccb77980305c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0585568bcf3da17cb7215d54eb59ccb77980305c
-
-下载BT种子 [美參議員科頓：中共仍在病毒問題上撒謊美國藥物生產應減少對中共的依賴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5787d0a5212769fb993452ee591e618db9ba5c84.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5787d0a5212769fb993452ee591e618db9ba5c84
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
