@@ -21,21 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3meNW7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XTEnBC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [微博節目《兩岸青年說》洗腦大陸人波特王揭幕後黑手是中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a606378540eee3ff73385234a9209ce32948d7c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a606378540eee3ff73385234a9209ce32948d7c8
-
-下载BT种子 [瑞幸咖啡造假股票暴跌或面臨112億索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/433b7a0ad96d96f5aafa66d66a1ce95cb683dff8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:433b7a0ad96d96f5aafa66d66a1ce95cb683dff8
 
 下载BT种子 [《石濤聚焦》「突發：王岐山與習近平七常委露面北京：氣色不錯笑容尷尬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1eabd50d602563173c45a81e3472edd6ae042881.torrent)
 
