@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Uy7aKr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nNxeZs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平不拿真金白银救经济的真正原因；美国拿⅓GDP救经济，中共拿不出还是不愿意拿？习近平去浙江释放什么信号？川普准备再拿2万亿建基础设施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdff9afcf4b41a4435c9c323a541e3a164ec8ad1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fdff9afcf4b41a4435c9c323a541e3a164ec8ad1
 
 下载BT种子 [美官員質疑中共器官來源台國會議員呼籲密切關注中共秘密人體試驗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f87be0bb67be5b2f5b2314ecb000637ca87e4a90.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【中國禁聞】3月29日完整版（字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40b7af84419925ec2a9aefdad14ef246d739c622.torrent)
 
 磁力链接 magnet:?xt=urn:btih:40b7af84419925ec2a9aefdad14ef246d739c622
-
-下载BT种子 [中共如何做到武漢肺炎0增長？300人記者團入住武漢做什麼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d510ae3aa35ba50e4f0e16f93d27406a9b9f59d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d510ae3aa35ba50e4f0e16f93d27406a9b9f59d
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
