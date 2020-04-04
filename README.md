@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xihy8I)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sTakwa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [在家办公，韩国妈妈给儿子立规矩走红网络，让人捧腹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f
 
 下载BT种子 [【禁闻】大陆抢粮潮持续袁隆平视频疯传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7de7ec6d612ba7278f8549bd20bfe8448c6c96bb.torrent)
 
@@ -589,10 +593,6 @@
 
 磁力链接 magnet:?xt=urn:btih:9ce1ba4a3e0b00c1ced35b3e72ac263cd477cf6c
 
-下载BT种子 [對比美中疫情處理武漢市民：還是美國好.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/565c5ca7ddb22ab8f09db6246795c75f87c4e756.torrent)
-
-磁力链接 magnet:?xt=urn:btih:565c5ca7ddb22ab8f09db6246795c75f87c4e756
-
 下载BT种子 [華人回國被封門留學生談回國後的遭遇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26381a5c933a03f477e198673d656a2e6d4458c2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:26381a5c933a03f477e198673d656a2e6d4458c2
@@ -620,10 +620,6 @@
 下载BT种子 [【重播】3.31媒體聯訪陳時中基隆市防疫演習現場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a631aefb6233920118c4c8063ca2244ccdd134c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5a631aefb6233920118c4c8063ca2244ccdd134c
-
-下载BT种子 [🚨任志強是死是活？中南海有人確診；武漢醫生艾芬傳失聯；紐約全球招醫護；是公開40倍！英國踢爆中國真實病例數；果蔬表面、精液都可留毒；冰島現雙重感染者；陸2月失業4500萬人新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/671d6cd698111b7f244234e2d94657b9b662f06d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:671d6cd698111b7f244234e2d94657b9b662f06d
 
 下载BT种子 [《濤哥侃封神》「封神演義第叄十八回四聖西岐會子牙」聞太師西海九龍島.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbdb690bf75642433559a75e6e4ffc0e8070c25f.torrent)
 
