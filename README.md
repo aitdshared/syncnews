@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bk5DgV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TkITVH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普：政府承擔無醫保者中共病毒檢測治療費建議民衆可憑自願佩戴非醫用口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8112ef993022a4f0109a77405ae69a7c807f1aa9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8112ef993022a4f0109a77405ae69a7c807f1aa9
+
+下载BT种子 [中共肺炎海外感染超百萬澳專家稱實際是5-10倍有些國家沒有測試能力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d376ab0d75f119595b68ba65f152d9c8f96179e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3d376ab0d75f119595b68ba65f152d9c8f96179e
+
+下载BT种子 [美國FBI沒收近20萬囤積口罩發送前線醫護.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a42461d7fcfbadfc2852e0e7ebaf58fec692d8b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a42461d7fcfbadfc2852e0e7ebaf58fec692d8b5
 
 下载BT种子 [太詭異！北京出現成排士兵大巴；外圍禁行，進京車輛全部調頭！疫情加重，武漢解封要懸了；軍醫洩密病毒人造，免疫系統被摧毀，康復仍傳染；武漢病毒所自洩隱瞞疫情【新聞看點李沐陽04.03】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b9239af0c1c010f091b10ced3e8f8a119237402.torrent)
 
@@ -556,10 +568,6 @@
 下载BT种子 [口罩外交、甩鍋病毒，中共想扭轉貿易戰？小粉紅翻墻覺醒，盼共產黨滅亡（2020.3.31）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dacfa25ba96f6e7db8a22084683a260374631243.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dacfa25ba96f6e7db8a22084683a260374631243
-
-下载BT种子 [《石濤.News》「中南海大動盪：習近平發小兒陳平再談-晚節不保」涉及習家貪腐中國夢普世價值「王岐山最清楚胡錦濤劉源胡德平」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18.torrent)
-
-磁力链接 magnet:?xt=urn:btih:83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18
 
 下载BT种子 [【全球疫情直擊】海外感染70萬高峰未到紐約成美國武漢確診人數飆升紐約中央公園建野戰醫院舒適號醫療船抵達紐約華人超市紛紛關店香港人報恩捐50萬口罩援助美國醫護湖北人持綠碼入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac312713f3836d237eb42ac2b11fada61b4dffe.torrent)
 
