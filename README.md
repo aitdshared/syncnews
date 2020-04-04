@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7qfT5D)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mcpBKm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [惊悚的政变传闻与美元伪钞案,被误读的3月PMI与实实在在的粮荒(政论天下第145集20200403)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d2f3314c140b305988ebb573823e2c50248d04d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4d2f3314c140b305988ebb573823e2c50248d04d
 
 下载BT种子 [《石濤.News》「紐時：否定與死亡的四月」中共大劫年-開啟於18年習近平修憲-逾越節耶穌受難日重疊復活節愚人節重疊19年巴黎聖母院大火與胡耀邦祭日重疊「川普-極其痛苦地獄般苦難-2020年4月」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d056abd3370cc0f11540277a7b55eeadce4a2128.torrent)
 
