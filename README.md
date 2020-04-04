@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xBZYWC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4gOPRz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情下中國會出現糧荒嗎？「美國胖媳婦兒」搜購口罩視頻鬧大了！唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13be6fef326b7b3a7eff27ef3a2e677eb6989be6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:13be6fef326b7b3a7eff27ef3a2e677eb6989be6
 
 下载BT种子 [🇺🇸美國要鎖國？中共12月確定人傳人，中情局握瞞報證據；紐約屍袋成排；疫情下非洲裔受惠，事關沉船計畫？吉林沙塵暴白天變黑夜；袁隆平：國產糧不夠吃；王全璋獲釋遇阻；瑞幸咖啡事件新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c482ae43ccab12f129ac22fd15aee016bcbd8d7f.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [[重播]3.31紐約州長庫默召開新聞發佈會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74d4aed0ef43430216806a4477bfc412703415aa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:74d4aed0ef43430216806a4477bfc412703415aa
-
-下载BT种子 [【禁闻】ICU里的谋杀大陆医生揭医院黑幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ce1ba4a3e0b00c1ced35b3e72ac263cd477cf6c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ce1ba4a3e0b00c1ced35b3e72ac263cd477cf6c
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
