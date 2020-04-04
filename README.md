@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9O8eAr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xihy8I)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】大陆抢粮潮持续袁隆平视频疯传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7de7ec6d612ba7278f8549bd20bfe8448c6c96bb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7de7ec6d612ba7278f8549bd20bfe8448c6c96bb
+
+下载BT种子 [【禁闻】国际警惕“中国制造”全球供应链或将转移.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21395b1cae247a97151b3c0408566c391305d398.torrent)
+
+磁力链接 magnet:?xt=urn:btih:21395b1cae247a97151b3c0408566c391305d398
+
+下载BT种子 [【中国禁闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8132405174d5d684fcd24179ed86cc9cbcf92643.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8132405174d5d684fcd24179ed86cc9cbcf92643
+
+下载BT种子 [【禁闻】世卫帮中共误导国际社会美议员吁调查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88db42ad07efae396cb9e7e7fead24d939d130a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:88db42ad07efae396cb9e7e7fead24d939d130a7
+
+下载BT种子 [【禁闻】4月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca981e51cc7b9ba81df97fc86aeafde809ed902.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ca981e51cc7b9ba81df97fc86aeafde809ed902
 
 下载BT种子 [【禁闻】科技脱钩美拟收紧对中共高科技出口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa.torrent)
 
@@ -584,10 +604,6 @@
 下载BT种子 [中共散毒再甩鍋意大利記者：為什麼意大利人對中共不滿要求「戰爭賠償」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b04609a6102285d068ac798c9dd3ab70f49d82e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2b04609a6102285d068ac798c9dd3ab70f49d82e
-
-下载BT种子 [口罩外交、甩鍋病毒，中共想扭轉貿易戰？小粉紅翻墻覺醒，盼共產黨滅亡（2020.3.31）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dacfa25ba96f6e7db8a22084683a260374631243.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dacfa25ba96f6e7db8a22084683a260374631243
 
 下载BT种子 [【全球疫情直擊】海外感染70萬高峰未到紐約成美國武漢確診人數飆升紐約中央公園建野戰醫院舒適號醫療船抵達紐約華人超市紛紛關店香港人報恩捐50萬口罩援助美國醫護湖北人持綠碼入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac312713f3836d237eb42ac2b11fada61b4dffe.torrent)
 
