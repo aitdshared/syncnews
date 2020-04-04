@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KTvkNF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hilikU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「4.4清明-大凶日不宜祭典：中共國哀悼日」時間是個神：7年前11.14習上台-4.4祭典「3個死-天地人」10.1大閱兵-習招鬼上身404-網路封鎖不在冊屈死冤魂-聚集中南海.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab9101bb08bb1bfa4c0214cc69008f7383dfb840.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ab9101bb08bb1bfa4c0214cc69008f7383dfb840
 
 下载BT种子 [《石濤.News》「4.4清明-大凶日不宜祭典：中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86bc7269ace693fec8bcbaf90185cb2693b38ef4.torrent)
 
@@ -593,17 +597,9 @@
 
 磁力链接 magnet:?xt=urn:btih:e2d01c7bd060b3944a09aac8c4cb88b5eabbf786
 
-下载BT种子 [任志強的生死傳聞發酵，兩個圈子或有連鎖反應，習近平又應了《周易》哪一卦（文昭談古論今20200331第727期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28616d6038a3495285839ec31131f368337ad30f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28616d6038a3495285839ec31131f368337ad30f
-
 下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1111feb5c28e922181da08913ecdb99338ab463.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1111feb5c28e922181da08913ecdb99338ab463
-
-下载BT种子 [美情每日速览！习近平南下有因：习李再起冲突。王沪宁放风：那事不是他干的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03930f704e6f7e260355a0e5d3710e4bb6133ad7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03930f704e6f7e260355a0e5d3710e4bb6133ad7
 
 下载BT种子 [[重播]3.31紐約州長庫默召開新聞發佈會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74d4aed0ef43430216806a4477bfc412703415aa.torrent)
 
