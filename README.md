@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gn4SzS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KJ9zKF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [太詭異！北京出現成排士兵大巴；外圍禁行，進京車輛全部調頭！疫情加重，武漢解封要懸了；軍醫洩密病毒人造，免疫系統被摧毀，康復仍傳染；武漢病毒所自洩隱瞞疫情【新聞看點李沐陽04.03】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b9239af0c1c010f091b10ced3e8f8a119237402.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2b9239af0c1c010f091b10ced3e8f8a119237402
+
+下载BT种子 [【禁闻】4月3日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ffa8e62f052e460f432f2e59b7e53eba5984c3b4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ffa8e62f052e460f432f2e59b7e53eba5984c3b4
+
+下载BT种子 [CIA情報使習近平甩鍋破功？川普的歷史性抉擇；北京浮現兩個司令部；二度流行的風險（文昭談古論今20200403第729期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d25d2da88c49c58524f812712236c95b37ab72c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3d25d2da88c49c58524f812712236c95b37ab72c
 
 下载BT种子 [《石濤聚焦》「王岐山妥協？與習近平七常委露面植樹節」財新網-胡舒立同時被小粉紅痛斥賣國「財新是敵人資助的由國內敵人代理人（王岐山）指揮的」陳平再三自視頻「中南海內訌如火如荼」（0304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fa494361ffac7a8444a7253cee5ee843873dee9.torrent)
 
@@ -577,21 +589,9 @@
 
 磁力链接 magnet:?xt=urn:btih:671d6cd698111b7f244234e2d94657b9b662f06d
 
-下载BT种子 [從猶太人的黃標到中國人的黃碼，歧視在大國的驕狂中蔓延；幫助中共打造全民監控的美國科技巨頭會有現世報麼？（江峰漫談20200330第147期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d835d6d91d022188721136e72971a6a5a4ee9767.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d835d6d91d022188721136e72971a6a5a4ee9767
-
 下载BT种子 [《濤哥侃封神》「封神演義第叄十八回四聖西岐會子牙」聞太師西海九龍島.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbdb690bf75642433559a75e6e4ffc0e8070c25f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dbdb690bf75642433559a75e6e4ffc0e8070c25f
-
-下载BT种子 [《石濤聚焦》「英國憤怒中共國欺騙卸責」英媒：疫後-其為‘賤民之國’內閣建議決裂中共首相敦促阻止華為5G「科學顧問：中共國疫情應大過40倍」習近平欺騙全球遭致世紀性全球大災難（3003）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edcc0ef93c19d01fd40bb95e3b05058c56e4ad92.torrent)
-
-磁力链接 magnet:?xt=urn:btih:edcc0ef93c19d01fd40bb95e3b05058c56e4ad92
-
-下载BT种子 [《石濤聚焦》「漂亮中共國女人超開心自視頻：像做賊掃蕩半個佛州的口罩」美護士哭訴：口罩被中國人搶光了2月搶購20億口罩3月習近平派送售百國「習總-救世主」誕生於“口罩大外交”「絕頂聰明之高級動物」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03ce1566f02ce92f6529b76ce4fc0c0a3610e199.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03ce1566f02ce92f6529b76ce4fc0c0a3610e199
 
 下载BT种子 [【禁闻】济南至广州列车湖南侧翻百余死伤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b0388f4c4b5b1ca201902639f49b30eed9f211.torrent)
 
