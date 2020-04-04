@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3qZ61o)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Furfj3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】科技脱钩美拟收紧对中共高科技出口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa
 
 下载BT种子 [白邦瑞美國作證：特朗普很委婉，沒說习近平那句難聽！動畫甩鍋；党媒闢謠，民眾搶米！（老北京茶館第280集20200403）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60a6f31a9d1b020ea4f17be8564ffcea03940ce8.torrent)
 
