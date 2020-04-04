@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TkITVH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xBGNs8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -568,6 +568,10 @@
 下载BT种子 [口罩外交、甩鍋病毒，中共想扭轉貿易戰？小粉紅翻墻覺醒，盼共產黨滅亡（2020.3.31）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dacfa25ba96f6e7db8a22084683a260374631243.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dacfa25ba96f6e7db8a22084683a260374631243
+
+下载BT种子 [《石濤.News》「中南海大動盪：習近平發小兒陳平再談-晚節不保」涉及習家貪腐中國夢普世價值「王岐山最清楚胡錦濤劉源胡德平」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18.torrent)
+
+磁力链接 magnet:?xt=urn:btih:83b10f6edc0aedda415d7fe3dcc4d37b36ad2e18
 
 下载BT种子 [【全球疫情直擊】海外感染70萬高峰未到紐約成美國武漢確診人數飆升紐約中央公園建野戰醫院舒適號醫療船抵達紐約華人超市紛紛關店香港人報恩捐50萬口罩援助美國醫護湖北人持綠碼入甘肅被確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ac312713f3836d237eb42ac2b11fada61b4dffe.torrent)
 
