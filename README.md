@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2ys3lO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/clpvGm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「最新：川普-未來23週將死很多人」美英法將同時到達頂點美紐約底特律新奧爾良在耶穌受難日-復活節死亡最高峰「時間是個神：中共病毒傷害西方文明-逾越節-受難日-復活節-4.25」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecb2636134daebb38689a31cf1fb81cc62568b3e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ecb2636134daebb38689a31cf1fb81cc62568b3e
 
 下载BT种子 [【环球直击】4月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12b344aeb54e22a897cb2b3ee90b5762bce2c1fb.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [习近平下台？任志强回家？黨內政變完成？真假消息的背後；西方“去中共化”逐漸完成合力，清算追責從官員海外資產開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88f0a96b6f40a3c6ec3226b36b7821b7559c9a4b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88f0a96b6f40a3c6ec3226b36b7821b7559c9a4b
-
-下载BT种子 [《濤哥侃封神》「封神演義第叄十八回四聖西岐會子牙」王魔奇獸子牙無奈二上崑崙四不像打神鞭杏黃旗龍鬚虎要吃子牙肉三死七災子牙自尋劫難文殊出手王魔難逃（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9a4246bec90e6c50dcd52e3a155287d913bb43b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9a4246bec90e6c50dcd52e3a155287d913bb43b
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
