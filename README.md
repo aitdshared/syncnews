@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/whCx7w)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/njg17z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【严真点评】世纪大祸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55773053e3543fc3d863a6d0d3a1a75bb353f82f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55773053e3543fc3d863a6d0d3a1a75bb353f82f
 
 下载BT种子 [【时事小品】李文亮回访.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e0bfef96cca5d1e8192ace35b8d602896b4e1ef.torrent)
 
@@ -604,14 +608,6 @@
 下载BT种子 [【环球直击】4月1日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f5814e1c23262b6c6742c408014f05097f88e92.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6f5814e1c23262b6c6742c408014f05097f88e92
-
-下载BT种子 [庫默的弟弟確診感染州長稱低估疫情專家：與中共為伍傷害深.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e976d4e9fbf7bd108c0cfb6c821b31dd2bbb86e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e976d4e9fbf7bd108c0cfb6c821b31dd2bbb86e7
-
-下载BT种子 [疫情關鍵時刻白宮新幕僚長梅多斯上任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90d0d911eac2b79dc7cda6bd4de9186aa906eadb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90d0d911eac2b79dc7cda6bd4de9186aa906eadb
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
