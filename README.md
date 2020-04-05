@@ -29,6 +29,10 @@
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
 
+下载BT种子 [形势趋缓，韩国是如何做到的？韩国模式别国可以复制吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a934cef9c39c7664882f7f932a79ded81475e3e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a934cef9c39c7664882f7f932a79ded81475e3e3
+
 下载BT种子 [《石濤聚焦》「川習通話後川普傻了：習默認造假數據坑苦美國」川普改口30天封國預計死亡24萬調動海軍醫療艦但口罩手套防護服呼吸機不得不從中國進口「中共國死亡不低13萬感染過300萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a73c3c073c9d4615f035761886ea42c6534fbfe3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a73c3c073c9d4615f035761886ea42c6534fbfe3
