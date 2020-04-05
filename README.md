@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l4bVBy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cV2SQH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「4.4習近平率常委全彩照奪目耀眼」前日植樹官照：習總給百年老松澆水培土「廣而告之：習總率眾拒絕死亡長青萬歲蔑視所有中國人與已死黨魁」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9dacf65b82ecbf2ca9fd81a81f9ece48f29a088.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9dacf65b82ecbf2ca9fd81a81f9ece48f29a088
 
 下载BT种子 [全国特别日，中南海上演大戏，谁是潘金莲？外交部突出习李有深意。中央警卫局换人？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/697a0b6c1bb8cb201b2aa674b804699342756b4e.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [台灣漢堡王使用「武漢肺炎」一詞「被道歉」台立法委員擔憂被中共滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0dfe5b58fb774eb1c5b84190da90a4a8308fdb4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e0dfe5b58fb774eb1c5b84190da90a4a8308fdb4
-
-下载BT种子 [世衛組織偏袒中共美議員呼籲調查國會需要重新審視向世衛支付高額經費.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d36484394f32e7021339c53e659cd2e506f9b2c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d36484394f32e7021339c53e659cd2e506f9b2c1
 
 下载BT种子 [歐洲疫情將在復活節之前出現高峰？意大利新增確診數趨緩西班牙死亡創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f2304e60af680f4c0fb8f6dd4f200b5d0d00ae9.torrent)
 
