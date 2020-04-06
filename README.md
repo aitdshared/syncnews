@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X1QEUY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fYa5EE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [向中共索賠天價清單開出，追責第一案啟動；中南海政變傳聞再現，不可信與真內容（文昭談古論今20200406第730期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2370aa7b1cab608a413815e31e2712af94a4dcbb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2370aa7b1cab608a413815e31e2712af94a4dcbb
 
 下载BT种子 [【微视频】中共海外组织大宗搜刮防疫物资.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e16ed1826cb0d052ba2f360f3b676918806e7573.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【环球直击】疫情状况不断武汉市民惶恐不安传机密情报送白宫纽约中央公园野战医院启用（4月2日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a6ad1a918585ec2c27e760da5685430cf8c240b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3a6ad1a918585ec2c27e760da5685430cf8c240b
-
-下载BT种子 [受中共病毒影響中國經濟損失慘重株洲數百商戶聚集政府門口要求減租.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/459c62ec04325df3b28c4d565675f46df80696da.torrent)
-
-磁力链接 magnet:?xt=urn:btih:459c62ec04325df3b28c4d565675f46df80696da
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
