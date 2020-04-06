@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xZaOL3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A9UIfW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】找到毒源？武汉P4去年招聘人研究新病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27e67c7bd55674747037af8db49f0d557d2cec88.torrent)
+
+磁力链接 magnet:?xt=urn:btih:27e67c7bd55674747037af8db49f0d557d2cec88
+
+下载BT种子 [【重播】4.6紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72fbadc768f06163078c57862b75f99064c8e9d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72fbadc768f06163078c57862b75f99064c8e9d0
 
 下载BT种子 [向中共索賠天價清單開出，追責第一案啟動；中南海政變傳聞再現，不可信與真內容（文昭談古論今20200406第730期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2370aa7b1cab608a413815e31e2712af94a4dcbb.torrent)
 
@@ -600,14 +608,6 @@
 下载BT种子 [【重播】4.2紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87ccaafd88fa5c60643d766ea2a472bcdf1fb1f6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:87ccaafd88fa5c60643d766ea2a472bcdf1fb1f6
-
-下载BT种子 [傳中共數據造假機密情報送白宮醫學專家：中共造假延誤了應對「中共病毒」的時機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e31ac0f6308a0ef6e5402ef87b1fef3095e2033f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e31ac0f6308a0ef6e5402ef87b1fef3095e2033f
-
-下载BT种子 [【环球直击】疫情状况不断武汉市民惶恐不安传机密情报送白宫纽约中央公园野战医院启用（4月2日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a6ad1a918585ec2c27e760da5685430cf8c240b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3a6ad1a918585ec2c27e760da5685430cf8c240b
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
