@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZW27ua)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iwfzP2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》『封神演義第四十回四天王遇丙靈公』楊戩計斬花狐貂偷得混元珍珠傘黃天化下山即忘本貪杯吃肉著帥服丙靈公首戰即死告誡所有修行人－凡心不去即忘本（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d28aa063f4ed9bcfa663d8f9ee97f8f236af5d82.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d28aa063f4ed9bcfa663d8f9ee97f8f236af5d82
 
 下载BT种子 [《石濤聚焦》「對比全球武漢肺炎百萬人確診與死亡比例圖表：習總造假已至純傻純孽」英國首相強森高燒不退住院智庫提出向中共國索賠6.5兆億美元控其違反國際法《國際衛生條例》（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d03bc428d5430b7d348be8a150e00406a3e3d93a.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【禁闻】为再次爆发找背锅侠？中共通报无症状感染者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d8509501a8e6a8a149d8e1e818b023b3e3a40ff.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9d8509501a8e6a8a149d8e1e818b023b3e3a40ff
-
-下载BT种子 [从佛州女疯狂囤货落法网,说说中共对全世界的隐形战争(政论天下第144集20200401)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4f505e5f45b82a5cdcdd1f9b3da218f7337e5f3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c4f505e5f45b82a5cdcdd1f9b3da218f7337e5f3
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
