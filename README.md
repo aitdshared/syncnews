@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m1aZUc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hwoFP2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「網傳：第二波疫情更多細節爆光」上海徵用酒店訂購數千台呼吸機向台灣訂購1020萬數量不等裝屍袋首席流行病醫師“第二波很可能”《自然》5-6.5億中國人將染病漢江區再現交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5414eda128eb501cdac76cb2568ac81eace2b140.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5414eda128eb501cdac76cb2568ac81eace2b140
 
 下载BT种子 [【环球直击】4月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b533b082cb8a53fe0223e16f75bdda21281f3c1.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【环球直击】4月2日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86ad19d3eaf1e07984f9406d7a777ffb0a0616cb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:86ad19d3eaf1e07984f9406d7a777ffb0a0616cb
-
-下载BT种子 [【美國思想領袖】教育部長貝特西•德沃斯專訪：美國學生vs國外學生表現遜色？川普政府推動放鬆政府監管，對教育部的意義！「教育自由」理念將如何使所有美國人都有能力為子女選擇合適的學校？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c35dc4caffb7244f365556e88b0f716488f88d5a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c35dc4caffb7244f365556e88b0f716488f88d5a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
