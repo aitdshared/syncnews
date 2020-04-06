@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0choss)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vvUPQY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd6f639e65bd874bff890159a4441dcc01c885c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fd6f639e65bd874bff890159a4441dcc01c885c4
 
 下载BT种子 [用胸罩做口罩,中共可能面临全球双重起诉;印度的起诉找错了仲裁(政论天下第146集20200405)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/963e32d79a72d7efec4f6a194d227ba1f9e86119.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「路透：趙立堅戰狼外交習近平親自部署」‘腚於一尊’習總只是聢-屁股王滬寧為尊-習思想之創造「任志強依在醫院」（0104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126c58cfb2d75c9da55fd7fc719c7c8b63d46c5c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:126c58cfb2d75c9da55fd7fc719c7c8b63d46c5c
-
-下载BT种子 [《危難時刻》有良方《歸途》將網絡首映.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f45af540d0052e2883052092a7c038cc0947dec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1f45af540d0052e2883052092a7c038cc0947dec
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
