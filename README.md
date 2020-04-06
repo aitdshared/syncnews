@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qATDuf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WPY5Lz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情還沒爆發，軍方就研製疫苗？病毒去年10月已肆虐？全球病毒可溯源中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5b474aa47abef305e43430140b5b0f41a65d49a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f5b474aa47abef305e43430140b5b0f41a65d49a
 
 下载BT种子 [【中國禁聞】4月5日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7ec6460629a065ca7f0e8afdff92b55efb6e848.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【禁闻】4月1日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a173d845d338bab4706db93820b02e27a9ee6e89.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a173d845d338bab4706db93820b02e27a9ee6e89
-
-下载BT种子 [📣回應網友：為何美國疫情重？二戰後的最嚴重危機出現💥！美國可能死亡20萬？😱㊙️趙立堅叛逃美國？美中醫療水平的差距，疫情終點「還很遙遠」，游動炸彈有多少？💣💣💣健康碼成控制工具？【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b392cd6b502477ecb6b38442f8135fd481cd8a1d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b392cd6b502477ecb6b38442f8135fd481cd8a1d
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
