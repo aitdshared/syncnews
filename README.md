@@ -21,17 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3WvptN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QHPdtm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [美議員批中共迫害人權惡行累累」呼籲聯合國收回任命中共官員入聯合國人權理事會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd28c1ada2ba38be853c919acc1cb591031b621.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfd28c1ada2ba38be853c919acc1cb591031b621
 
 下载BT种子 [《石濤.News》「網傳：中央警衛局被攻陷4.3北京大批軍人調動」同期習近平4天躲在浙江鐘南山對無症狀表現出爾反爾「習近平把懷仁堂變靈堂-4.4全國悼念」與930拜毛靈堂-對應「天滅中共-生與滅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb6949e9a1b250bd4006b859162b00e1497b4686.torrent)
 
