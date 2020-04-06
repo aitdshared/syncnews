@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rtwidE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m1aZUc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b533b082cb8a53fe0223e16f75bdda21281f3c1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b533b082cb8a53fe0223e16f75bdda21281f3c1
 
 下载BT种子 [王全璋首發聲：門外皆看守歐盟關切.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7154f4e2f15c4f4fd84d00907acad01aa41f2a4b.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【美國思想領袖】教育部長貝特西•德沃斯專訪：美國學生vs國外學生表現遜色？川普政府推動放鬆政府監管，對教育部的意義！「教育自由」理念將如何使所有美國人都有能力為子女選擇合適的學校？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c35dc4caffb7244f365556e88b0f716488f88d5a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c35dc4caffb7244f365556e88b0f716488f88d5a
-
-下载BT种子 [美FDA未批准進口中國產KN95口罩；「非中國製造」將成國外主流？横河方菲熱點互動04012020（下）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dddd2fc01b229047f2c66762923c0fc57afc2ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6dddd2fc01b229047f2c66762923c0fc57afc2ef
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
