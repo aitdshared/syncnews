@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9bj3JI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AQ3qlS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：英國首相武漢肺炎惡化進入重症室ICU」警示⚠️所有親中共者：中共病毒-武漢肺炎有選擇「約翰遜：讚揚一帶一路接受華為5G帶頭申請亞投行開通滬倫通「全家賺共產黨的錢💰」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c5dee1e4c97ff46f96e2dbf67350e488ab1dc6c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5c5dee1e4c97ff46f96e2dbf67350e488ab1dc6c
 
 下载BT种子 [美情速览！英印向中国讨说法。北京向法国提要求。有人写信给习近平女儿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5904992e8c4a66e35aebb35cedb8d538a90fc5d.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【中國禁聞】4月1日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb4e895fb083747e2cece9bd8d0c55a65b217d61.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cb4e895fb083747e2cece9bd8d0c55a65b217d61
-
-下载BT种子 [【42重播】蘇貞昌、陳時中等14位首長合開防疫記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5531f134a573bfdbd5ef76c1b5762ffbf24fb411.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5531f134a573bfdbd5ef76c1b5762ffbf24fb411
 
 下载BT种子 [【重播】4.2台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05417829d3811707670b95de66aa85aaaf2a6b5a.torrent)
 
