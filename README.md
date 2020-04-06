@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/alkbyu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GWn35z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,10 +608,6 @@
 下载BT种子 [糧食短缺迫近，要備糧備荒嗎？川普做最壞交底，習近平呢？（文昭談古論今20200401第728期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/458f4be0f8672d6e880354232a5556260c4d52b0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:458f4be0f8672d6e880354232a5556260c4d52b0
-
-下载BT种子 [美情今日速览！习近平给特朗普礼物。内定习家军反党？日本教授揭秘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e3a4e32cf487e5a3ae550473b78be87c75050bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e3a4e32cf487e5a3ae550473b78be87c75050bf
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
