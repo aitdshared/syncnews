@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e0laaE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZW27ua)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「對比全球武漢肺炎百萬人確診與死亡比例圖表：習總造假已至純傻純孽」英國首相強森高燒不退住院智庫提出向中共國索賠6.5兆億美元控其違反國際法《國際衛生條例》（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d03bc428d5430b7d348be8a150e00406a3e3d93a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d03bc428d5430b7d348be8a150e00406a3e3d93a
+
+下载BT种子 [【美國思想領袖】《人類事件》媒體主編威爾·張伯倫：美國大學系統已不再特別保護言論自由！大學竟是馬克思主義的製造工廠？「高福利政策」會走向社會主義？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/593e7bc624fa3d634a1fd2ec52c7cd8bb68ae2ce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:593e7bc624fa3d634a1fd2ec52c7cd8bb68ae2ce
+
+下载BT种子 [《石濤聚焦》「網傳：武漢肺炎-中共病毒第二波已登陸北京上海武漢」中央內部通報是每天增長在2500左右藥品管治保證醫院診斷書上只寫病毒性肺炎「再次來臨了爆發時刻」（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c05db20ea1cb5d088b8275730462f4eeb11be510.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c05db20ea1cb5d088b8275730462f4eeb11be510
 
 下载BT种子 [《石濤聚焦》「對比全球肺炎圖表：中共做假至純傻孽」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52d24e5cf64f556865a7aa95afbd7dcec6f5eab5.torrent)
 
@@ -596,18 +608,6 @@
 下载BT种子 [从佛州女疯狂囤货落法网,说说中共对全世界的隐形战争(政论天下第144集20200401)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4f505e5f45b82a5cdcdd1f9b3da218f7337e5f3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c4f505e5f45b82a5cdcdd1f9b3da218f7337e5f3
-
-下载BT种子 [【禁闻】中共病毒致失业风暴2亿人工作不保.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e472aae62c1c82a231a0edcd8607499ce255eca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e472aae62c1c82a231a0edcd8607499ce255eca
-
-下载BT种子 [【禁闻】向中共靠拢NBA十几名球员染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/488c3e03f5582398c511c3b281d071ff9cdbb2d3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:488c3e03f5582398c511c3b281d071ff9cdbb2d3
-
-下载BT种子 [糧食短缺迫近，要備糧備荒嗎？川普做最壞交底，習近平呢？（文昭談古論今20200401第728期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/458f4be0f8672d6e880354232a5556260c4d52b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:458f4be0f8672d6e880354232a5556260c4d52b0
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
