@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xY2IEj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yZ0tiQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約死亡率首次下降川普：疫情兩週內出現拐點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5e3091b4bdf9c1cc891732d859321eac2be6a09.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a5e3091b4bdf9c1cc891732d859321eac2be6a09
 
 下载BT种子 [《石濤.News》「網傳：中央警衛局被攻陷4.3北京大批軍人調動」同期習近平4天躲在浙江鐘南山對無症狀表現出爾反爾.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2b922ee9d1000712557cc02fa124c171c85a7e6.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [台灣抗疫獲讚同美國、歐盟聯手對抗中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e4f30439a107b6f01398db8eb7f8a4f670cc05d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5e4f30439a107b6f01398db8eb7f8a4f670cc05d
-
-下载BT种子 [雙重打擊下美石油大廠懷汀申請破產保護.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e8f5f4796567d3bea0514dbce8496f5e523499a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e8f5f4796567d3bea0514dbce8496f5e523499a
 
 下载BT种子 [中國大陸外感染病例上升到84萬死亡近4.3萬意延長封國日本單日無新增.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f6ff6850f1ad975fe7e9935215a6ff724f206f4.torrent)
 
