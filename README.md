@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WPY5Lz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5nWMGD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [意西死亡數近2週最低日本將宣布緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f01f59173954c7f646f89c4ecf47cda54a2f5134.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f01f59173954c7f646f89c4ecf47cda54a2f5134
+
+下载BT种子 [口罩成為救命物資台灣口罩產量拼1500萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80c31fc72a63b8286abcb16370119eff51bf4dee.torrent)
+
+磁力链接 magnet:?xt=urn:btih:80c31fc72a63b8286abcb16370119eff51bf4dee
+
+下载BT种子 [【环球直击】4月6日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72505018f05121867b85343b1a0e85d110c95c65.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72505018f05121867b85343b1a0e85d110c95c65
 
 下载BT种子 [疫情還沒爆發，軍方就研製疫苗？病毒去年10月已肆虐？全球病毒可溯源中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5b474aa47abef305e43430140b5b0f41a65d49a.torrent)
 
@@ -596,18 +608,6 @@
 下载BT种子 [迎戰中共病毒下美加強打擊跨國毒品販運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e09683d67f731eb4828f3a188a785e55b6af5c26.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e09683d67f731eb4828f3a188a785e55b6af5c26
-
-下载BT种子 [美國總統约翰肯尼迪大去之日突然降臨！是外星人干的嗎？（探索與洞見第001集老北京茶館20200401）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2b0cfb67cc7c09a6b69106b331f22bf9486ff4e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f2b0cfb67cc7c09a6b69106b331f22bf9486ff4e
-
-下载BT种子 [经济困境中，韩国人居然这么做，您也会这么做吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/055bc96d4fd7e45ed76a1db978b17f71e361621c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:055bc96d4fd7e45ed76a1db978b17f71e361621c
-
-下载BT种子 [【禁闻】4月1日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a173d845d338bab4706db93820b02e27a9ee6e89.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a173d845d338bab4706db93820b02e27a9ee6e89
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
