@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X31ax9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d7TiMC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】4.7台行政院紓困振興方案記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06626ee4c1a4192754f7a6e5bdbcde31fda053d9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06626ee4c1a4192754f7a6e5bdbcde31fda053d9
+
+下载BT种子 [【47重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/779c8a0c6fca53160f30dd2a586e1c308688bed7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:779c8a0c6fca53160f30dd2a586e1c308688bed7
 
 下载BT种子 [中共大外宣出新招，陳奕迅、蔡依林受害；國際罷免譚德塞，小心更多「譚德塞們」（2020.4.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80819b8e061dbc84f0d69847a6a8b87e1fa63188.torrent)
 
@@ -596,18 +604,6 @@
 下载BT种子 [每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ba16f9fc8958f7e7545daa06cf9cfef77c235d2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0ba16f9fc8958f7e7545daa06cf9cfef77c235d2
-
-下载BT种子 [《石濤聚焦》「深夜疲憊孤身返回白宮」川普：未來2週美國人可能面對地獄般的生活可能韓戰與越戰死亡之總和『逃跑式防疫－保持社交距離』唯一有效方法（0204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a48d776f39485b965e8184b4d0ce52fc755ebb8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4a48d776f39485b965e8184b4d0ce52fc755ebb8
-
-下载BT种子 [《石濤聚焦》「中共病毒-武漢肺炎習近平稱霸全球-中共解放全人類最後最佳機會」豬瘟手法處理中國疫情輸出病毒-擊垮整個西方文明買斷西方社會全部防疫物資設備「王滬寧-性本惡三部曲」近平病毒-百年紅潮劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/adabebfbfedd9954f0d0c6aeed099fc175f7ef28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:adabebfbfedd9954f0d0c6aeed099fc175f7ef28
-
-下载BT种子 [台湾一石四鸟，中共羡慕嫉妒恨，西方大国要反省.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d91dacf6dde6f51b69243061b6fc8f2b460b4a06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d91dacf6dde6f51b69243061b6fc8f2b460b4a06
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
