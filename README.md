@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/15fqos)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kbtYL1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美情今日。党报悄然下架习近平？老任有消息！伊朗反目，巴西这样说中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb84e0fb136e7aef7d3dbfcb5f448725615b7824.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bb84e0fb136e7aef7d3dbfcb5f448725615b7824
 
 下载BT种子 [《石濤聚焦》「川普按捺不住：WHO把我當成凱子耍」給錢美國是大頭兒「某種原因」WHO把中共國當中心「真的搞砸了我們好好看看到底咋回事兒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8df0e1b9ae16d35f366863ce52dde0e7e571877.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [北京，似乎发生大事！大量士兵进京。就在习近平返京次日。俄罗斯倒向美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/280d8e59e111189e91e28bc6852395ab38e82d6f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:280d8e59e111189e91e28bc6852395ab38e82d6f
-
-下载BT种子 [快讯：北京异常，疑似发生政变！大量士兵进京。就在习近平返京次日。俄罗斯倒向美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c45ff781009418b102001bdb231a06990c234195.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c45ff781009418b102001bdb231a06990c234195
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
