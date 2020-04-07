@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d7TiMC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sVyGsn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月7日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4461f6e56e2a0f37206a18013f6bf00d69cc159.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c4461f6e56e2a0f37206a18013f6bf00d69cc159
 
 下载BT种子 [【重播】4.7台行政院紓困振興方案記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06626ee4c1a4192754f7a6e5bdbcde31fda053d9.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [特朗普變臉：拒絕習近平物資！華春瑩蹦高：某人一貫撒謊欺騙！華人求助大使館遭拒！（老北京茶館第279集20200402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1d364b5c3bfe32817ed49a97c106bfa8609379d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1d364b5c3bfe32817ed49a97c106bfa8609379d
-
-下载BT种子 [每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點李沐陽】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ba16f9fc8958f7e7545daa06cf9cfef77c235d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0ba16f9fc8958f7e7545daa06cf9cfef77c235d2
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
