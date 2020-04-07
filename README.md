@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lyoIju)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sE5Xk1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b637e43b67f1a15f5182ab5fbd8936cb419c3385.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b637e43b67f1a15f5182ab5fbd8936cb419c3385
 
 下载BT种子 [英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆第282集20200406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ca0e3c8d6bc2ac19092b49168a604de8f9c1721.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [台湾一石四鸟，中共羡慕嫉妒恨，西方大国要反省.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d91dacf6dde6f51b69243061b6fc8f2b460b4a06.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d91dacf6dde6f51b69243061b6fc8f2b460b4a06
-
-下载BT种子 [【微视频】习近平和川普关于疫情谈了什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad6f56d35ce583f8c7586342c3841b58d8e3ab33.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad6f56d35ce583f8c7586342c3841b58d8e3ab33
 
 下载BT种子 [【中国禁闻】4月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78354c79322b3763f98835ed5f2f98c22521e487.torrent)
 
