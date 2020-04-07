@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hHGObb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Firml2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共涉「一級謀殺」，中共怕了；資深醫生淚奔😢，女子哭聲人心碎！😭墓地刮龍捲風🌪️；治癒率94.3%，中共有解藥？甘肅女子生死無音訊；為何中共必須解體？🤔中共解體誰接替？🤨【新聞看點李沐陽04.06】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1309fe4afe477f728fd1ebfdba76b2a0c7e9b62f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1309fe4afe477f728fd1ebfdba76b2a0c7e9b62f
 
 下载BT种子 [【禁闻】美律师：中共胁迫在华美商涉一级谋杀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13a588912fbb37ba783299b3ba4cdb637b42ac93.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [紐約中央公園野戰醫院啟用直擊患者收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79b5eed69581195b71faf13da643c8db5aee69fb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:79b5eed69581195b71faf13da643c8db5aee69fb
-
-下载BT种子 [川普再提中共數據不實警告伊朗如果偷襲美軍將付出沉重代價.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d77a068fd1c4fce5e08f4314d77fe4008fd601ec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d77a068fd1c4fce5e08f4314d77fe4008fd601ec
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
