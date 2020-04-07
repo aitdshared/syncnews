@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SA6TTt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r0TdoP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [防疫不失優雅巴黎小提琴家為鄰居演奏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b36e5d0c36c61a21cc5cbe4c1d0f28eacdccd0cd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b36e5d0c36c61a21cc5cbe4c1d0f28eacdccd0cd
+
+下载BT种子 [掩蓋疫情多國法政學界籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc8fc319b9438df72b18b93b4db959c6e78640ba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc8fc319b9438df72b18b93b4db959c6e78640ba
+
+下载BT种子 [大紐約航班大幅減少直擊紐約機場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dd85437fa135240910d097ec6779e19bc9d94b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:12dd85437fa135240910d097ec6779e19bc9d94b
+
+下载BT种子 [美測試量超179萬紐約疫情現緩和美國股市大幅上漲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e32d4ebad6bf212291565e5e58b96ee36ca1c497.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e32d4ebad6bf212291565e5e58b96ee36ca1c497
+
+下载BT种子 [各國抗疫物資紛紛告急中共指令全球採購海外口罩一半流入中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e9e1847b586a6aec05eb6c718487e47d385ac6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c0e9e1847b586a6aec05eb6c718487e47d385ac6
 
 下载BT种子 [蘋果入防疫國家隊防護面罩每週產100萬個.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5f4185de067f00d495b934f74e4836bb9fba1c1.torrent)
 
@@ -588,30 +608,6 @@
 下载BT种子 [美情深重，纽约人为何不逃不抢不乱？高层内战：常委提议放人，习近平一票否决.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e43de22a8d8a29eed4b35c60024ef1445e9db76c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e43de22a8d8a29eed4b35c60024ef1445e9db76c
-
-下载BT种子 [《石濤聚焦》「橫掃佛州的‘漂亮’東北女人再視頻-向粉絲呼籲」被揭底“2018年因家暴被抓”專營網購直言「本想息事寧人為了祖國為心無愧身正不怕影子斜」網友反饋「很中國」（0204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd8cb487d2989c00619379e4f4a56d43310cb45.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfd8cb487d2989c00619379e4f4a56d43310cb45
-
-下载BT种子 [美情深重，纽约人为何不逃不抢不乱？高层内战：某常委大胆提议，习近平一票否决.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/201947327a8d8558fa1374a0a60a2e7cf128af4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:201947327a8d8558fa1374a0a60a2e7cf128af4b
-
-下载BT种子 [三公民記者查疫情真相被抓美議員籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd8488c946bb30ef29df3b749e29fbde458fc11.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6bd8488c946bb30ef29df3b749e29fbde458fc11
-
-下载BT种子 [全球感染人數逼近100萬美軍航空母艦已確診近百人西班牙超過1萬人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/446231ee49aeaf9ef131cd6f6d92325655ddacb1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:446231ee49aeaf9ef131cd6f6d92325655ddacb1
-
-下载BT种子 [《石濤.News》「中共病毒-武漢肺炎正式突破100萬死亡破5萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a6ad8105c81aa1dada82f5485cde13d59f9031f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0a6ad8105c81aa1dada82f5485cde13d59f9031f
-
-下载BT种子 [紐約中央公園野戰醫院啟用直擊患者收治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79b5eed69581195b71faf13da643c8db5aee69fb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:79b5eed69581195b71faf13da643c8db5aee69fb
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
