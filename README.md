@@ -21,17 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lcN8E8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZTtDww)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [中國公司網絡兜售「假」病毒檢測套件遭起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74d1c054769a32cc63baf6de93c53806c38d9519.torrent)
-
-磁力链接 magnet:?xt=urn:btih:74d1c054769a32cc63baf6de93c53806c38d9519
 
 下载BT种子 [《石濤聚焦》「推特滿屏：鳳凰衛視女記王又又白宮記者會“硬撼”川普」川普“你在演講不是提問”再問“你是中共國的嗎？中共國媒體？“王答”不是是香港私人公司“公然違反”一中原則“隨意欺騙美國總統.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/726088fd0c0ede296c3ddc6d92935dd67f83fa40.torrent)
 
