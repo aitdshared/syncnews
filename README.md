@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WkGypB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Lc1X7w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5022f991b43f3e0b43f7f67018ef5a3c0fd98004.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5022f991b43f3e0b43f7f67018ef5a3c0fd98004
+
+下载BT种子 [【禁闻】中共发消费券救经济网友：割韭菜的饵料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf
 
 下载BT种子 [防疫不失優雅巴黎小提琴家為鄰居演奏.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b36e5d0c36c61a21cc5cbe4c1d0f28eacdccd0cd.torrent)
 
@@ -597,17 +605,9 @@
 
 磁力链接 magnet:?xt=urn:btih:fd70a0d464d72913babd215a5c456c7dcb09e5d5
 
-下载BT种子 [【禁闻】4月2日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4bd0bfd83e6e4c19ffbb64ffd2b611e8dd91ac8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4bd0bfd83e6e4c19ffbb64ffd2b611e8dd91ac8
-
 下载BT种子 [【禁闻】疫情下中国现抢粮潮中共仍对外“撒粮”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c02df22e03b83c253a0716264c256d1b59371af1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c02df22e03b83c253a0716264c256d1b59371af1
-
-下载BT种子 [美情深重，纽约人为何不逃不抢不乱？高层内战：常委提议放人，习近平一票否决.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e43de22a8d8a29eed4b35c60024ef1445e9db76c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e43de22a8d8a29eed4b35c60024ef1445e9db76c
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
