@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/InWDQ6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LrSzmo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34e8ba5b1b573dca8ffc507804c6796cc378f86a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:34e8ba5b1b573dca8ffc507804c6796cc378f86a
 
 下载BT种子 [【禁闻】3M需中共批准才能运口罩回美国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2096c39a0f4cb0a639f670086e8b9cd0515718a8.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【环球直击】4月3日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/038894edd395ea3e777a3f00a2283c43d3a683ae.torrent)
 
 磁力链接 magnet:?xt=urn:btih:038894edd395ea3e777a3f00a2283c43d3a683ae
-
-下载BT种子 [小心⚠️！病毒可「空氣」傳播😮；宣傳戰激怒各國😡，反共潮再起🚫；台灣🇹🇼防疫外交，勿忘香港🇭🇰（2020.4.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af0dd3cca742ffc8380ed36a88fcaca8e7a2e05f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:af0dd3cca742ffc8380ed36a88fcaca8e7a2e05f
 
 下载BT种子 [【中國禁聞】4月2日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/716453739f1df1721f6153a387e4d3cfc010d982.torrent)
 
