@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Lc1X7w)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lyoIju)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆第282集20200406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ca0e3c8d6bc2ac19092b49168a604de8f9c1721.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9ca0e3c8d6bc2ac19092b49168a604de8f9c1721
 
 下载BT种子 [【全球新闻】4月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5022f991b43f3e0b43f7f67018ef5a3c0fd98004.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁闻】澳媒：前中共军人搜刮医疗物资运回中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcd2c6ecab1b0a55ea93c3c4ef554f13cecb3d37.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dcd2c6ecab1b0a55ea93c3c4ef554f13cecb3d37
-
-下载BT种子 [【禁闻】建雷神山医院农民工工资遭克扣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bcd7cdfe0a0da5ba6624ad8d69c73498406d68d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3bcd7cdfe0a0da5ba6624ad8d69c73498406d68d
 
 下载BT种子 [【禁闻】国际防疫孤儿台湾自助助人捐千万片口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd70a0d464d72913babd215a5c456c7dcb09e5d5.torrent)
 
