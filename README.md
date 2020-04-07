@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EYTIoO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WxxLop)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】4月6日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5809f3d28cf2c6e34a39c392242560e49fca280b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5809f3d28cf2c6e34a39c392242560e49fca280b
 
 下载BT种子 [【环球直击】4月7日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4461f6e56e2a0f37206a18013f6bf00d69cc159.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [疫情致美失業超660萬川普促為企業減稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/221f78109a0c1da8025d02a72a528285a3285706.torrent)
 
 磁力链接 magnet:?xt=urn:btih:221f78109a0c1da8025d02a72a528285a3285706
-
-下载BT种子 [特朗普變臉：拒絕習近平物資！華春瑩蹦高：某人一貫撒謊欺騙！華人求助大使館遭拒！（老北京茶館第279集20200402）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1d364b5c3bfe32817ed49a97c106bfa8609379d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c1d364b5c3bfe32817ed49a97c106bfa8609379d
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
