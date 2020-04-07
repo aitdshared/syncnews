@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aC1SVE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2OLt79)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [清算中共已成为各国政府的规定动作，坐等中共垮台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43d2ba26dd5754c65b01e0a1db30de7fc3065683.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43d2ba26dd5754c65b01e0a1db30de7fc3065683
 
 下载BT种子 [十九國“零號”都指向一處；習近平拿十億口罩換法國馬克龍5G華為訂單；美國“地下黨”與中共同時行動（江峰漫談20200406第151期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [台湾一石四鸟，中共羡慕嫉妒恨，西方大国要反省.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d91dacf6dde6f51b69243061b6fc8f2b460b4a06.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d91dacf6dde6f51b69243061b6fc8f2b460b4a06
-
-下载BT种子 [【禁闻】澳媒：前中共军人搜刮医疗物资运回中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcd2c6ecab1b0a55ea93c3c4ef554f13cecb3d37.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dcd2c6ecab1b0a55ea93c3c4ef554f13cecb3d37
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
