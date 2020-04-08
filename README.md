@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aZn2Qg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E4MdFR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普宣佈：凍結WHO資金」美國提供資金WHO卻總以中共國為中心「疫情中他們每個階段都做錯事」（0704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c47fa96011e67b24c6d8e595af07b019c135125.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c47fa96011e67b24c6d8e595af07b019c135125
+
+下载BT种子 [任志强正式被查辦，對照四年前，习近平怕的原來是它！糧食豐足下的糧荒，一探究竟：中共把持的世界糧農組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c216b17f6648af6549c55dce916ef29aff7c598b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c216b17f6648af6549c55dce916ef29aff7c598b
 
 下载BT种子 [《石濤聚焦》「公開抓捕任志強習近平犯大忌-黨紀國法私用」中南海各勢力必擇機反擊「習近平主動公開與王岐山撕裂」應對鐵板圖-撞山而死「七座山已湊齊」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42ab04e33f94b77205b1503ca20072e9d51c7651.torrent)
 
@@ -589,10 +597,6 @@
 
 磁力链接 magnet:?xt=urn:btih:88db42ad07efae396cb9e7e7fead24d939d130a7
 
-下载BT种子 [【禁闻】4月3日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ca981e51cc7b9ba81df97fc86aeafde809ed902.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6ca981e51cc7b9ba81df97fc86aeafde809ed902
-
 下载BT种子 [【禁闻】科技脱钩美拟收紧对中共高科技出口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa
@@ -600,10 +604,6 @@
 下载BT种子 [白邦瑞美國作證：特朗普很委婉，沒說习近平那句難聽！動畫甩鍋；党媒闢謠，民眾搶米！（老北京茶館第280集20200403）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60a6f31a9d1b020ea4f17be8564ffcea03940ce8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:60a6f31a9d1b020ea4f17be8564ffcea03940ce8
-
-下载BT种子 [與看不見的敵人作戰美軍司令：夏延山防核碉堡已經在運轉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44acea725d8e2354216fdc4f957eb442971d43ff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:44acea725d8e2354216fdc4f957eb442971d43ff
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
