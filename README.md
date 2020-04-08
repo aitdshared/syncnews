@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3hurOF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zA00xH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】趁人之危中共用口罩逼法国使用华为5G.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/baeb3ee44703c1c2988d907a6362989ee4954ca6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:baeb3ee44703c1c2988d907a6362989ee4954ca6
 
 下载BT种子 [【中国禁闻】4月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02bd1c2371ed20df91fcd6c03f383a4c09ce18c6.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [吹哨人李文亮被評烈士發哨人艾芬疑失踪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece94c64b4663ed81357ea5aa62a3e6b0e01a535.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ece94c64b4663ed81357ea5aa62a3e6b0e01a535
-
-下载BT种子 [川普再檢測呈陰性將實施《薪酬保障計劃》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
