@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xtBZBN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7elVQ0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢近日出現無症狀感染者武漢市民：出門復工的是第一批白老鼠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b86b678ccfc860c9aad3e28d0007528201d6d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19b86b678ccfc860c9aad3e28d0007528201d6d5
+
+下载BT种子 [武漢封城76天解封五萬人出城專家憂心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c581995ea00ee90b75692f35da4706323547c5d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c581995ea00ee90b75692f35da4706323547c5d2
 
 下载BT种子 [全球超過144萬人被確診英國首相約翰遜病情穩定意大利新確診近4週最低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ef2313594a95d326d247dc568d219e7befd24a.torrent)
 
@@ -596,22 +604,6 @@
 下载BT种子 [疫情下中國會出現糧荒嗎？「美國胖媳婦兒」搜購口罩視頻鬧大了！唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13be6fef326b7b3a7eff27ef3a2e677eb6989be6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:13be6fef326b7b3a7eff27ef3a2e677eb6989be6
-
-下载BT种子 [🇺🇸美國要鎖國？中共12月確定人傳人，中情局握瞞報證據；紐約屍袋成排；疫情下非洲裔受惠，事關沉船計畫？吉林沙塵暴白天變黑夜；袁隆平：國產糧不夠吃；王全璋獲釋遇阻；瑞幸咖啡事件新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c482ae43ccab12f129ac22fd15aee016bcbd8d7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c482ae43ccab12f129ac22fd15aee016bcbd8d7f
-
-下载BT种子 [《濤哥侃封神》「封神演義第四十回四天王遇丙靈公」魔式兄弟逞凶威-地水火風罩乾坤子牙丟了打神鞭哪吒失了乾坤圈金吒沒了遁龍樁「古來多少英雄血爭利圖名儘是傷」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc019c194c7e365aa754ceee6c69f8985e14e96e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bc019c194c7e365aa754ceee6c69f8985e14e96e
-
-下载BT种子 [《石濤.News》「紐時：否定與死亡的四月」中共大劫年-開啟於18年習近平修憲-逾越節耶穌受難日重疊復活節愚人節重疊19年巴黎聖母院大火與胡耀邦祭日重疊「川普-極其痛苦地獄般苦難-2020年4月」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d056abd3370cc0f11540277a7b55eeadce4a2128.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d056abd3370cc0f11540277a7b55eeadce4a2128
-
-下载BT种子 [在家办公，韩国妈妈给儿子立规矩走红网络，让人捧腹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f
 
 下载BT种子 [【中国禁闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8132405174d5d684fcd24179ed86cc9cbcf92643.torrent)
 
