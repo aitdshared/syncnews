@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/41MkEx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/McjBzy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [任志强被查，习近平铁了心？崔天凯紧急向美示好，全网404，赵立坚复出问答被秒删！（老北京茶馆第283集20200407）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74007f9bc3ac4bf506d8b14ee4bf6dcdaca83190.torrent)
+
+磁力链接 magnet:?xt=urn:btih:74007f9bc3ac4bf506d8b14ee4bf6dcdaca83190
 
 下载BT种子 [日持續口罩荒民眾促中恢復口罩供應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fbde174dcf6a1e2f9e78a94ef126fd684b80ed3.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [【重播】4.3紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cecd8990e395bceee333d3a07c7b6766680b400d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cecd8990e395bceee333d3a07c7b6766680b400d
-
-下载BT种子 [先拉後拒留學生買高價票回國面臨什麼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/230409e0165c5b81f9f8e23ad6f0db016359e72b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:230409e0165c5b81f9f8e23ad6f0db016359e72b
 
 下载BT种子 [中共病毒超過1百萬確診澳洲真實情況1千萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbe3960e77ccd0a15739ac5de907c2ce9081be6f.torrent)
 
