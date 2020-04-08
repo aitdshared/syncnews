@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GyUG9X)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/41MkEx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [日持續口罩荒民眾促中恢復口罩供應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fbde174dcf6a1e2f9e78a94ef126fd684b80ed3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3fbde174dcf6a1e2f9e78a94ef126fd684b80ed3
+
+下载BT种子 [3D打印呼吸機解決兩患者共用難題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7049a9f476fe32af50e1ad26d32e43612537c94d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7049a9f476fe32af50e1ad26d32e43612537c94d
 
 下载BT种子 [【禁闻】英超复赛无期与“中国梦”有关？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52abb28559a08f65fd66f4c3c033b4936507a4c6.torrent)
 
@@ -573,10 +581,6 @@
 
 磁力链接 magnet:?xt=urn:btih:968428d6d68415c91c6e5f0a6b41c534125c4cb5
 
-下载BT种子 [布朗巴克：大疫下速釋法輪功等良心犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c249aa62d080ed7b4f0a1b904419b7c63b57de16.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c249aa62d080ed7b4f0a1b904419b7c63b57de16
-
 下载BT种子 [【重播】4.3紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cecd8990e395bceee333d3a07c7b6766680b400d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cecd8990e395bceee333d3a07c7b6766680b400d
@@ -596,10 +600,6 @@
 下载BT种子 [川普再檢測呈陰性將實施《薪酬保障計劃》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6bab84f3282291ae1fd5fa74b3d3ed7b20d36c54
-
-下载BT种子 [微博節目《兩岸青年說》洗腦大陸人波特王揭幕後黑手是中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a606378540eee3ff73385234a9209ce32948d7c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a606378540eee3ff73385234a9209ce32948d7c8
 
 下载BT种子 [瑞幸咖啡造假股票暴跌或面臨112億索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/433b7a0ad96d96f5aafa66d66a1ce95cb683dff8.torrent)
 
