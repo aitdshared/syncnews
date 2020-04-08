@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T0W4Uh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cwQKTp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平发话：准备长期应付外部压力！任志强被查，将被定性为“颠覆势力”？（文昭谈古论今20200408第732期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d577050ca9bd8382a3a0d1c624e82a7fb65a3f4f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d577050ca9bd8382a3a0d1c624e82a7fb65a3f4f
 
 下载BT种子 [《石濤.News》「4.8武漢解封-復工死發財」卻墜入神佛定數：逾越節-耶和華殺死埃及人祭典封城日-中共製造天安門自焚偽火之日引活摘罪惡欺騙全球第77天解封-定數難逃習總親邀中共病毒即時定再現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a90a14eb88574e6aa1485b71b024cd91edaf1c4.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [《石濤.News》「4.4清明-大凶日不宜祭典：中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86bc7269ace693fec8bcbaf90185cb2693b38ef4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:86bc7269ace693fec8bcbaf90185cb2693b38ef4
-
-下载BT种子 [加入會員，成為「正義股東」🏅⚖🙆🏻‍♀️🙆🏻‍♂️🙋🏻‍♀️🙋🏻‍♂️（2020.4.4）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac775876f1ba8da550591fc84537c2f45badf0d6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ac775876f1ba8da550591fc84537c2f45badf0d6
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
