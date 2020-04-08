@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7elVQ0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FlpNgZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「對比下不寒而慄」川普坦承：美國黑人確診與死亡「不成比例的極高太嚇人太可怕」廣州三元里30萬黑人聚集區「疫情大爆發」美國首席專家「我們無能為力-不知道為什麼」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88e7c185f2ec93372621809eddd051181680df0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:88e7c185f2ec93372621809eddd051181680df0d
 
 下载BT种子 [武漢近日出現無症狀感染者武漢市民：出門復工的是第一批白老鼠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b86b678ccfc860c9aad3e28d0007528201d6d5.torrent)
 
@@ -600,18 +604,6 @@
 下载BT种子 [【重播】4.4台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/948fe2ddd0e1dd3e244bf83bdd6198d094bee569.torrent)
 
 磁力链接 magnet:?xt=urn:btih:948fe2ddd0e1dd3e244bf83bdd6198d094bee569
-
-下载BT种子 [疫情下中國會出現糧荒嗎？「美國胖媳婦兒」搜購口罩視頻鬧大了！唐靖遠蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13be6fef326b7b3a7eff27ef3a2e677eb6989be6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:13be6fef326b7b3a7eff27ef3a2e677eb6989be6
-
-下载BT种子 [【中国禁闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8132405174d5d684fcd24179ed86cc9cbcf92643.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8132405174d5d684fcd24179ed86cc9cbcf92643
-
-下载BT种子 [白邦瑞美國作證：特朗普很委婉，沒說习近平那句難聽！動畫甩鍋；党媒闢謠，民眾搶米！（老北京茶館第280集20200403）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60a6f31a9d1b020ea4f17be8564ffcea03940ce8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:60a6f31a9d1b020ea4f17be8564ffcea03940ce8
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
