@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vHoQ4f)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RvvX8M)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球超過144萬人被確診英國首相約翰遜病情穩定意大利新確診近4週最低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ef2313594a95d326d247dc568d219e7befd24a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1ef2313594a95d326d247dc568d219e7befd24a
+
+下载BT种子 [中共黑客攻擊Linux及安卓系統的手機設備長達10年沒有被發現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/408a89300072f844b65bd466cf6e9bd3a3141aaf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:408a89300072f844b65bd466cf6e9bd3a3141aaf
+
+下载BT种子 [川普：世衛組織圍着中共轉美國將調查並考慮停止撥款.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35f10a523acc8fa1f8d01620e4c3dc5e084aa219.torrent)
+
+磁力链接 magnet:?xt=urn:btih:35f10a523acc8fa1f8d01620e4c3dc5e084aa219
+
+下载BT种子 [川普揭穿鳳凰女記者香港記協起底劉長樂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abc898315ad7aba7de69969e9ef041633585e312.torrent)
+
+磁力链接 magnet:?xt=urn:btih:abc898315ad7aba7de69969e9ef041633585e312
+
+下载BT种子 [蓬佩奧：將把關鍵醫療物資留在美國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23559aed251f67fff8af3f5be6fbc322c2b9586e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:23559aed251f67fff8af3f5be6fbc322c2b9586e
 
 下载BT种子 [不同寻常！香港亲中媒体忽然大谈习近平身后事。八十二军起到逼宫作用？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169171776f0efd87688c9316dc7b7887d290301d.torrent)
 
@@ -584,10 +604,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第四十回四天王遇丙靈公」魔式兄弟逞凶威-地水火風罩乾坤子牙丟了打神鞭哪吒失了乾坤圈金吒沒了遁龍樁「古來多少英雄血爭利圖名儘是傷」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc019c194c7e365aa754ceee6c69f8985e14e96e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bc019c194c7e365aa754ceee6c69f8985e14e96e
-
-下载BT种子 [惊悚的政变传闻与美元伪钞案,被误读的3月PMI与实实在在的粮荒(政论天下第145集20200403)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d2f3314c140b305988ebb573823e2c50248d04d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4d2f3314c140b305988ebb573823e2c50248d04d
 
 下载BT种子 [《石濤.News》「紐時：否定與死亡的四月」中共大劫年-開啟於18年習近平修憲-逾越節耶穌受難日重疊復活節愚人節重疊19年巴黎聖母院大火與胡耀邦祭日重疊「川普-極其痛苦地獄般苦難-2020年4月」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d056abd3370cc0f11540277a7b55eeadce4a2128.torrent)
 
