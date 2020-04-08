@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nqjvHR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DVnS3N)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [不同寻常！香港亲中媒体忽然大谈习近平身后事。八十二军起到逼宫作用？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169171776f0efd87688c9316dc7b7887d290301d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:169171776f0efd87688c9316dc7b7887d290301d
 
 下载BT种子 [六成感染者未發現😷，武漢解封全國冒險😨；紐約疫情為何屢創新高？❗️（2020.4.8）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b25a76542cc7cf48422e193d0178bdddceb29b.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [在家办公，韩国妈妈给儿子立规矩走红网络，让人捧腹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f4b96b3e1c3c2c5b7fdf22eeef6c1fc5c8d08b6f
-
-下载BT种子 [【禁闻】国际警惕“中国制造”全球供应链或将转移.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21395b1cae247a97151b3c0408566c391305d398.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21395b1cae247a97151b3c0408566c391305d398
 
 下载BT种子 [【中国禁闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8132405174d5d684fcd24179ed86cc9cbcf92643.torrent)
 
