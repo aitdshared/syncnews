@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pSyVMR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nqjvHR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [六成感染者未發現😷，武漢解封全國冒險😨；紐約疫情為何屢創新高？❗️（2020.4.8）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b25a76542cc7cf48422e193d0178bdddceb29b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71b25a76542cc7cf48422e193d0178bdddceb29b
+
+下载BT种子 [【环球直击】4月8日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed21953052fc8a37a7d97d1bd433729b4dff8a4a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ed21953052fc8a37a7d97d1bd433729b4dff8a4a
 
 下载BT种子 [【中國禁聞】4月7日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4510e3768e5a7f528cf5815f4c665528902662e1.torrent)
 
@@ -592,14 +600,6 @@
 下载BT种子 [【中国禁闻】4月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8132405174d5d684fcd24179ed86cc9cbcf92643.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8132405174d5d684fcd24179ed86cc9cbcf92643
-
-下载BT种子 [【禁闻】世卫帮中共误导国际社会美议员吁调查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88db42ad07efae396cb9e7e7fead24d939d130a7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:88db42ad07efae396cb9e7e7fead24d939d130a7
-
-下载BT种子 [【禁闻】科技脱钩美拟收紧对中共高科技出口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c333e40ce66ab1dc08f3979ac01b1c4ebc3acaa
 
 下载BT种子 [白邦瑞美國作證：特朗普很委婉，沒說习近平那句難聽！動畫甩鍋；党媒闢謠，民眾搶米！（老北京茶館第280集20200403）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60a6f31a9d1b020ea4f17be8564ffcea03940ce8.torrent)
 
