@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FlpNgZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zC5y2k)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月8日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591f0e8cfab97cd0c4c25122025d0099fcb2877e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:591f0e8cfab97cd0c4c25122025d0099fcb2877e
 
 下载BT种子 [《石濤聚焦》「對比下不寒而慄」川普坦承：美國黑人確診與死亡「不成比例的極高太嚇人太可怕」廣州三元里30萬黑人聚集區「疫情大爆發」美國首席專家「我們無能為力-不知道為什麼」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88e7c185f2ec93372621809eddd051181680df0d.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【中國禁聞】4月3日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aca6f79654a927697f7f8e28c71cd7e1d3a0ae50.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aca6f79654a927697f7f8e28c71cd7e1d3a0ae50
-
-下载BT种子 [【重播】4.4台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/948fe2ddd0e1dd3e244bf83bdd6198d094bee569.torrent)
-
-磁力链接 magnet:?xt=urn:btih:948fe2ddd0e1dd3e244bf83bdd6198d094bee569
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
