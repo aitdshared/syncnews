@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rfdQD3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aZn2Qg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「公開抓捕任志強習近平犯大忌-黨紀國法私用」中南海各勢力必擇機反擊「習近平主動公開與王岐山撕裂」應對鐵板圖-撞山而死「七座山已湊齊」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42ab04e33f94b77205b1503ca20072e9d51c7651.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42ab04e33f94b77205b1503ca20072e9d51c7651
 
 下载BT种子 [北京通报：任志强正接受纪委审查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9486b33988f0d8fe623c2c9697c2b4bc996793b7.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [與看不見的敵人作戰美軍司令：夏延山防核碉堡已經在運轉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44acea725d8e2354216fdc4f957eb442971d43ff.torrent)
 
 磁力链接 magnet:?xt=urn:btih:44acea725d8e2354216fdc4f957eb442971d43ff
-
-下载BT种子 [美議員起草「李文亮」法案制裁隱瞞疫情真實信息的外國官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f313720704ac668441d62f45262b5c53c58b29c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f313720704ac668441d62f45262b5c53c58b29c9
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
