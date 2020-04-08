@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aKyXz1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3E2I16)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】英超复赛无期与“中国梦”有关？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52abb28559a08f65fd66f4c3c033b4936507a4c6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52abb28559a08f65fd66f4c3c033b4936507a4c6
 
 下载BT种子 [伊朗也噴中共了！川普懟鳳凰衛視；英國首相進ICU；舊恨未了添新怨（文昭談古論今20200407第731期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fb9c95568ccd2c11ed4ff5d5619be683f20d04e.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [瑞幸咖啡造假股票暴跌或面臨112億索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/433b7a0ad96d96f5aafa66d66a1ce95cb683dff8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:433b7a0ad96d96f5aafa66d66a1ce95cb683dff8
-
-下载BT种子 [《石濤聚焦》「突發：王岐山與習近平七常委露面北京：氣色不錯笑容尷尬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1eabd50d602563173c45a81e3472edd6ae042881.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1eabd50d602563173c45a81e3472edd6ae042881
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
