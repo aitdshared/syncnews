@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OiCpQ3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/78x7RD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -593,17 +593,9 @@
 
 磁力链接 magnet:?xt=urn:btih:c2aee56f9e261e2bf0023c487e5dd57db0b4d532
 
-下载BT种子 [川普：政府承擔無醫保者中共病毒檢測治療費建議民衆可憑自願佩戴非醫用口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8112ef993022a4f0109a77405ae69a7c807f1aa9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8112ef993022a4f0109a77405ae69a7c807f1aa9
-
 下载BT种子 [中共肺炎海外感染超百萬澳專家稱實際是5-10倍有些國家沒有測試能力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d376ab0d75f119595b68ba65f152d9c8f96179e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3d376ab0d75f119595b68ba65f152d9c8f96179e
-
-下载BT种子 [CIA情報使習近平甩鍋破功？川普的歷史性抉擇；北京浮現兩個司令部；二度流行的風險（文昭談古論今20200403第729期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d25d2da88c49c58524f812712236c95b37ab72c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3d25d2da88c49c58524f812712236c95b37ab72c
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
