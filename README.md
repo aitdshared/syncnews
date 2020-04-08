@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zA00xH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SCCi6d)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -596,10 +596,6 @@
 下载BT种子 [【重播】4.3紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cecd8990e395bceee333d3a07c7b6766680b400d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cecd8990e395bceee333d3a07c7b6766680b400d
-
-下载BT种子 [中共病毒超過1百萬確診澳洲真實情況1千萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbe3960e77ccd0a15739ac5de907c2ce9081be6f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cbe3960e77ccd0a15739ac5de907c2ce9081be6f
 
 下载BT种子 [吹哨人李文亮被評烈士發哨人艾芬疑失踪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece94c64b4663ed81357ea5aa62a3e6b0e01a535.torrent)
 
