@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uPDH8J)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mcQewK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】石正麗最新研究與冰島「雙病毒」病例隱藏重大信息！舉國撐武漢，“厲害”背後伏危機熱點互動04072020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b17a6b86dadf3b421fd286e9d135ea9952d7ce23.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b17a6b86dadf3b421fd286e9d135ea9952d7ce23
 
 下载BT种子 [陆生攻击陈时中先生，却不敢对中共说半个“不”字，海外华人或被设定亲共等级.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3116037e810c54a5f65798a515ccbee3a1c1f21.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【蕭茗訪談】“共產主義就像一種病毒”遠離它還是消滅它？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3d186f28ab948e1ab29c1be48cb5d0dbd022829.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d3d186f28ab948e1ab29c1be48cb5d0dbd022829
-
-下载BT种子 [【环球直击】川普再检测呈阴性留学生买高价票回国面临什么(4月3日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b5e1d32727223ed20755ab72e805f02f55cd45a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b5e1d32727223ed20755ab72e805f02f55cd45a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
