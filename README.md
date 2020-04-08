@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cwQKTp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hWtwlJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平发话：准备长期应付外部压力！任志强被查，将被定性“颠覆势力”？（文昭谈古论今20200408第732期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06bda81cc833e480b26eed112775050710d40359.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06bda81cc833e480b26eed112775050710d40359
 
 下载BT种子 [习近平发话：准备长期应付外部压力！任志强被查，将被定性为“颠覆势力”？（文昭谈古论今20200408第732期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d577050ca9bd8382a3a0d1c624e82a7fb65a3f4f.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [《石濤.News》「4.4清明-大凶日不宜祭典：中共國哀悼日」時間是個神：7年前11.14習上台-4.4祭典「3個死-天地人」10.1大閱兵-習招鬼上身404-網路封鎖不在冊屈死冤魂-聚集中南海.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab9101bb08bb1bfa4c0214cc69008f7383dfb840.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ab9101bb08bb1bfa4c0214cc69008f7383dfb840
-
-下载BT种子 [《石濤.News》「4.4清明-大凶日不宜祭典：中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86bc7269ace693fec8bcbaf90185cb2693b38ef4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:86bc7269ace693fec8bcbaf90185cb2693b38ef4
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
