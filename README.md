@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SCCi6d)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/No72KU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】4月7日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5942b58832e7729005e432a164edc638a2bf924.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d5942b58832e7729005e432a164edc638a2bf924
+
+下载BT种子 [【禁闻】武汉解封更危险？民众提醒没事别出门.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b48d76979b1ffde7eb36b8ac2d8fecc1a4dcd73.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2b48d76979b1ffde7eb36b8ac2d8fecc1a4dcd73
 
 下载BT种子 [【禁闻】趁人之危中共用口罩逼法国使用华为5G.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/baeb3ee44703c1c2988d907a6362989ee4954ca6.torrent)
 
@@ -596,10 +604,6 @@
 下载BT种子 [【重播】4.3紐約州長庫默召開新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cecd8990e395bceee333d3a07c7b6766680b400d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cecd8990e395bceee333d3a07c7b6766680b400d
-
-下载BT种子 [吹哨人李文亮被評烈士發哨人艾芬疑失踪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ece94c64b4663ed81357ea5aa62a3e6b0e01a535.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ece94c64b4663ed81357ea5aa62a3e6b0e01a535
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
