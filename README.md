@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/210gdo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5rX2JR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平忽然冒出这句话！神秘人物长期隐蔽，那是中共准备的最后领导人？谭书记想不开了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68ec59f14f7d7d07436168bcc70123abc730fab1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:68ec59f14f7d7d07436168bcc70123abc730fab1
 
 下载BT种子 [川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aab5c75c36a9f4eafe860dcdf45bb838a683b359.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [印度聯合國開啟索賠中共；美國情報機構交川普秘密報告，啟動世界各國清算制裁；口罩如何成為戰略物資的？（江峰漫談20200405第150期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4be767d101e008bde4af8920fae60f771719bcd6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4be767d101e008bde4af8920fae60f771719bcd6
-
-下载BT种子 [《濤哥侃封神》『封神演義第四十回四天王遇丙靈公』楊戩計斬花狐貂偷得混元珍珠傘黃天化下山即忘本貪杯吃肉著帥服丙靈公首戰即死告誡所有修行人－凡心不去即忘本（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d28aa063f4ed9bcfa663d8f9ee97f8f236af5d82.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d28aa063f4ed9bcfa663d8f9ee97f8f236af5d82
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
