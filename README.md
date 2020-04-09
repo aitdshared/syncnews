@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DA1PqC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/H6E2na)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普批每一步都做錯！世衛面臨改組或被替代；任志強被調查，如何處理成燙手山芋？陳破空橫河熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce233470ab13a8ffcda16a319596421715398d8c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ce233470ab13a8ffcda16a319596421715398d8c
 
 下载BT种子 [【49重播】台外交部回應千萬援外口罩裝箱與譚德塞指控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb4bb310cf65b619f63b01cd696294eed1b7bf2.torrent)
 
@@ -612,22 +616,6 @@
 下载BT种子 [【禁闻】因应疫情美国纾困方案中共难抄袭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0df0c3304d1aa548f8adacc8054530b87931eba.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f0df0c3304d1aa548f8adacc8054530b87931eba
-
-下载BT种子 [【环球直击】4月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37b8c2e1338e915c7c1f14e05ae0aeec4db02c9e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:37b8c2e1338e915c7c1f14e05ae0aeec4db02c9e
-
-下载BT种子 [《石濤聚焦》「4.4習近平率常委全彩照奪目耀眼」前日植樹官照：習總給百年老松澆水培土「廣而告之：習總率眾拒絕死亡長青萬歲蔑視所有中國人與已死黨魁」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9dacf65b82ecbf2ca9fd81a81f9ece48f29a088.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9dacf65b82ecbf2ca9fd81a81f9ece48f29a088
-
-下载BT种子 [全国特别日，中南海上演大戏，谁是潘金莲？外交部突出习李有深意。中央警卫局换人？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/697a0b6c1bb8cb201b2aa674b804699342756b4e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:697a0b6c1bb8cb201b2aa674b804699342756b4e
-
-下载BT种子 [【严真点评】世纪大祸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55773053e3543fc3d863a6d0d3a1a75bb353f82f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55773053e3543fc3d863a6d0d3a1a75bb353f82f
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
