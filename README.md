@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W2QN9u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o46Au4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [台灣援助國際第二波捐六百萬醫療口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28bb76cce3b69518501c822a2339c023b4bdd358.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28bb76cce3b69518501c822a2339c023b4bdd358
 
 下载BT种子 [《石濤.News》「網傳：王滬寧為任志強專案組組長王岐山有習近平的材料」習最怕政變王滬寧被稱康生借任志強案再次文革-打倒腐朽的資產階級「王岐山部分被故意掩蓋突出周書記-周永康？」（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7c8ffb42d5e3ed07e4a023bb76489ea7920ed36.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【中国禁闻】4月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3819c848885751642e73256c7f6e39d896ec9593.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3819c848885751642e73256c7f6e39d896ec9593
-
-下载BT种子 [【禁闻】4月5日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/210e390cc38858a5fbabb4a5a137383e100636bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:210e390cc38858a5fbabb4a5a137383e100636bf
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
