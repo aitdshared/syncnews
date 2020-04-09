@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kGArEz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8PhQoZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月9日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/566edd5f5b832bdbbe701e74406475bcae6c77fa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:566edd5f5b832bdbbe701e74406475bcae6c77fa
 
 下载BT种子 [谭得塞公开批评台湾，反助台湾增强了国际影响力，上了中共的船就很难下来了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6d2362702bbfee6e63a2b2424e71ca87c6776cc.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】印度法律界指控中共制造病毒要求赔偿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2c8642865fb0dfe0195b18dce5c6f9b6e506da8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e2c8642865fb0dfe0195b18dce5c6f9b6e506da8
-
-下载BT种子 [【禁闻】中共搞举国哀悼被批下毒者哭丧做秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a365bc9d6d9bf3692ea5cb037c71677f23ce7174.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a365bc9d6d9bf3692ea5cb037c71677f23ce7174
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
