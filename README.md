@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aCyjSP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Gsl4kD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國專家：美國死亡人數將比預測低CDC頒布新防疫指南.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fe81ee4dbd5a68447ccece3637276837d5de9ba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1fe81ee4dbd5a68447ccece3637276837d5de9ba
 
 下载BT种子 [桑德斯退選對黨內選民的影響力仍在川普：支持者可轉向共和黨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/758197b6af62926a791abf28696079015cc90a97.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [《石濤聚焦》「對比全球武漢肺炎百萬人確診與死亡比例圖表：習總造假已至純傻純孽」英國首相強森高燒不退住院智庫提出向中共國索賠6.5兆億美元控其違反國際法《國際衛生條例》（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d03bc428d5430b7d348be8a150e00406a3e3d93a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d03bc428d5430b7d348be8a150e00406a3e3d93a
-
-下载BT种子 [【美國思想領袖】《人類事件》媒體主編威爾·張伯倫：美國大學系統已不再特別保護言論自由！大學竟是馬克思主義的製造工廠？「高福利政策」會走向社會主義？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/593e7bc624fa3d634a1fd2ec52c7cd8bb68ae2ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:593e7bc624fa3d634a1fd2ec52c7cd8bb68ae2ce
-
-下载BT种子 [【禁闻】中共自塑救星形象意大使：我们并不天真.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df2ea3320424dacd1b8af09d0d8cfddcea1a3426.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df2ea3320424dacd1b8af09d0d8cfddcea1a3426
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
