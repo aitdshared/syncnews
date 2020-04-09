@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tjqmd0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DP17sd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】香港泛民主派議員黃國桐：被逮捕的近五千名香港示威者的命運究竟如何？作爲香港示威者的義務律師，爲他們做辯護是怎樣一種經歷？香港警察和政府是如何妨礙司法？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55730da9985b29199425a111275c25c25e12ff04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55730da9985b29199425a111275c25c25e12ff04
 
 下载BT种子 [任志强会软着陆吗？川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b6c1062c2eb14a23f13468d9b3600c3a412a9d.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【严真点评】世纪大祸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55773053e3543fc3d863a6d0d3a1a75bb353f82f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:55773053e3543fc3d863a6d0d3a1a75bb353f82f
-
-下载BT种子 [【时事小品】李文亮回访.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e0bfef96cca5d1e8192ace35b8d602896b4e1ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e0bfef96cca5d1e8192ace35b8d602896b4e1ef
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
