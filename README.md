@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zvASwv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/byaFtA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【49重播】台外交部回應千萬援外口罩裝箱與譚德塞指控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbb4bb310cf65b619f63b01cd696294eed1b7bf2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fbb4bb310cf65b619f63b01cd696294eed1b7bf2
+
+下载BT种子 [（双声道）任志强被调查，习近平达到目的了吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d77d776603940c833281c4f62a1407563b48e0e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3d77d776603940c833281c4f62a1407563b48e0e
+
+下载BT种子 [【禁闻】凤凰卫视记者告诉川普香港不属于中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2649ed80abd8053990455575cfbae56aa517db20.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2649ed80abd8053990455575cfbae56aa517db20
+
+下载BT种子 [【禁闻】4月8日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc5fad9c55dd84b1076b0bfe3d35915864fabbc4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bc5fad9c55dd84b1076b0bfe3d35915864fabbc4
 
 下载BT种子 [【美國思想領袖】香港泛民主派議員黃國桐：被逮捕的近五千名香港示威者的命運究竟如何？作爲香港示威者的義務律師，爲他們做辯護是怎樣一種經歷？香港警察和政府是如何妨礙司法？大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55730da9985b29199425a111275c25c25e12ff04.torrent)
 
@@ -600,10 +616,6 @@
 下载BT种子 [【环球直击】4月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37b8c2e1338e915c7c1f14e05ae0aeec4db02c9e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:37b8c2e1338e915c7c1f14e05ae0aeec4db02c9e
-
-下载BT种子 [《石濤聚焦》「台灣天后蔡依林聯手港星陳奕迅MV致敬全球醫護羞辱病毒受害者」陳奕迅「愛讓我們在一起～我們加油！！！」蔡依林「謝謝你們fightasone」網友「滿滿的感謝中共（畫面）我按不下去」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e410eef43af7bde3f51a3782c732b46be816f12f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e410eef43af7bde3f51a3782c732b46be816f12f
 
 下载BT种子 [《石濤聚焦》「4.4習近平率常委全彩照奪目耀眼」前日植樹官照：習總給百年老松澆水培土「廣而告之：習總率眾拒絕死亡長青萬歲蔑視所有中國人與已死黨魁」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9dacf65b82ecbf2ca9fd81a81f9ece48f29a088.torrent)
 
