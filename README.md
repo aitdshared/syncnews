@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Uucumm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/26j5Mo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共病毒肆虐全球確診感染破150萬近9萬人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0cb5ef6750bac1b8f6200f776e1cfcdd2628285.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0cb5ef6750bac1b8f6200f776e1cfcdd2628285
+
+下载BT种子 [再批世衛川普：譚德塞將防疫政治化蓬佩奧：中共必須對疫情數據透明化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/104ae1c970d8338f0ea43ce158f46a0cf633a93f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:104ae1c970d8338f0ea43ce158f46a0cf633a93f
 
 下载BT种子 [《石濤聚焦》「中南海內訌持續紅二代大裂變發酵」習近平髮小兒陳平：光屁股也要做皇帝的小丑-任志強氣瘋了太過了「習近平不像毛澤東殘忍」中宣部最邪惡用姚文元類比暗指王滬寧-江曾勢力？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da2c144cc4f7ea5243819dea57bcae78a2e3bba4.torrent)
 
@@ -608,10 +616,6 @@
 下载BT种子 [【禁闻】4月5日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab5d76e037ecf8ceead2c5b3a130c659317c1ef6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ab5d76e037ecf8ceead2c5b3a130c659317c1ef6
-
-下载BT种子 [王沪宁挟习近平党媒亮剑：给你点颜色看看！印度正式索赔二十万亿！重大政治错误出炉？（老北京茶馆第281集20200405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b32ff91e2b87342d94dcdfd9aaf840eb79515f14.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b32ff91e2b87342d94dcdfd9aaf840eb79515f14
 
 下载BT种子 [【禁闻】王全璋出狱却仍无自由有家不能归.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5822ca695b7bc4080e9b7cf49bf48b79e0edb8b5.torrent)
 
