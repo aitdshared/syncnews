@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X5x0xq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/njN1eJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9b3d3b96546cbf6a2c4a25ee4dcc63f5342b761.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b9b3d3b96546cbf6a2c4a25ee4dcc63f5342b761
 
 下载BT种子 [【中国禁闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbb8e28d032c6edbe65796aba3b6bcaff53d6611.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第四十回四天王遇丙靈公」魔家四將施奇寶水淹西岐子牙倒海天尊相助「罔費心機空費力雪消春水一場空」二郎神出山盜奇寶痛殺花狐貂（中集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a37808c8480f1bd832c5b6cd686553fcd76bf2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88a37808c8480f1bd832c5b6cd686553fcd76bf2
-
-下载BT种子 [【新闻周刊】第726期（202044）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddeae22d065e5f78cdada06f9291435cb3075552.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ddeae22d065e5f78cdada06f9291435cb3075552
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
