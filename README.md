@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/H6E2na)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kGArEz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [谭得塞公开批评台湾，反助台湾增强了国际影响力，上了中共的船就很难下来了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6d2362702bbfee6e63a2b2424e71ca87c6776cc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b6d2362702bbfee6e63a2b2424e71ca87c6776cc
 
 下载BT种子 [川普批每一步都做錯！世衛面臨改組或被替代；任志強被調查，如何處理成燙手山芋？陳破空橫河熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce233470ab13a8ffcda16a319596421715398d8c.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】中共搞举国哀悼被批下毒者哭丧做秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a365bc9d6d9bf3692ea5cb037c71677f23ce7174.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a365bc9d6d9bf3692ea5cb037c71677f23ce7174
-
-下载BT种子 [【禁闻】因应疫情美国纾困方案中共难抄袭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f0df0c3304d1aa548f8adacc8054530b87931eba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f0df0c3304d1aa548f8adacc8054530b87931eba
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
