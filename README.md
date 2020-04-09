@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4bQipm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4qAOAg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -616,10 +616,6 @@
 下载BT种子 [形势趋缓，韩国是如何做到的？韩国模式别国可以复制吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a934cef9c39c7664882f7f932a79ded81475e3e3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a934cef9c39c7664882f7f932a79ded81475e3e3
-
-下载BT种子 [《石濤聚焦》「川習通話後川普傻了：習默認造假數據坑苦美國」川普改口30天封國預計死亡24萬調動海軍醫療艦但口罩手套防護服呼吸機不得不從中國進口「中共國死亡不低13萬感染過300萬」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a73c3c073c9d4615f035761886ea42c6534fbfe3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a73c3c073c9d4615f035761886ea42c6534fbfe3
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
