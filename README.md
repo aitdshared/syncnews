@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/necyj0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aCyjSP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [桑德斯退選對黨內選民的影響力仍在川普：支持者可轉向共和黨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/758197b6af62926a791abf28696079015cc90a97.torrent)
+
+磁力链接 magnet:?xt=urn:btih:758197b6af62926a791abf28696079015cc90a97
+
+下载BT种子 [湖北數百名業主維權：中共引資項目歐亞達趁疫情欺詐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/139e271b70cae7af587c53e67589655261bc540b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:139e271b70cae7af587c53e67589655261bc540b
+
+下载BT种子 [譚德塞「莫須有」指控台灣朝野要求道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2216e0215e174efa0a97aa9653c0c227ced89650.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2216e0215e174efa0a97aa9653c0c227ced89650
+
+下载BT种子 [廣州三元里爆發疫情大量非洲人流落街頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8852dfffe5367094c2b2fc1853b7d37c9897adcd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8852dfffe5367094c2b2fc1853b7d37c9897adcd
 
 下载BT种子 [台灣援助國際第二波捐六百萬醫療口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28bb76cce3b69518501c822a2339c023b4bdd358.torrent)
 
@@ -601,21 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:593e7bc624fa3d634a1fd2ec52c7cd8bb68ae2ce
 
-下载BT种子 [《石濤聚焦》「網傳：武漢肺炎-中共病毒第二波已登陸北京上海武漢」中央內部通報是每天增長在2500左右藥品管治保證醫院診斷書上只寫病毒性肺炎「再次來臨了爆發時刻」（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c05db20ea1cb5d088b8275730462f4eeb11be510.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c05db20ea1cb5d088b8275730462f4eeb11be510
-
-下载BT种子 [《石濤聚焦》「對比全球肺炎圖表：中共做假至純傻孽」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52d24e5cf64f556865a7aa95afbd7dcec6f5eab5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:52d24e5cf64f556865a7aa95afbd7dcec6f5eab5
-
 下载BT种子 [【禁闻】中共自塑救星形象意大使：我们并不天真.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df2ea3320424dacd1b8af09d0d8cfddcea1a3426.torrent)
 
 磁力链接 magnet:?xt=urn:btih:df2ea3320424dacd1b8af09d0d8cfddcea1a3426
-
-下载BT种子 [【中国禁闻】4月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3819c848885751642e73256c7f6e39d896ec9593.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3819c848885751642e73256c7f6e39d896ec9593
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
