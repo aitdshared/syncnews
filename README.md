@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VGQwfd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tjqmd0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [任志强会软着陆吗？川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b6c1062c2eb14a23f13468d9b3600c3a412a9d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:26b6c1062c2eb14a23f13468d9b3600c3a412a9d
+
+下载BT种子 [💥習近平準備應對巨變！今年全國GDP或為負；CNN揭3類不尋常症狀；英國現含毒檢測盒，首相好轉；武漢解封，又有人倒在街頭，北京防堵湖北旅客；黑龍江毒礦洩漏，影響千萬人用水新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cec78770ec7da636b11eee473e2e30083836608.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3cec78770ec7da636b11eee473e2e30083836608
 
 下载BT种子 [中國大陸以外感染人數接近142萬死亡近8.5萬人英首相病情趨穩印度或延長封國令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70af56046c56429980989a2b410db371a0f557a5.torrent)
 
@@ -608,10 +616,6 @@
 下载BT种子 [【时事小品】李文亮回访.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e0bfef96cca5d1e8192ace35b8d602896b4e1ef.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7e0bfef96cca5d1e8192ace35b8d602896b4e1ef
-
-下载BT种子 [外交部大实话：甩锅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a468ea75c962561d823a0ffedb4cd924fb67c40b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a468ea75c962561d823a0ffedb4cd924fb67c40b
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
