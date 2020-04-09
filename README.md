@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PxYVyp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X5x0xq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbb8e28d032c6edbe65796aba3b6bcaff53d6611.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dbb8e28d032c6edbe65796aba3b6bcaff53d6611
 
 下载BT种子 [《石濤聚焦》「逾越節遭遇超級粉月亮-彌賽亞到來」習近平借中共病毒-武漢肺炎欲摧毀整個西方國家「1月掩蓋2月向外輸出買斷海外醫療用品3月銷聲國內疫情海外爆發4月對外大援助」WHO全程保駕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b6864a05a37a505e5695ecc0c6ee8d9069efafc.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【新闻周刊】第726期（202044）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddeae22d065e5f78cdada06f9291435cb3075552.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ddeae22d065e5f78cdada06f9291435cb3075552
-
-下载BT种子 [《石濤聚焦》「最新：川普-未來23週將死很多人」美英法將同時到達頂點美紐約底特律新奧爾良在耶穌受難日-復活節死亡最高峰「時間是個神：中共病毒傷害西方文明-逾越節-受難日-復活節-4.25」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecb2636134daebb38689a31cf1fb81cc62568b3e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecb2636134daebb38689a31cf1fb81cc62568b3e
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
