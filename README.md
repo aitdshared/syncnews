@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4VVKyA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Aj7lJT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7
 
 下载BT种子 [【禁闻】武汉死者家属维权律师顾问团受理.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e2bbe6387659bb521e9c360ca036dda626aab5d.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》『美國本週末將再經歷珍珠港＋911之殘酷痛楚』英警告與美同時大批死人白宮首席疫情專家福奇『美國無法控制這場大流行很多人將畢生銘記此次痛楚』（0504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b64b6773f4abbdc12a616e314c45f7d6d2e02aad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b64b6773f4abbdc12a616e314c45f7d6d2e02aad
-
-下载BT种子 [【46重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2587990214bc9ddf9a3b85bbaae1639256c35751.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2587990214bc9ddf9a3b85bbaae1639256c35751
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
