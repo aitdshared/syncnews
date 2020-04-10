@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m8D1fE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LCAxzs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「武漢解封翌日發射火箭沖喜：炸碎了」美媒：美國禁止關鍵晶片出口中共國有關網傳航天系統傳言-習總請喇嘛大戰中共病毒惹事生非了！（1004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bcd8647150bb9ac04cbd68223842eb51c2c5ae4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7bcd8647150bb9ac04cbd68223842eb51c2c5ae4
 
 下载BT种子 [神秘人物出任重要省长，习近平准备迎战八十国联军？王毅急忙求助瑞士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cb2be50eaa85e48e73989ed1e38ba27e126a912.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [中共大外宣出新招，陳奕迅、蔡依林受害；國際罷免譚德塞，小心更多「譚德塞們」（2020.4.7）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80819b8e061dbc84f0d69847a6a8b87e1fa63188.torrent)
 
 磁力链接 magnet:?xt=urn:btih:80819b8e061dbc84f0d69847a6a8b87e1fa63188
-
-下载BT种子 [清算中共已成为各国政府的规定动作，坐等中共垮台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43d2ba26dd5754c65b01e0a1db30de7fc3065683.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43d2ba26dd5754c65b01e0a1db30de7fc3065683
-
-下载BT种子 [各國抗疫物資紛紛告急中共指令全球採購海外口罩一半流入中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e9e1847b586a6aec05eb6c718487e47d385ac6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c0e9e1847b586a6aec05eb6c718487e47d385ac6
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
