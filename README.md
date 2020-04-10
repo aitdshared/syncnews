@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zHy94i)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D65YOk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習近平美國人被告入‘國際刑事法院’」罪名：反人類和種族滅絕要求20兆美元以上賠償埃及與土耳其律師也展開類似行動（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28cd186a9fb0baaf7a9b50e3f83da31e5ec65541.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28cd186a9fb0baaf7a9b50e3f83da31e5ec65541
 
 下载BT种子 [《石濤聚焦》「英國首相強生轉入普通病房美媒：勢必找中共報仇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/766c4a76782db5c30c12e2c0f6d031266af39c68.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [美議員批中共迫害人權惡行累累」呼籲聯合國收回任命中共官員入聯合國人權理事會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd28c1ada2ba38be853c919acc1cb591031b621.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dfd28c1ada2ba38be853c919acc1cb591031b621
-
-下载BT种子 [《石濤.News》「網傳：中央警衛局被攻陷4.3北京大批軍人調動」同期習近平4天躲在浙江鐘南山對無症狀表現出爾反爾「習近平把懷仁堂變靈堂-4.4全國悼念」與930拜毛靈堂-對應「天滅中共-生與滅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb6949e9a1b250bd4006b859162b00e1497b4686.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb6949e9a1b250bd4006b859162b00e1497b4686
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
