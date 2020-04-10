@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uRNVZK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CHXvsI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [荷蘭芬蘭都退貨中國製口罩墨西哥前大使轟中共倒賣口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9978bb7dbe4aa49159783a39e06a2473f3d34f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9978bb7dbe4aa49159783a39e06a2473f3d34f2
+
+下载BT种子 [【环球直击】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60eb2f6e6660d9458f705a3dcb3b05b20a2a5e18.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60eb2f6e6660d9458f705a3dcb3b05b20a2a5e18
+
+下载BT种子 [憂安全風險美或撤中國電信存運營許可.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15ac15351a07014c5ac8393178df73b759588967.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15ac15351a07014c5ac8393178df73b759588967
+
+下载BT种子 [MIT口罩送達歐洲中華民國國旗登歐盟官網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99401ced8d663e0e56b5606172b2aa669aa44565.torrent)
+
+磁力链接 magnet:?xt=urn:btih:99401ced8d663e0e56b5606172b2aa669aa44565
+
+下载BT种子 [白宮：VOA用美國納稅人的錢為中共宣傳學者：有紅色滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b0ee70035c871d923dc35e8bb495d69741c6c2b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b0ee70035c871d923dc35e8bb495d69741c6c2b
 
 下载BT种子 [武漢解封居民仍感絕望沒工作沒收入.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7d2a3359ee3f606962fa2661d408e488461cf9.torrent)
 
@@ -588,14 +608,6 @@
 下载BT种子 [十九國“零號”都指向一處；習近平拿十億口罩換法國馬克龍5G華為訂單；美國“地下黨”與中共同時行動（江峰漫談20200406第151期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0
-
-下载BT种子 [企業倒閉，失業激增，中共為什麼不給民眾發錢？印度英國巨額索賠，全球掀起訴中共風暴！Jason謝田熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/408415f068eb161378a395263f731f3945290bf8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:408415f068eb161378a395263f731f3945290bf8
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b637e43b67f1a15f5182ab5fbd8936cb419c3385.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b637e43b67f1a15f5182ab5fbd8936cb419c3385
 
 下载BT种子 [英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆第282集20200406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ca0e3c8d6bc2ac19092b49168a604de8f9c1721.torrent)
 
