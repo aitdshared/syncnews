@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EuTPJy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kEvQpT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [援鄂醫生稱「病毒太狠了！」😷每天都有確診病人，有人身帶2種病毒！武漢又現街頭倒地😨，官闢謠「醉酒」🤨，武漢人透露4點情況；張文宏「學渣人渣論」，鍾南山是哪一種？🤔【新聞看點李沐陽04.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126377202415264b27d2034af07aa14d477d26d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:126377202415264b27d2034af07aa14d477d26d0
 
 下载BT种子 [习近平：老朋友变脸、中美关系脆弱、美两党联手追责、牡丹江告急，要做长期准备了！（老北京茶馆第284集20200409）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2f7ff6fce5f16891b89d81d822cc8bfac08e56c.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [【环球直击】4月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b533b082cb8a53fe0223e16f75bdda21281f3c1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7b533b082cb8a53fe0223e16f75bdda21281f3c1
-
-下载BT种子 [王全璋首發聲：門外皆看守歐盟關切.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7154f4e2f15c4f4fd84d00907acad01aa41f2a4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7154f4e2f15c4f4fd84d00907acad01aa41f2a4b
 
 下载BT种子 [安徽黃山清明擠滿人潮恐爆發疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/187609d7afb51d7230971d6fbb7b92f8ffdb9933.torrent)
 
