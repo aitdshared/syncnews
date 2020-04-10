@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mRgpjJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DR6WQT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢解封居民仍感絕望沒工作沒收入.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7d2a3359ee3f606962fa2661d408e488461cf9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3b7d2a3359ee3f606962fa2661d408e488461cf9
+
+下载BT种子 [山東大學生武漢做安保見證了武漢疫情之慘烈親見老人沒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0946016a9bb5b7b75296523d73bcc5b83c12dc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f0946016a9bb5b7b75296523d73bcc5b83c12dc
+
+下载BT种子 [武漢光谷步行街數百商戶上街遊行遭鎮壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c08d70d8f4ae43608bbde2c655272479ba92f0bd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c08d70d8f4ae43608bbde2c655272479ba92f0bd
 
 下载BT种子 [《石濤聚焦》「時間是個神：3.18武漢清零文殊菩薩道場五台山-大火」‘不忘初心方得始終’源自文殊菩薩21天後4.8武漢解封-逾越節「耶和華懲罰埃及人不信神一縷黑氣殺掉埃及長子作祭品」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a830f2677b000857c09836133e19e3bf9465a85.torrent)
 
@@ -596,10 +608,6 @@
 下载BT种子 [【禁闻】中共发消费券救经济网友：割韭菜的饵料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf
-
-下载BT种子 [掩蓋疫情多國法政學界籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc8fc319b9438df72b18b93b4db959c6e78640ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc8fc319b9438df72b18b93b4db959c6e78640ba
 
 下载BT种子 [大紐約航班大幅減少直擊紐約機場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dd85437fa135240910d097ec6779e19bc9d94b.torrent)
 
