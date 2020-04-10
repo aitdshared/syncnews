@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/miXCOz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/g3JgaR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,10 +608,6 @@
 下载BT种子 [【禁闻】中共发消费券救经济网友：割韭菜的饵料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf
-
-下载BT种子 [掩蓋疫情多國法政學界籲追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc8fc319b9438df72b18b93b4db959c6e78640ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc8fc319b9438df72b18b93b4db959c6e78640ba
 
 下载BT种子 [大紐約航班大幅減少直擊紐約機場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dd85437fa135240910d097ec6779e19bc9d94b.torrent)
 
