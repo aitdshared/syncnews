@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zR81xZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tIQeaX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】谭德塞挨批后转移目标川普强硬回应.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2638f0a5a5a3d8f81ead1a43f23dbe46d50f1ac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a2638f0a5a5a3d8f81ead1a43f23dbe46d50f1ac
 
 下载BT种子 [【全球新闻】4月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91408e4251c9a3a77c2e2282bfb0911a6724ea4a.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [美情速览！英印向中国讨说法。北京向法国提要求。有人写信给习近平女儿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5904992e8c4a66e35aebb35cedb8d538a90fc5d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e5904992e8c4a66e35aebb35cedb8d538a90fc5d
-
-下载BT种子 [《石濤聚焦》「網傳：第二波疫情更多細節爆光」上海徵用酒店訂購數千台呼吸機向台灣訂購1020萬數量不等裝屍袋首席流行病醫師“第二波很可能”《自然》5-6.5億中國人將染病漢江區再現交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5414eda128eb501cdac76cb2568ac81eace2b140.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5414eda128eb501cdac76cb2568ac81eace2b140
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
