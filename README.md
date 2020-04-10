@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/flMl67)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zHy94i)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「英國首相強生轉入普通病房美媒：勢必找中共報仇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/766c4a76782db5c30c12e2c0f6d031266af39c68.torrent)
+
+磁力链接 magnet:?xt=urn:btih:766c4a76782db5c30c12e2c0f6d031266af39c68
 
 下载BT种子 [【禁闻】4月9日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/236b518edb8cbced6d225b0e6fb57b82200556f3.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤.News》「網傳：中央警衛局被攻陷4.3北京大批軍人調動」同期習近平4天躲在浙江鐘南山對無症狀表現出爾反爾「習近平把懷仁堂變靈堂-4.4全國悼念」與930拜毛靈堂-對應「天滅中共-生與滅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb6949e9a1b250bd4006b859162b00e1497b4686.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bb6949e9a1b250bd4006b859162b00e1497b4686
-
-下载BT种子 [紐約死亡率首次下降川普：疫情兩週內出現拐點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5e3091b4bdf9c1cc891732d859321eac2be6a09.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a5e3091b4bdf9c1cc891732d859321eac2be6a09
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
