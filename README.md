@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RgEY4n)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9pq6UW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [武漢不妙⚠️，路倒仍頻發；世衛嗆川普，中共反遭殃🧐；網軍生意熱五毛變七毛🤭（2020.4.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ed79257826d9a39b9aa1aabaf8f48682dc8603b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ed79257826d9a39b9aa1aabaf8f48682dc8603b
 
 下载BT种子 [白宫：美国之音用美国人的钱为专制政权宣传.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ae5d61ab0c59e811996955c2ac27518e97e514.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [各國抗疫物資紛紛告急中共指令全球採購海外口罩一半流入中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e9e1847b586a6aec05eb6c718487e47d385ac6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c0e9e1847b586a6aec05eb6c718487e47d385ac6
-
-下载BT种子 [蘋果入防疫國家隊防護面罩每週產100萬個.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5f4185de067f00d495b934f74e4836bb9fba1c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b5f4185de067f00d495b934f74e4836bb9fba1c1
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
