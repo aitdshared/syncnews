@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CHXvsI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FC1QOD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普：美國疫情登頂將開始回落.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69e90bd9f1347efe14342bdc186a6c2ab0934640.torrent)
+
+磁力链接 magnet:?xt=urn:btih:69e90bd9f1347efe14342bdc186a6c2ab0934640
 
 下载BT种子 [荷蘭芬蘭都退貨中國製口罩墨西哥前大使轟中共倒賣口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9978bb7dbe4aa49159783a39e06a2473f3d34f2.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [十九國“零號”都指向一處；習近平拿十億口罩換法國馬克龍5G華為訂單；美國“地下黨”與中共同時行動（江峰漫談20200406第151期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0
-
-下载BT种子 [英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆第282集20200406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ca0e3c8d6bc2ac19092b49168a604de8f9c1721.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ca0e3c8d6bc2ac19092b49168a604de8f9c1721
-
-下载BT种子 [【全球新闻】4月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5022f991b43f3e0b43f7f67018ef5a3c0fd98004.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5022f991b43f3e0b43f7f67018ef5a3c0fd98004
 
 下载BT种子 [【禁闻】中共发消费券救经济网友：割韭菜的饵料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf.torrent)
 
