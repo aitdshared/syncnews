@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9pq6UW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/knRz3H)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a38e48e1248fcd8bee9411311c70695fa20fbe3a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a38e48e1248fcd8bee9411311c70695fa20fbe3a
 
 下载BT种子 [武漢不妙⚠️，路倒仍頻發；世衛嗆川普，中共反遭殃🧐；網軍生意熱五毛變七毛🤭（2020.4.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ed79257826d9a39b9aa1aabaf8f48682dc8603b.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [大紐約航班大幅減少直擊紐約機場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dd85437fa135240910d097ec6779e19bc9d94b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:12dd85437fa135240910d097ec6779e19bc9d94b
-
-下载BT种子 [美測試量超179萬紐約疫情現緩和美國股市大幅上漲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e32d4ebad6bf212291565e5e58b96ee36ca1c497.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e32d4ebad6bf212291565e5e58b96ee36ca1c497
 
 下载BT种子 [各國抗疫物資紛紛告急中共指令全球採購海外口罩一半流入中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e9e1847b586a6aec05eb6c718487e47d385ac6.torrent)
 
