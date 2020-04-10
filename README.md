@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3BIC8Y)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/egK9uu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [4月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcce605e0830446d3ff0289da55c74a36c9e34c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bcce605e0830446d3ff0289da55c74a36c9e34c9
+
+下载BT种子 [【禁闻】台湾民间拟登广告反击谭德塞欺凌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6358c9a7f3afd9709c1fb42fa432e34af6f2b580.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6358c9a7f3afd9709c1fb42fa432e34af6f2b580
+
+下载BT种子 [4月10日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c152bcdd0788c743a1dab8e7ff4f486e43a816c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5c152bcdd0788c743a1dab8e7ff4f486e43a816c
 
 下载BT种子 [全球速览。安排此人担要职，习近平准备干大事？大国外长求助小国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f44630300a253e76ae8a29ec9915a849d074659.torrent)
 
@@ -600,18 +612,6 @@
 下载BT种子 [《石濤聚焦》「推特滿屏：鳳凰衛視女記王又又白宮記者會“硬撼”川普」川普“你在演講不是提問”再問“你是中共國的嗎？中共國媒體？“王答”不是是香港私人公司“公然違反”一中原則“隨意欺騙美國總統.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/726088fd0c0ede296c3ddc6d92935dd67f83fa40.torrent)
 
 磁力链接 magnet:?xt=urn:btih:726088fd0c0ede296c3ddc6d92935dd67f83fa40
-
-下载BT种子 [美強調透明對等抵制中共專制的經濟掠奪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d529940cba7d9bfb8137cd08a14567ac61ff535.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1d529940cba7d9bfb8137cd08a14567ac61ff535
-
-下载BT种子 [【中國禁聞】4月6日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5809f3d28cf2c6e34a39c392242560e49fca280b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5809f3d28cf2c6e34a39c392242560e49fca280b
-
-下载BT种子 [【环球直击】4月7日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4461f6e56e2a0f37206a18013f6bf00d69cc159.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c4461f6e56e2a0f37206a18013f6bf00d69cc159
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
