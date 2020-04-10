@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eq9TcT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zR81xZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91408e4251c9a3a77c2e2282bfb0911a6724ea4a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91408e4251c9a3a77c2e2282bfb0911a6724ea4a
+
+下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8164186e4ce17232859272a25061cdbff0a81690
 
 下载BT种子 [援鄂醫生稱「病毒太狠了！」😷每天都有確診病人，有人身帶2種病毒！武漢又現街頭倒地😨，官闢謠「醉酒」🤨，武漢人透露4點情況；張文宏「學渣人渣論」，鍾南山是哪一種？🤔【新聞看點李沐陽04.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126377202415264b27d2034af07aa14d477d26d0.torrent)
 
@@ -600,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「網傳：第二波疫情更多細節爆光」上海徵用酒店訂購數千台呼吸機向台灣訂購1020萬數量不等裝屍袋首席流行病醫師“第二波很可能”《自然》5-6.5億中國人將染病漢江區再現交叉感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5414eda128eb501cdac76cb2568ac81eace2b140.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5414eda128eb501cdac76cb2568ac81eace2b140
-
-下载BT种子 [【环球直击】4月6日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b533b082cb8a53fe0223e16f75bdda21281f3c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b533b082cb8a53fe0223e16f75bdda21281f3c1
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
