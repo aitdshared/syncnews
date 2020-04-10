@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FC1QOD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m8D1fE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [神秘人物出任重要省长，习近平准备迎战八十国联军？王毅急忙求助瑞士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cb2be50eaa85e48e73989ed1e38ba27e126a912.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0cb2be50eaa85e48e73989ed1e38ba27e126a912
 
 下载BT种子 [川普：美國疫情登頂將開始回落.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69e90bd9f1347efe14342bdc186a6c2ab0934640.torrent)
 
@@ -608,18 +612,6 @@
 下载BT种子 [清算中共已成为各国政府的规定动作，坐等中共垮台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43d2ba26dd5754c65b01e0a1db30de7fc3065683.torrent)
 
 磁力链接 magnet:?xt=urn:btih:43d2ba26dd5754c65b01e0a1db30de7fc3065683
-
-下载BT种子 [十九國“零號”都指向一處；習近平拿十億口罩換法國馬克龍5G華為訂單；美國“地下黨”與中共同時行動（江峰漫談20200406第151期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:49acbdaae1ca2ce57303a5a2b4f13ceb87e644d0
-
-下载BT种子 [【禁闻】中共发消费券救经济网友：割韭菜的饵料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:15b3cf44b5b23ec74058f8dafc3a5aeee0d0cfbf
-
-下载BT种子 [大紐約航班大幅減少直擊紐約機場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dd85437fa135240910d097ec6779e19bc9d94b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:12dd85437fa135240910d097ec6779e19bc9d94b
 
 下载BT种子 [各國抗疫物資紛紛告急中共指令全球採購海外口罩一半流入中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0e9e1847b586a6aec05eb6c718487e47d385ac6.torrent)
 
