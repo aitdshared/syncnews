@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6EILO6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cyKfNf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共肺炎冲击日本助生产链回流或多元化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64ce82b69871881e6ad4a93143477547a767a316.torrent)
+
+磁力链接 magnet:?xt=urn:btih:64ce82b69871881e6ad4a93143477547a767a316
 
 下载BT种子 [方方遭遇胡锡进，崔永元救援！大义当前，各国政府给国人发钱一览，中外政府在干啥？（老北京茶馆第285集20200410）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9962366de5f31c34e74dd2566e807443274416.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [老任最新消息！党报开始下架习近平。央视故意读错他的名字？伊朗说中国是笑话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/135bd1261654862656e21a08e53c557dd24bcc6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:135bd1261654862656e21a08e53c557dd24bcc6c
-
-下载BT种子 [《石濤聚焦》「蔡奇出頭任志強嚴重違紀違法」西城區紀委執行稱習近平「脫褲子作皇帝的小丑」是任大炮所為「絲毫也不掩飾自己要堅決當皇帝的野心和誰不讓我當皇帝就讓你滅亡的決心」是“牢記使命”的真面孔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f204bd512847bce952812c75067c28854a264b9c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f204bd512847bce952812c75067c28854a264b9c
 
 下载BT种子 [購回捐贈PPE？意大利駐美大使：我們並不天真.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff97b1af79dfcdaafb7189e4b350dea9c233e42e.torrent)
 
