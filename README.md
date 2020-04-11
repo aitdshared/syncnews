@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x4G5iW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ipUSw1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普提升對WHO所有款項限制」美計畫用愛滋病國際機構代替WHO中共國發起「保衛譚書記就是保衛中共國」的呼籲震動網壇紅遍天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2fdf261b5312d151fe1c42b11b3a0c410b72f6e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b2fdf261b5312d151fe1c42b11b3a0c410b72f6e
 
 下载BT种子 [中國大陸以外確診超162萬美國援助意大利抗疫南極觀光郵輪逾百人染病.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f82d71cdc87bb5231dae403361eec52e9f17ac14.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [前鳳凰網記者張真瑜（3）：網信辦被下何禁令加大國外疫情慘重報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e2fe7408592fde70053ca782ecdf494e65aaa7f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4e2fe7408592fde70053ca782ecdf494e65aaa7f
-
-下载BT种子 [【全球新闻】4月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1dc54fffbe2c28c1762d90f29cb31fd4f1cd777.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c1dc54fffbe2c28c1762d90f29cb31fd4f1cd777
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
