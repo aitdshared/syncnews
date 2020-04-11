@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZFbTEi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QYczjH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平担心的真要来了：四川增52000床位、黑龙江输入案例激增；白宫炮轰自家人（20200410第733期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7356a725218a1cf3fd79cd4971b795469e89c2c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7356a725218a1cf3fd79cd4971b795469e89c2c
 
 下载BT种子 [《石濤.News》「習近平抓捕任志強惹下天大禍根」與王岐山徹底翻臉與紅二代實力派完全衝突「陳平：任志強軟落地&硬著陸遊說與威脅」習近平主動撞死在王岐山上「鐵板圖」天滅中共生與滅（1004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e2db6fd542734020f0dcb00f8c27b85a4653990.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [納瓦羅：中共如同一級謀殺白宮或起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6814a30bef7bdd2a33ee3767c3f64c8ccf33b08b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6814a30bef7bdd2a33ee3767c3f64c8ccf33b08b
-
-下载BT种子 [香港化學博士揭露大陸口罩假原料曾測試1000個不同口罩是不合格的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/852487fd7f3ee4cc9638d017f9326574ac9d54f6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:852487fd7f3ee4cc9638d017f9326574ac9d54f6
 
 下载BT种子 [全球累計確診病例超過136萬人7萬多人喪生日本宣布緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f4803503bbb5c8f90159bd7e9117128d6d624dd.torrent)
 
