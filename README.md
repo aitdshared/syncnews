@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ldaSbk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PXNInX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a366745c50fd02966b27bf53c18c637766475ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a366745c50fd02966b27bf53c18c637766475ef
 
 下载BT种子 [【禁闻】数据去哪了？美或撤销中国电信运营许可.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bddf3bab2a6a68d13f53fb240abb2337b482feb.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [《石濤聚焦》「川普按捺不住：WHO把我當成凱子耍」給錢美國是大頭兒「某種原因」WHO把中共國當中心「真的搞砸了我們好好看看到底咋回事兒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8df0e1b9ae16d35f366863ce52dde0e7e571877.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b8df0e1b9ae16d35f366863ce52dde0e7e571877
-
-下载BT种子 [【环球直击】4月7日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34e8ba5b1b573dca8ffc507804c6796cc378f86a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:34e8ba5b1b573dca8ffc507804c6796cc378f86a
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
