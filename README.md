@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BadCRK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6EILO6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [方方遭遇胡锡进，崔永元救援！大义当前，各国政府给国人发钱一览，中外政府在干啥？（老北京茶馆第285集20200410）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9962366de5f31c34e74dd2566e807443274416.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc9962366de5f31c34e74dd2566e807443274416
+
+下载BT种子 [白宮罕見重批美國之音前中文部主任：員工贊同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515.torrent)
+
+磁力链接 magnet:?xt=urn:btih:77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515
+
+下载BT种子 [海外感染超160萬死亡超過10萬意大利和印度延長封鎖令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d45c0f6c34d4abc6765ad81dfec676782ff92578.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d45c0f6c34d4abc6765ad81dfec676782ff92578
+
+下载BT种子 [白宮疫情簡報會：美國疫情首現曙光防疫不可放鬆川普：世衛應承擔責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cff7c4d3aa872731229630f4aa308acefda4efeb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cff7c4d3aa872731229630f4aa308acefda4efeb
+
+下载BT种子 [中俄邊境口岸綏芬河市感染案例急速增長官方關閉綏芬河口岸大批患者無處安置.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa9ccc911ca4e25754ffb91a20393dd15184d738.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fa9ccc911ca4e25754ffb91a20393dd15184d738
 
 下载BT种子 [彼德森經濟預測：2020年全球將呈現3.4%負增長2021年則會強烈反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e277b94a8330a9190470e4d4d4deda45ff18d86.torrent)
 
@@ -593,29 +613,9 @@
 
 磁力链接 magnet:?xt=urn:btih:f204bd512847bce952812c75067c28854a264b9c
 
-下载BT种子 [（配字幕版）大陸某軍醫系統專家的內部講話：現在發現痊癒的病人裡面，免疫系統都毀了，我們現在也越來越緊張，好了以後還在傳播，跟愛滋病後果一樣的，（這個）病毒根本消滅不掉大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6989c43ceb5c399ee4ee324f6622c84d247d49b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6989c43ceb5c399ee4ee324f6622c84d247d49b8
-
-下载BT种子 [王全璋獲釋隔離仍受中共當局嚴控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa67a68d73081c5409aefd0246662217eed2c83a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa67a68d73081c5409aefd0246662217eed2c83a
-
 下载BT种子 [購回捐贈PPE？意大利駐美大使：我們並不天真.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff97b1af79dfcdaafb7189e4b350dea9c233e42e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ff97b1af79dfcdaafb7189e4b350dea9c233e42e
-
-下载BT种子 [疫情簡報會川普：3M將每月產5500萬口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9424b618ea3c164a71ed76444d1abe2c34f4b119.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9424b618ea3c164a71ed76444d1abe2c34f4b119
-
-下载BT种子 [全球累計確診病例超過136萬人7萬多人喪生日本宣布緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f4803503bbb5c8f90159bd7e9117128d6d624dd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0f4803503bbb5c8f90159bd7e9117128d6d624dd
-
-下载BT种子 [大陸首季46萬企業倒閉剛復工不久就出現失業返鄉潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48b09a1e44752664ba80dc96671d8c3488432e17.torrent)
-
-磁力链接 magnet:?xt=urn:btih:48b09a1e44752664ba80dc96671d8c3488432e17
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
