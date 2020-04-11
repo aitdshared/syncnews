@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W6PkPH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tvc8kC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [獨家解析譚德賽對台灣指控背後的中共因素；川普暫停世衛組織經費，並調查其運作將是聯合國各機構大整肅，去中共化的開端（江峰漫談20200410第153期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87fc726db44fa1455da0ccfac44856a2cfa7fb7e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:87fc726db44fa1455da0ccfac44856a2cfa7fb7e
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十二回黃花山收鄧辛張陶」楊戩獻計再會聞太師蛟龍金鞭雙祭起怎奈不敵打神鞭聞仲兵敗西岐山雷震子尊法旨力壓辛環聞太師有去無回命該此（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e06dead39be19643511f755094c87cad3c658922.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [任志强案更新;川普回答凤凰卫视时给出重要暗示,英国首相进ICU,全球追责中共的四大选项(政论天下第147集20200407)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65f3370f52c03de7b8d79e20aabd40295335fcea.torrent)
 
 磁力链接 magnet:?xt=urn:btih:65f3370f52c03de7b8d79e20aabd40295335fcea
-
-下载BT种子 [美情今日。党报悄然下架习近平？老任有消息！伊朗反目，巴西这样说中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb84e0fb136e7aef7d3dbfcb5f448725615b7824.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb84e0fb136e7aef7d3dbfcb5f448725615b7824
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
