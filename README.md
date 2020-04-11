@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sRQ2zp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4S22O8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [鐵桿埃及索賠10萬億💰；美數千人起訴中共，習近平敲警鐘？海歸女隔離3天回家，確診連累小區封鎖；幾千億房貸還不上，742億信用卡刷爆💥！【新聞看點李沐陽04.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c940a9db4a453f57fd8e35b7a72ae319a6d956f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c940a9db4a453f57fd8e35b7a72ae319a6d956f
 
 下载BT种子 [【中国禁闻】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1c304c29b535f2d0f7dfd37ce316d13928825d6.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [疫情簡報會川普：3M將每月產5500萬口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9424b618ea3c164a71ed76444d1abe2c34f4b119.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9424b618ea3c164a71ed76444d1abe2c34f4b119
-
-下载BT种子 [納瓦羅：中共如同一級謀殺白宮或起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6814a30bef7bdd2a33ee3767c3f64c8ccf33b08b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6814a30bef7bdd2a33ee3767c3f64c8ccf33b08b
 
 下载BT种子 [全球累計確診病例超過136萬人7萬多人喪生日本宣布緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f4803503bbb5c8f90159bd7e9117128d6d624dd.torrent)
 
