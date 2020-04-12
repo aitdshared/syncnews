@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oGEIoE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qd37UH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【獨家中共病毒溯源】首部探究中共病毒疫情真相的紀錄片：《解密中共病毒的起源》（TrackingDowntheOriginoftheWuhanCoronavirus）中文字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bb99b4bd6a7e3c6a711d629999791e152e61b3c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0bb99b4bd6a7e3c6a711d629999791e152e61b3c
 
 下载BT种子 [《石濤聚焦》「川普長子盛讚：疫情過後即刻“承認台灣”為國家」胡錫進怒斥其為錢專欄作家挑戰“姓胡的發個推文給習總？”因中共病毒傷害美國應”加關稅撤企業用美國債抵掉一切損失“（1104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f0b25442a93e8fbcb6f5a2edab4b3407f133b7b.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [《石濤聚焦》「川普宣佈：凍結WHO資金」美國提供資金WHO卻總以中共國為中心「疫情中他們每個階段都做錯事」（0704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c47fa96011e67b24c6d8e595af07b019c135125.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7c47fa96011e67b24c6d8e595af07b019c135125
-
-下载BT种子 [任志强正式被查辦，對照四年前，习近平怕的原來是它！糧食豐足下的糧荒，一探究竟：中共把持的世界糧農組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c216b17f6648af6549c55dce916ef29aff7c598b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c216b17f6648af6549c55dce916ef29aff7c598b
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
