@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zy1ZTC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gKLdCL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【Jason快評】一張圖展示世界各國疫情現狀；未來人類在疫情中生活的兩個狀態熱點互動04112020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b863276ff35325ee139334e5d6aeb5b10bbf6f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3b863276ff35325ee139334e5d6aeb5b10bbf6f3
 
 下载BT种子 [《石濤聚焦》「習近平口罩外交大勝白宮-為美企撤出中共國承擔一切費用」全球感染逼近200萬亡過10萬美國疫情高位拉橫川普已考慮復工—發誓重塑全球供應鏈「日本出資24億美元鼓勵企業撤離中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c60d809f2f3c20010b468d1dfb0721b9dca5a792.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [《石濤聚焦》「公開抓捕任志強習近平犯大忌-黨紀國法私用」中南海各勢力必擇機反擊「習近平主動公開與王岐山撕裂」應對鐵板圖-撞山而死「七座山已湊齊」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42ab04e33f94b77205b1503ca20072e9d51c7651.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42ab04e33f94b77205b1503ca20072e9d51c7651
-
-下载BT种子 [北京通报：任志强正接受纪委审查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9486b33988f0d8fe623c2c9697c2b4bc996793b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9486b33988f0d8fe623c2c9697c2b4bc996793b7
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
