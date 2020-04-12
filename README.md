@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yTDJTO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tSEfe9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平很本事，让特朗普睡不着。美日大计划：撤离在华企业！华春莹创作最新名言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba5162e26839c0b92e40a86428f7a2d176d40f38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ba5162e26839c0b92e40a86428f7a2d176d40f38
 
 下载BT种子 [中共拉攏非洲掌控WHO前駐非醫師揭密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/920151c2ca15dc393f45f62171e84b4fca1cd17a.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [英國首相病情穩定日本宣佈緊急狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8a810356996a4d9507b07b1cc9b7b8ab5f3139a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d8a810356996a4d9507b07b1cc9b7b8ab5f3139a
-
-下载BT种子 [前鳳凰網記者張真瑜（2）中共中宣部對記者團有達規定如違反將受到處置.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16b7d76f86803b965dae207943545db2fa999fbc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:16b7d76f86803b965dae207943545db2fa999fbc
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
