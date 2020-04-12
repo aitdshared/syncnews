@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kJROxl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/78bAcO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】网友大哉问中共若解答疫情真相可大白.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9e25ff851386ebd4523f2c8b7148c7c642729b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6b9e25ff851386ebd4523f2c8b7148c7c642729b
+
+下载BT种子 [六常委沉默，习近平在高层陷于孤立？突然下手整一个人。非洲国家反目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b68ad499c3ef64eb7517a06a8d871cba4097fff0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b68ad499c3ef64eb7517a06a8d871cba4097fff0
+
+下载BT种子 [【禁闻】促美企回国库德洛政府可负担“搬家费”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bda019b03dc35474e6c40af2e044ac86a3551450.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bda019b03dc35474e6c40af2e044ac86a3551450
 
 下载BT种子 [《石濤聚焦》「感恩節-川普高興推文：下個禮拜我們到教堂慶祝」90%美國人不信習近平與中共脫鉤86%認同美企離開中共國美參議員「中共國必須賠償美國損失」胡錫進承認「武漢病毒代表共產主義與社會主義」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a319a705870e3644867fb21219fe47db346276.torrent)
 
@@ -584,18 +596,6 @@
 下载BT种子 [《石濤聚焦》「對比下不寒而慄」川普坦承：美國黑人確診與死亡「不成比例的極高太嚇人太可怕」廣州三元里30萬黑人聚集區「疫情大爆發」美國首席專家「我們無能為力-不知道為什麼」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88e7c185f2ec93372621809eddd051181680df0d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88e7c185f2ec93372621809eddd051181680df0d
-
-下载BT种子 [武漢近日出現無症狀感染者武漢市民：出門復工的是第一批白老鼠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b86b678ccfc860c9aad3e28d0007528201d6d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:19b86b678ccfc860c9aad3e28d0007528201d6d5
-
-下载BT种子 [武漢封城76天解封五萬人出城專家憂心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c581995ea00ee90b75692f35da4706323547c5d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c581995ea00ee90b75692f35da4706323547c5d2
-
-下载BT种子 [全球超過144萬人被確診英國首相約翰遜病情穩定意大利新確診近4週最低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ef2313594a95d326d247dc568d219e7befd24a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d1ef2313594a95d326d247dc568d219e7befd24a
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
