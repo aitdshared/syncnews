@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fE4daK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aAU6pd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b15ce945f66c518de1f3bb18615a51e31002c51.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5b15ce945f66c518de1f3bb18615a51e31002c51
 
 下载BT种子 [国库异常空虚，韩国政客为了选票还在撒钱，韩国前途堪忧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6f1a05bb9717c1a22618db08a806d87d6364a42.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:86e30175a90e99dd3ed32fcf801cd10c166eb96c
-
-下载BT种子 [親共媒體記者詭異提問川普：你替中共工作？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cfa5e4cfc57a37a7dab49b327e4ed67bd268537.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cfa5e4cfc57a37a7dab49b327e4ed67bd268537
 
 下载BT种子 [【环球直击】3月23日完整版提要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1e3a8879870a662347ddc2d21e4e9c5e08a9eb.torrent)
 
