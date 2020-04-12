@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RGwN11)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3ZvrqR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「感恩節-川普高興推文：下個禮拜我們到教堂慶祝」90%美國人不信習近平與中共脫鉤86%認同美企離開中共國美參議員「中共國必須賠償美國損失」胡錫進承認「武漢病毒代表共產主義與社會主義」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a319a705870e3644867fb21219fe47db346276.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8a319a705870e3644867fb21219fe47db346276
+
+下载BT种子 [《石濤聚焦》「復活節：英國首相出院發表感恩詞」曾經瀕臨死亡50%的人沒有他的機會「英國剛剛退貨350萬中共國試劑並要求退款」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b00bc611e97861c788c4922d113c0028e63cce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:26b00bc611e97861c788c4922d113c0028e63cce
+
+下载BT种子 [【今日熱點】美擬出「搬家費」助美企撤出中國；一個時代或許正在落幕；關鍵轉折，緣何到來？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42c47b2386b5cedc88054cb669da39978a72b65d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42c47b2386b5cedc88054cb669da39978a72b65d
 
 下载BT种子 [【严真点评】外交部大实话：面临全球追责中共完了世卫也休矣！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27c6f487cf0c4c065a731f1d8498d1bc8f3f430d.torrent)
 
@@ -584,26 +596,6 @@
 下载BT种子 [全球超過144萬人被確診英國首相約翰遜病情穩定意大利新確診近4週最低.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1ef2313594a95d326d247dc568d219e7befd24a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d1ef2313594a95d326d247dc568d219e7befd24a
-
-下载BT种子 [中共黑客攻擊Linux及安卓系統的手機設備長達10年沒有被發現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/408a89300072f844b65bd466cf6e9bd3a3141aaf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:408a89300072f844b65bd466cf6e9bd3a3141aaf
-
-下载BT种子 [川普：世衛組織圍着中共轉美國將調查並考慮停止撥款.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35f10a523acc8fa1f8d01620e4c3dc5e084aa219.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35f10a523acc8fa1f8d01620e4c3dc5e084aa219
-
-下载BT种子 [川普揭穿鳳凰女記者香港記協起底劉長樂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abc898315ad7aba7de69969e9ef041633585e312.torrent)
-
-磁力链接 magnet:?xt=urn:btih:abc898315ad7aba7de69969e9ef041633585e312
-
-下载BT种子 [蓬佩奧：將把關鍵醫療物資留在美國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23559aed251f67fff8af3f5be6fbc322c2b9586e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23559aed251f67fff8af3f5be6fbc322c2b9586e
-
-下载BT种子 [不同寻常！香港亲中媒体忽然大谈习近平身后事。八十二军起到逼宫作用？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169171776f0efd87688c9316dc7b7887d290301d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:169171776f0efd87688c9316dc7b7887d290301d
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
