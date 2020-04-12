@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cSOSCg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SNVsKq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月11日完整版(2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdd372c1afdf805b4e14bd1baad55b592d2a6b31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fdd372c1afdf805b4e14bd1baad55b592d2a6b31
 
 下载BT种子 [一周经济回顾：川普透露正在考虑开放美国经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f008423ece376be6d96f4fffd5a269731516eb88.torrent)
 
@@ -592,22 +596,6 @@
 下载BT种子 [不同寻常！香港亲中媒体忽然大谈习近平身后事。八十二军起到逼宫作用？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169171776f0efd87688c9316dc7b7887d290301d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:169171776f0efd87688c9316dc7b7887d290301d
-
-下载BT种子 [六成感染者未發現😷，武漢解封全國冒險😨；紐約疫情為何屢創新高？❗️（2020.4.8）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b25a76542cc7cf48422e193d0178bdddceb29b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71b25a76542cc7cf48422e193d0178bdddceb29b
-
-下载BT种子 [【环球直击】4月8日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed21953052fc8a37a7d97d1bd433729b4dff8a4a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed21953052fc8a37a7d97d1bd433729b4dff8a4a
-
-下载BT种子 [【中國禁聞】4月7日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4510e3768e5a7f528cf5815f4c665528902662e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4510e3768e5a7f528cf5815f4c665528902662e1
-
-下载BT种子 [《石濤聚焦》「川普宣佈：凍結WHO資金」美國提供資金WHO卻總以中共國為中心「疫情中他們每個階段都做錯事」（0704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c47fa96011e67b24c6d8e595af07b019c135125.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c47fa96011e67b24c6d8e595af07b019c135125
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
