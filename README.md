@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zjo9Ue)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kefOL9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】中國問題首席戰略家羅伯特·斯伯丁將軍：美國最大的危機就是忽略了中共的本質！中共靠什麼滲透西方？如何保護自己免受中共掠奪？台灣大選證明中國人可以有民主！大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4735a86afec849a04db892163b71e60e5a432877.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4735a86afec849a04db892163b71e60e5a432877
 
 下载BT种子 [《濤哥侃封神》『封神演義第四十四回子牙魂游昆崙山』西岐城外十絕陣未見其真偽魂先絕子牙遭遇姚天君頭三腳七拜魂魄一縷游絲命幾絕（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/533b4aae99fbc0aebd8c5730631d3a971fe55ae3.torrent)
 
