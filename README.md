@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/joYcgy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TuBtON)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重磅】绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？（老北京茶馆第286集20200412）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4095c8f57d277e30abbe98fba0d47f44fd86997.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4095c8f57d277e30abbe98fba0d47f44fd86997
 
 下载BT种子 [【环球直击】4月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/194c485a7b20e82a7acf9aa3e9f0c684e279d7bb.torrent)
 
@@ -588,14 +592,6 @@
 下载BT种子 [《江峰時刻》2020年4月8日，50萬訂閱銘誌、明志；同日，武漢解封（20200408）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63b168a034a3ecfcb7451b6e57dc5609c31ae1fc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:63b168a034a3ecfcb7451b6e57dc5609c31ae1fc
-
-下载BT种子 [【禁闻】武汉疾控中心发文1月初已“人传人”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bd89642631482013cf3df16adf75e464270ccbc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6bd89642631482013cf3df16adf75e464270ccbc
-
-下载BT种子 [【重播】4.8紐約州中共肺炎疫情新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/794e392cbb2b07a876ccbf65bea01f8055e8eb13.torrent)
-
-磁力链接 magnet:?xt=urn:btih:794e392cbb2b07a876ccbf65bea01f8055e8eb13
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
