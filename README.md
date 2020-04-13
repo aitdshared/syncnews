@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AdjPOS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mE8333)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/667c96eef4ce8658294323db7704231503e55c4c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:667c96eef4ce8658294323db7704231503e55c4c
 
 下载BT种子 [【禁闻】中共文件：610人员收入超人均水平10多倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7a8fa1007aaa49b2cb0b0e2b444349b51dd519f.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [《石濤.News》「4.8武漢解封-復工死發財」卻墜入神佛定數：逾越節-耶和華殺死埃及人祭典封城日-中共製造天安門自焚偽火之日引活摘罪惡欺騙全球第77天解封-定數難逃習總親邀中共病毒即時定再現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a90a14eb88574e6aa1485b71b024cd91edaf1c4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1a90a14eb88574e6aa1485b71b024cd91edaf1c4
-
-下载BT种子 [《石濤聚焦》「對比下不寒而慄」川普坦承：美國黑人確診與死亡「不成比例的極高太嚇人太可怕」廣州三元里30萬黑人聚集區「疫情大爆發」（0804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75757bb687153eb9e6072fc22e4bfced50dfc0b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:75757bb687153eb9e6072fc22e4bfced50dfc0b7
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
