@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3v086B)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MB4ZFl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情衝擊外貿訂單中國最大的小商品市場義烏商城空無一人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d238df944cd492a4a0e0f5f144c17c0c98eb6a04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d238df944cd492a4a0e0f5f144c17c0c98eb6a04
+
+下载BT种子 [非裔人士遭中共驅趕非盟召見大使強烈抗議中共的歧視行為.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/554606310bc6b049fd0bc3e2ad6df989d076f73a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:554606310bc6b049fd0bc3e2ad6df989d076f73a
+
+下载BT种子 [大疫下中共仍抓緊維穩中國網站刪帖員透露：日刪萬貼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91c3cbdb3dd47ae23183ff18c2fd8a4b9be40074.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91c3cbdb3dd47ae23183ff18c2fd8a4b9be40074
 
 下载BT种子 [【环球直击】疫情冲击义乌商城空无一人中国网站“删帖员”日删万贴（4月13日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e33d5a91bf2c7107bd46184f830a8fad46773882.torrent)
 
@@ -584,14 +596,6 @@
 下载BT种子 [中國大陸以外感染人數接近142萬死亡近8.5萬人英首相病情趨穩印度或延長封國令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70af56046c56429980989a2b410db371a0f557a5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:70af56046c56429980989a2b410db371a0f557a5
-
-下载BT种子 [遭受疫情重擊伊朗衛生官員指中共誤導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecce2df8bc6a143ec332d12ecfb3ef70cb50b255.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecce2df8bc6a143ec332d12ecfb3ef70cb50b255
-
-下载BT种子 [【全球新闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9b3d3b96546cbf6a2c4a25ee4dcc63f5342b761.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b9b3d3b96546cbf6a2c4a25ee4dcc63f5342b761
 
 下载BT种子 [【中国禁闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbb8e28d032c6edbe65796aba3b6bcaff53d6611.torrent)
 
