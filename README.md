@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mB1zv5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/thRUid)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】阻中国公民回国中共关闭口岸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a18a9893f6b8eb381d3c98cdcd6f42ad835da37d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a18a9893f6b8eb381d3c98cdcd6f42ad835da37d
+
+下载BT种子 [【禁闻】追责世卫呼声不断谭德塞欺台引众怒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6469e36ffb3b874bbe2961e019a39c37292db2ba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6469e36ffb3b874bbe2961e019a39c37292db2ba
 
 下载BT种子 [【环球直击】4月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/667c96eef4ce8658294323db7704231503e55c4c.torrent)
 
@@ -588,10 +596,6 @@
 下载BT种子 [习近平发话：准备长期应付外部压力！任志强被查，将被定性“颠覆势力”？（文昭谈古论今20200408第732期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06bda81cc833e480b26eed112775050710d40359.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06bda81cc833e480b26eed112775050710d40359
-
-下载BT种子 [习近平发话：准备长期应付外部压力！任志强被查，将被定性为“颠覆势力”？（文昭谈古论今20200408第732期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d577050ca9bd8382a3a0d1c624e82a7fb65a3f4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d577050ca9bd8382a3a0d1c624e82a7fb65a3f4f
 
 下载BT种子 [《石濤.News》「4.8武漢解封-復工死發財」卻墜入神佛定數：逾越節-耶和華殺死埃及人祭典封城日-中共製造天安門自焚偽火之日引活摘罪惡欺騙全球第77天解封-定數難逃習總親邀中共病毒即時定再現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a90a14eb88574e6aa1485b71b024cd91edaf1c4.torrent)
 
