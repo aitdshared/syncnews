@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DBA85W)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HU7xy9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美著名投資家巴斯：中共菁英拋棄習總廣東鄧家」網傳：列舉習近平N多項罪行-外交獨裁管治個人品質「換人唯一民族與國家多出路」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4226898308390066276a459c5eef9bde2ff29259.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4226898308390066276a459c5eef9bde2ff29259
 
 下载BT种子 [《石濤聚焦》「復活節：“習兵法”橫空出世孫子兵法淪為陪襯人」網友：識別邪教騙術之教材「面對全世界的問責習包子肯定要當孫子」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1102b6f1e8004c2d2c13bbe7356963195bc71d6c.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [【禁闻】世卫“搞砸了”川普可能终结捐助.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/712f726ff19fcc4c7b6904bef01846e7ab7bef58.torrent)
 
 磁力链接 magnet:?xt=urn:btih:712f726ff19fcc4c7b6904bef01846e7ab7bef58
-
-下载BT种子 [【禁闻】崔天凯吁中美合作抗疫美国务院提三点要求.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f8b45f8dcdf63efba5594bf80dec0600acf30b2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6f8b45f8dcdf63efba5594bf80dec0600acf30b2
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
