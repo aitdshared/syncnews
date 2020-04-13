@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bYwA3x)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AvYpPK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】疫情冲击义乌商城空无一人中国网站“删帖员”日删万贴（4月13日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e33d5a91bf2c7107bd46184f830a8fad46773882.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e33d5a91bf2c7107bd46184f830a8fad46773882
+
+下载BT种子 [【中國禁聞】4月12日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/839093b7423fa20e71b340b1971137087ca188a5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:839093b7423fa20e71b340b1971137087ca188a5
 
 下载BT种子 [【美國思想領袖】中國問題首席戰略家羅伯特·斯伯丁將軍：美國最大的危機就是忽略了中共的本質！中共靠什麼滲透西方？如何保護自己免受中共掠奪？台灣大選證明中國人可以有民主！大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4735a86afec849a04db892163b71e60e5a432877.torrent)
 
@@ -588,22 +596,6 @@
 下载BT种子 [【中国禁闻】4月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbb8e28d032c6edbe65796aba3b6bcaff53d6611.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dbb8e28d032c6edbe65796aba3b6bcaff53d6611
-
-下载BT种子 [《石濤聚焦》「逾越節遭遇超級粉月亮-彌賽亞到來」習近平借中共病毒-武漢肺炎欲摧毀整個西方國家「1月掩蓋2月向外輸出買斷海外醫療用品3月銷聲國內疫情海外爆發4月對外大援助」WHO全程保駕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b6864a05a37a505e5695ecc0c6ee8d9069efafc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b6864a05a37a505e5695ecc0c6ee8d9069efafc
-
-下载BT种子 [【禁闻】4月8日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0fc0b060185edb2452008362761226bb79cf72e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b0fc0b060185edb2452008362761226bb79cf72e
-
-下载BT种子 [過度依賴中國供應鏈美疫情後或大調整.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4a4361c6f76d4ef784f0bccf99d55179f06c921.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4a4361c6f76d4ef784f0bccf99d55179f06c921
-
-下载BT种子 [武漢解封市民魚貫出逃，封城76天血淚，算一算武漢有多少病患😷？外鬆內緊日現上百病例，為清零半夜偷運屍體😨，這些人還記得誰🤔？哈市大疫爆，患者大排長龍【新聞看點李沐陽04.08】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38384f28a9347fd9521fbc7f863fa09da4c0ebd8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38384f28a9347fd9521fbc7f863fa09da4c0ebd8
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
