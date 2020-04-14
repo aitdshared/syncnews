@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ufygop)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n0KMfi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [回應華春瑩美國FCC委員卡爾揭中共謊言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4868424fab03286b41362d6765a70341aedb2a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b4868424fab03286b41362d6765a70341aedb2a6
+
+下载BT种子 [黑龍江綏芬河疫情已確診243例中共數據顯示整個黑龍江只有78例數據造假？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d06c02841dd2995a9151d541680a7c72c418cd53.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d06c02841dd2995a9151d541680a7c72c418cd53
+
+下载BT种子 [林耶凡在牛津聯盟演講：中共思維與中共病毒（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20076743003f415408a3fb5efacbf474a9f56b06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:20076743003f415408a3fb5efacbf474a9f56b06
 
 下载BT种子 [《石濤聚焦》「崔永元：44萬中共國人為英國首相病危：點贊👍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa46c88e5130ecef971beedc3895f9be37a9bb38.torrent)
 
@@ -588,14 +600,6 @@
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8164186e4ce17232859272a25061cdbff0a81690
-
-下载BT种子 [援鄂醫生稱「病毒太狠了！」😷每天都有確診病人，有人身帶2種病毒！武漢又現街頭倒地😨，官闢謠「醉酒」🤨，武漢人透露4點情況；張文宏「學渣人渣論」，鍾南山是哪一種？🤔【新聞看點李沐陽04.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126377202415264b27d2034af07aa14d477d26d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:126377202415264b27d2034af07aa14d477d26d0
-
-下载BT种子 [习近平：老朋友变脸、中美关系脆弱、美两党联手追责、牡丹江告急，要做长期准备了！（老北京茶馆第284集20200409）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2f7ff6fce5f16891b89d81d822cc8bfac08e56c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d2f7ff6fce5f16891b89d81d822cc8bfac08e56c
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
