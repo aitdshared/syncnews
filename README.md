@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dyexyJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bOWR0P)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [奧斯陸論壇開講分析港台防疫成功之謎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fca7d1c5e482e31b387aa6f346e1be0ff2afdb3b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fca7d1c5e482e31b387aa6f346e1be0ff2afdb3b
 
 下载BT种子 [《石濤聚焦》「昨日記者會：川普與CBS記者激烈爭吵-關於懲罰中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad60b4f0080bb711c4ad39584f5235c9c060b875.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [【中国禁闻】4月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a23cfb793ddb9f0c94e85ba5036e1c6a40bb32f8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a23cfb793ddb9f0c94e85ba5036e1c6a40bb32f8
-
-下载BT种子 [《石濤聚焦》「英國首相強生轉入普通病房美媒：勢必找中共報仇」強生自染病毒中共測試配件含病毒涉嫌蓄意強生曾親允華為5G入英必覺羞辱（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb651e9184f3d86ccd198979a4c846e8b7cb93.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bfbb651e9184f3d86ccd198979a4c846e8b7cb93
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
