@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6fqIRe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Nund2r)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【百姓自拍】北京火車站出現大批白衣人和大量旅遊巴士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2b3717e26bc4173d658d224edd00bde0ea8822f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d2b3717e26bc4173d658d224edd00bde0ea8822f
 
 下载BT种子 [美國日本「硬脫鉤」，中國「世界工廠」地位不保；美航母出現疫情，國防部警告勿錯判美軍實力！美國全球撤僑有何深意？Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a8e3a8aad2f1f46b5e63f8e9b212b4e341002d3.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [【會員完整版04.09】援鄂醫生稱「病毒太狠了！」😷每天都有確診病人，有人身帶2種病毒！武漢又現街頭倒地😨，官闢謠「醉酒」🤨；張文宏「學渣人渣論」，鍾南山是哪一種？🤔中共修改疫情，譚德賽配合中共殺人😡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48c293b9905e505fdfb9bdbc2b0f74d6e73c6fb5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:48c293b9905e505fdfb9bdbc2b0f74d6e73c6fb5
-
-下载BT种子 [【禁闻】反送中致港警声誉受损警员现离职潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8119b81cfed0891dbf096d5476e74db9f2f6fd24.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8119b81cfed0891dbf096d5476e74db9f2f6fd24
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
