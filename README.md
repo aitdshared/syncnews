@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x6p2q2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XJQGUV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [为了钱向中共沉默的韩国社会开始觉醒，开始直接触碰中共禁区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8bb1b7774a4ab4aa87f728a3f13d903584afcb5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b8bb1b7774a4ab4aa87f728a3f13d903584afcb5
 
 下载BT种子 [🈲️超4千病床！黑龍江爆疫情，綏芬河重災方艙啟動，滿洲里嚴重；河北邢台緊急封閉；中共黨官染疫瞞3個月；央視推習兵法防疫，媲美孫子；江蘇反間諜法鼓勵舉報；美疫情趨穩，議重啓經濟新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1729182c36d3c72aaa866645d3660d621c4ca91.torrent)
 
@@ -584,14 +588,6 @@
 下载BT种子 [中共病毒究竟造成多少中国人感染和死亡？武漢已基本遏止了嗎？中国解密（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4605e989bc8c92fb9226bc618fb4799751377de3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4605e989bc8c92fb9226bc618fb4799751377de3
-
-下载BT种子 [政治局常委会，习近平一语惊人！让某人长期神隐，那是最后的备胎？谭书记受不了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c7e393fb9cbbaa2585077aaa3e503e0f071b04e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c7e393fb9cbbaa2585077aaa3e503e0f071b04e
-
-下载BT种子 [【环球直击】4月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
