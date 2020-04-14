@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NX04h6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dyexyJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「昨日記者會：川普與CBS記者激烈爭吵-關於懲罰中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad60b4f0080bb711c4ad39584f5235c9c060b875.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ad60b4f0080bb711c4ad39584f5235c9c060b875
 
 下载BT种子 [《石濤聚焦》「大手筆：2月21日美意開始爆發中共海關即刻扣留所有郵寄海外的藥物」北京某大醫院陳醫師：造成滯留海外大陸老人失去日常藥物「陰謀：海外中國老人與慢性病患者-中共借疫情打擊美國的肉彈」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886b75ede8346e0b69849c719f90c1184846d523.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [《石濤聚焦》「英國首相強生轉入普通病房美媒：勢必找中共報仇」強生自染病毒中共測試配件含病毒涉嫌蓄意強生曾親允華為5G入英必覺羞辱（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfbb651e9184f3d86ccd198979a4c846e8b7cb93.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bfbb651e9184f3d86ccd198979a4c846e8b7cb93
-
-下载BT种子 [《石濤聚焦》「習近平美國人被告入‘國際刑事法院’」罪名：反人類和種族滅絕要求20兆美元以上賠償埃及與土耳其律師也展開類似行動（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28cd186a9fb0baaf7a9b50e3f83da31e5ec65541.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28cd186a9fb0baaf7a9b50e3f83da31e5ec65541
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
