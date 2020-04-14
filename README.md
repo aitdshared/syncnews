@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DgArWo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x6p2q2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🈲️超4千病床！黑龍江爆疫情，綏芬河重災方艙啟動，滿洲里嚴重；河北邢台緊急封閉；中共黨官染疫瞞3個月；央視推習兵法防疫，媲美孫子；江蘇反間諜法鼓勵舉報；美疫情趨穩，議重啓經濟新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1729182c36d3c72aaa866645d3660d621c4ca91.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c1729182c36d3c72aaa866645d3660d621c4ca91
+
+下载BT种子 [【微视频】金融停止输血中共比移出制造业重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ed0634ee0a7d03175473f2405b72ad4f739896.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b3ed0634ee0a7d03175473f2405b72ad4f739896
 
 下载BT种子 [【全球新闻】4月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e4f8d34ca4b2820b20fe304f2c4e47da362c477.torrent)
 
@@ -584,14 +592,6 @@
 下载BT种子 [【环球直击】4月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4b74ae33ef3a26f8e81def9f7d3f24ebf1a1bf7
-
-下载BT种子 [【禁闻】武汉死者家属维权律师顾问团受理.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e2bbe6387659bb521e9c360ca036dda626aab5d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e2bbe6387659bb521e9c360ca036dda626aab5d
-
-下载BT种子 [习近平忽然冒出这句话！神秘人物长期隐蔽，那是中共准备的最后领导人？谭书记想不开了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68ec59f14f7d7d07436168bcc70123abc730fab1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:68ec59f14f7d7d07436168bcc70123abc730fab1
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
