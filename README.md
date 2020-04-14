@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XJQGUV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jB3hLV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普揭“美國之音”吃美國的飯砸美國的鍋；台長阿曼達從第一份習近平家族貪腐調查到與中共的高層勾兌幕後（江峰漫談20200413第154期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82758dd1087e8a51e49c09194cd748905cb98c2a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:82758dd1087e8a51e49c09194cd748905cb98c2a
 
 下载BT种子 [为了钱向中共沉默的韩国社会开始觉醒，开始直接触碰中共禁区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8bb1b7774a4ab4aa87f728a3f13d903584afcb5.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [任志强必遭重判,危机四伏中,习近平的心理分析(政论天下第148集20200409)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9ebe182cbd9daab105c997d45e725ec1c1f2506.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b9ebe182cbd9daab105c997d45e725ec1c1f2506
-
-下载BT种子 [中共病毒究竟造成多少中国人感染和死亡？武漢已基本遏止了嗎？中国解密（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4605e989bc8c92fb9226bc618fb4799751377de3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4605e989bc8c92fb9226bc618fb4799751377de3
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
