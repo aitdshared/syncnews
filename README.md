@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l5vwcV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GGzp8s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e277f3467346cf745c3d450d1408bda93678552e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e277f3467346cf745c3d450d1408bda93678552e
 
 下载BT种子 [神秘人透封城內幕🤔；3000萬人將失業20年老廠倒閉，最大物流倉庫空無一人；華春瑩談自由🙄；千萬歐元買200萬不合格口罩😷；村民打井發現地下生命；回國竟成偷渡？【新聞看點】（2020413）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/802dd3aba28149229e03eacd66e1c2ecbd96ea12.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [美國專家：美國死亡人數將比預測低CDC頒布新防疫指南.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fe81ee4dbd5a68447ccece3637276837d5de9ba.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1fe81ee4dbd5a68447ccece3637276837d5de9ba
-
-下载BT种子 [湖北數百名業主維權：中共引資項目歐亞達趁疫情欺詐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/139e271b70cae7af587c53e67589655261bc540b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:139e271b70cae7af587c53e67589655261bc540b
 
 下载BT种子 [譚德塞「莫須有」指控台灣朝野要求道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2216e0215e174efa0a97aa9653c0c227ced89650.torrent)
 
