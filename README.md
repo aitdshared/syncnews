@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dsrhNX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V8xWhi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中南海头痛，非洲要求中国免债。军心不稳？习近平出招防变！辽宁号出动.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e323ce9a0fe7a8f2c89ea086b175ebf4b9108c10.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e323ce9a0fe7a8f2c89ea086b175ebf4b9108c10
 
 下载BT种子 [政府发钱和强制消费,为什么两个我都不喜欢频道开通一周年感言,点评江峰,文昭和萧茗的自媒体频道(政论天下第150集20200413)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97d5540605da3b9c60608018994d58e31cee191d.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [台灣援助國際第二波捐六百萬醫療口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28bb76cce3b69518501c822a2339c023b4bdd358.torrent)
 
 磁力链接 magnet:?xt=urn:btih:28bb76cce3b69518501c822a2339c023b4bdd358
-
-下载BT种子 [《石濤.News》「網傳：王滬寧為任志強專案組組長王岐山有習近平的材料」習最怕政變王滬寧被稱康生借任志強案再次文革-打倒腐朽的資產階級「王岐山部分被故意掩蓋突出周書記-周永康？」（0904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7c8ffb42d5e3ed07e4a023bb76489ea7920ed36.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7c8ffb42d5e3ed07e4a023bb76489ea7920ed36
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
