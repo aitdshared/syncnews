@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/huTm29)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DAVVSz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e4f8d34ca4b2820b20fe304f2c4e47da362c477.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8e4f8d34ca4b2820b20fe304f2c4e47da362c477
 
 下载BT种子 [习近平遭遇王沪宁史上最高级黑！复工复产达标秘方出炉啦！英法被逼用5G换物资？（老北京茶馆第287集20200413）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19f944aba986f3655a58b1e1ed8919c9297a4457.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [习近平忽然冒出这句话！神秘人物长期隐蔽，那是中共准备的最后领导人？谭书记想不开了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68ec59f14f7d7d07436168bcc70123abc730fab1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:68ec59f14f7d7d07436168bcc70123abc730fab1
-
-下载BT种子 [川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aab5c75c36a9f4eafe860dcdf45bb838a683b359.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aab5c75c36a9f4eafe860dcdf45bb838a683b359
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
