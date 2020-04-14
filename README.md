@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V8xWhi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wVsB8E)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】英相染疫终出院与中共关系引关注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3674a9f4204b3b3f83a91e9f892093486475bcce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3674a9f4204b3b3f83a91e9f892093486475bcce
 
 下载BT种子 [中南海头痛，非洲要求中国免债。军心不稳？习近平出招防变！辽宁号出动.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e323ce9a0fe7a8f2c89ea086b175ebf4b9108c10.torrent)
 
@@ -577,10 +581,6 @@
 
 磁力链接 magnet:?xt=urn:btih:1fe81ee4dbd5a68447ccece3637276837d5de9ba
 
-下载BT种子 [桑德斯退選對黨內選民的影響力仍在川普：支持者可轉向共和黨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/758197b6af62926a791abf28696079015cc90a97.torrent)
-
-磁力链接 magnet:?xt=urn:btih:758197b6af62926a791abf28696079015cc90a97
-
 下载BT种子 [湖北數百名業主維權：中共引資項目歐亞達趁疫情欺詐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/139e271b70cae7af587c53e67589655261bc540b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:139e271b70cae7af587c53e67589655261bc540b
@@ -592,10 +592,6 @@
 下载BT种子 [廣州三元里爆發疫情大量非洲人流落街頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8852dfffe5367094c2b2fc1853b7d37c9897adcd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8852dfffe5367094c2b2fc1853b7d37c9897adcd
-
-下载BT种子 [台灣援助國際第二波捐六百萬醫療口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28bb76cce3b69518501c822a2339c023b4bdd358.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28bb76cce3b69518501c822a2339c023b4bdd358
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
