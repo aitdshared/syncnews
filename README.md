@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GGzp8s)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/huTm29)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平遭遇王沪宁史上最高级黑！复工复产达标秘方出炉啦！英法被逼用5G换物资？（老北京茶馆第287集20200413）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19f944aba986f3655a58b1e1ed8919c9297a4457.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19f944aba986f3655a58b1e1ed8919c9297a4457
 
 下载BT种子 [【中国禁闻】4月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e277f3467346cf745c3d450d1408bda93678552e.torrent)
 
@@ -588,18 +592,6 @@
 下载BT种子 [川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aab5c75c36a9f4eafe860dcdf45bb838a683b359.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aab5c75c36a9f4eafe860dcdf45bb838a683b359
-
-下载BT种子 [美國專家：美國死亡人數將比預測低CDC頒布新防疫指南.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1fe81ee4dbd5a68447ccece3637276837d5de9ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1fe81ee4dbd5a68447ccece3637276837d5de9ba
-
-下载BT种子 [譚德塞「莫須有」指控台灣朝野要求道歉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2216e0215e174efa0a97aa9653c0c227ced89650.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2216e0215e174efa0a97aa9653c0c227ced89650
-
-下载BT种子 [廣州三元里爆發疫情大量非洲人流落街頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8852dfffe5367094c2b2fc1853b7d37c9897adcd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8852dfffe5367094c2b2fc1853b7d37c9897adcd
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
