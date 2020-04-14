@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fA7Qhz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EmNP1q)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平还能撑多久？邓家族加盟倒习！特朗普重大暗示。蔡英文风光国际.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0743d60614a7a165ed8715c03c0e8322b3a6e270.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0743d60614a7a165ed8715c03c0e8322b3a6e270
 
 下载BT种子 [【重播】414紐約州中共肺炎疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db48d7a5d65faf06dc0b5f784ee579ac0aedd537.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【真理部的荒誕故事】譚書記與零號病患.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/182d0ce94bc5c407e0dee72fd8352a9a174aa642.torrent)
 
 磁力链接 magnet:?xt=urn:btih:182d0ce94bc5c407e0dee72fd8352a9a174aa642
-
-下载BT种子 [美聯儲主席：疫情過後經濟復甦會強勁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57ff03cf487c57178dca5e3a9f2fa0341c3d2a03.torrent)
-
-磁力链接 magnet:?xt=urn:btih:57ff03cf487c57178dca5e3a9f2fa0341c3d2a03
 
 下载BT种子 [【重播】4.10台調查局查獲中共網軍假冒台灣網民攻訐譚德賽.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/971c6cb70cccc0cdb5fa44493d4678aacf5fb73a.torrent)
 
