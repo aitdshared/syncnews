@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bOWR0P)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Z6V1IW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「崔永元：44萬中共國人為英國首相病危：點贊👍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa46c88e5130ecef971beedc3895f9be37a9bb38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fa46c88e5130ecef971beedc3895f9be37a9bb38
 
 下载BT种子 [奧斯陸論壇開講分析港台防疫成功之謎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fca7d1c5e482e31b387aa6f346e1be0ff2afdb3b.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [习近平：老朋友变脸、中美关系脆弱、美两党联手追责、牡丹江告急，要做长期准备了！（老北京茶馆第284集20200409）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2f7ff6fce5f16891b89d81d822cc8bfac08e56c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d2f7ff6fce5f16891b89d81d822cc8bfac08e56c
-
-下载BT种子 [【中国禁闻】4月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a23cfb793ddb9f0c94e85ba5036e1c6a40bb32f8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a23cfb793ddb9f0c94e85ba5036e1c6a40bb32f8
 
 下载BT种子 [港媒問台議題遭整肅劉慧卿：世衛反應離譜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86e30175a90e99dd3ed32fcf801cd10c166eb96c.torrent)
 
