@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n0KMfi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2JrhsC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球近2百萬確診多國再延長限制令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/696e890226bdd9d101fe4a965a4669612d2870f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:696e890226bdd9d101fe4a965a4669612d2870f7
+
+下载BT种子 [大陸企業接連被取消外貿訂單民企老闆怒砸機器放火燒工廠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65170af2438e84945e33a5e3ebe7cb6d30c691f6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:65170af2438e84945e33a5e3ebe7cb6d30c691f6
+
+下载BT种子 [英國情報部門及政要：重估與中共關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/120c48a44c284319712ca11e06def60fac28c171.torrent)
+
+磁力链接 magnet:?xt=urn:btih:120c48a44c284319712ca11e06def60fac28c171
 
 下载BT种子 [回應華春瑩美國FCC委員卡爾揭中共謊言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4868424fab03286b41362d6765a70341aedb2a6.torrent)
 
@@ -584,14 +596,6 @@
 下载BT种子 [《濤哥侃封神》『封神演義第四十二回黃花山收鄧辛張陶』聞太師鞭打子牙李家三兄弟大敗西岐兵聞仲鞭傷楊戩不能驚詫不已（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ed02a40d7a3a7b3523a75b397a43d6308ea7cf9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4ed02a40d7a3a7b3523a75b397a43d6308ea7cf9
-
-下载BT种子 [🇺🇸美5月重啟經濟！病毒死者將更少；黑龍江建方艙，與俄有關？傳雲南邊境人群湧入；武漢租戶示威；台灣歧視譚得塞？英國籲另立世衛，首相好轉；山東4月雪；蔡奇辦任志強，要中南海滿意新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e0c7e4e4ef098b8a6fa225ad4ef6059570d2eaf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e0c7e4e4ef098b8a6fa225ad4ef6059570d2eaf
-
-下载BT种子 [【禁闻】谭德塞挨批后转移目标川普强硬回应.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a2638f0a5a5a3d8f81ead1a43f23dbe46d50f1ac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a2638f0a5a5a3d8f81ead1a43f23dbe46d50f1ac
 
 下载BT种子 [【全球新闻】4月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91408e4251c9a3a77c2e2282bfb0911a6724ea4a.torrent)
 
