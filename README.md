@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pfpdk0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9kYrFi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》『封神演義第四十四回子牙魂游昆侖山』老子出手赤精子奪草人太極圖遭劫失落魂陣12金門匯西岐反殺戒共破十絕陣『道判混元曾見太極兩儀生四象鴻濛傳法又將胡人西度出函關』（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8562ae0fc6bad1ce4215db2e955dc0325de32c80.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8562ae0fc6bad1ce4215db2e955dc0325de32c80
 
 下载BT种子 [【唐靖遠快評】習近平「換人」傳聞會否成真？美高官稱「珍珠港時刻」暗指美國處於備戰狀態熱點互動04142020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ff9a36a2735a7a562d29eaba91429084d75006.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [神秘人物出任重要省长，习近平准备迎战八十国联军？王毅急忙求助瑞士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cb2be50eaa85e48e73989ed1e38ba27e126a912.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0cb2be50eaa85e48e73989ed1e38ba27e126a912
-
-下载BT种子 [川普：美國疫情登頂將開始回落.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69e90bd9f1347efe14342bdc186a6c2ab0934640.torrent)
-
-磁力链接 magnet:?xt=urn:btih:69e90bd9f1347efe14342bdc186a6c2ab0934640
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
