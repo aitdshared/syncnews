@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XreNnD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GPuQfd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美聯社揭秘：習近平得知疫情嚴重性後第七天才宣布」隱瞞關鍵6天不知為啥？釀成人類歷史上里程碑式的大禍備忘錄：衛健委主任馬曉偉1月14日已明確“可能人傳人”但必須團結在“習近平周圍”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/952e73a014fcbf3f9e9ca6444074e24f2d218522.torrent)
+
+磁力链接 magnet:?xt=urn:btih:952e73a014fcbf3f9e9ca6444074e24f2d218522
 
 下载BT种子 [白宮貿易顧問納瓦羅：譚德塞是中共代理人還有更多國際組織被中共掌控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e528f7008964c18869543b13a02c87df515691de.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [方方遭遇胡锡进，崔永元救援！大义当前，各国政府给国人发钱一览，中外政府在干啥？（老北京茶馆第285集20200410）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9962366de5f31c34e74dd2566e807443274416.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dc9962366de5f31c34e74dd2566e807443274416
-
-下载BT种子 [白宮罕見重批美國之音前中文部主任：員工贊同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
