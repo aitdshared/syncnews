@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RuOF07)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PPNWVH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea1dcae66f53ceb98df9faffa999760136ce42de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ea1dcae66f53ceb98df9faffa999760136ce42de
 
 下载BT种子 [《石濤聚焦》「突發：川普剛剛宣佈中止WHO所有資金」全球確診達200萬美死亡創新高2349川普明稱「我根本不能接受：WHO只顧及中共臉面按中共意願行事更聲稱中共國處理疫情透明」（1404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55895af0fc48582c2ab5fb8263b0531a6c6ffeec.torrent)
 
@@ -592,14 +596,6 @@
 下载BT种子 [《石濤聚焦》「時間是個神：3.18武漢清零文殊菩薩道場五台山-大火」‘不忘初心方得始終’源自文殊菩薩21天後4.8武漢解封-逾越節「耶和華懲罰埃及人不信神一縷黑氣殺掉埃及長子作祭品」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a830f2677b000857c09836133e19e3bf9465a85.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a830f2677b000857c09836133e19e3bf9465a85
-
-下载BT种子 [【环球直击】4月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a38e48e1248fcd8bee9411311c70695fa20fbe3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a38e48e1248fcd8bee9411311c70695fa20fbe3a
-
-下载BT种子 [武漢不妙⚠️，路倒仍頻發；世衛嗆川普，中共反遭殃🧐；網軍生意熱五毛變七毛🤭（2020.4.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ed79257826d9a39b9aa1aabaf8f48682dc8603b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6ed79257826d9a39b9aa1aabaf8f48682dc8603b
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
