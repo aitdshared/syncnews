@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KLFcJp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IHZiU2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [外交丰收！王沪宁惹毛了多少国？习主席救不了谭书记。中泰网民大战好精彩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6252cc3b33fd31d6aa3468f00ae905272634971a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6252cc3b33fd31d6aa3468f00ae905272634971a
 
 下载BT种子 [全球超過201萬人感染英國經濟數百年最嚴重損失韓國如期舉行議會選舉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c728258848909c3b46c9bb37d75f92e4ed195c5e.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第四十二回黃花山收鄧辛張陶」楊戩獻計再會聞太師蛟龍金鞭雙祭起怎奈不敵打神鞭聞仲兵敗西岐山雷震子尊法旨力壓辛環聞太師有去無回命該此（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e06dead39be19643511f755094c87cad3c658922.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e06dead39be19643511f755094c87cad3c658922
-
-下载BT种子 [【全球新闻】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a366745c50fd02966b27bf53c18c637766475ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a366745c50fd02966b27bf53c18c637766475ef
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
