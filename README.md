@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XEpY67)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yvZMu6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [远超《江南style》，韩国又一个视频50亿点击，Youtube排第二，你不知道吧？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1c21af078d4f54636e00c625ba04d9092070250.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c1c21af078d4f54636e00c625ba04d9092070250
 
 下载BT种子 [【全球新闻】美国疫情趋势放缓世纪大萧条美國將启动調查中共和世卫隐瞒疫情（4月14日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edbb5692cb021372d8b4c9eebeac849ccfb88e69.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [人事变动有文章！此人出马，要助习近平大干一场？大国外长求助小国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6848b9bed5153f955f09f89152d314787cf1e989.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6848b9bed5153f955f09f89152d314787cf1e989
-
-下载BT种子 [【禁闻】纽约为何成了美国疫情重灾区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2bc4befb5d18b4443ae26e3ccadf728b36b854b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c2bc4befb5d18b4443ae26e3ccadf728b36b854b
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
