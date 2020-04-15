@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rIjOf9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XreNnD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [白宮貿易顧問納瓦羅：譚德塞是中共代理人還有更多國際組織被中共掌控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e528f7008964c18869543b13a02c87df515691de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e528f7008964c18869543b13a02c87df515691de
+
+下载BT种子 [疫情致中國農產品滯銷農民虧損嚴重中共未推出任何救濟措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf
 
 下载BT种子 [美國「水深火熱」？中國大陸微博評論諷刺如潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98c931a8c8024ac0c4a206d07c3522fde955095f.torrent)
 
@@ -588,26 +596,6 @@
 下载BT种子 [白宮罕見重批美國之音前中文部主任：員工贊同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77ebe9ed966dc6e14e7a5afa5a16fa3172c4a515
-
-下载BT种子 [海外感染超160萬死亡超過10萬意大利和印度延長封鎖令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d45c0f6c34d4abc6765ad81dfec676782ff92578.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d45c0f6c34d4abc6765ad81dfec676782ff92578
-
-下载BT种子 [白宮疫情簡報會：美國疫情首現曙光防疫不可放鬆川普：世衛應承擔責任.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cff7c4d3aa872731229630f4aa308acefda4efeb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cff7c4d3aa872731229630f4aa308acefda4efeb
-
-下载BT种子 [中俄邊境口岸綏芬河市感染案例急速增長官方關閉綏芬河口岸大批患者無處安置.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa9ccc911ca4e25754ffb91a20393dd15184d738.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa9ccc911ca4e25754ffb91a20393dd15184d738
-
-下载BT种子 [彼德森經濟預測：2020年全球將呈現3.4%負增長2021年則會強烈反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e277b94a8330a9190470e4d4d4deda45ff18d86.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2e277b94a8330a9190470e4d4d4deda45ff18d86
-
-下载BT种子 [鐵桿埃及索賠10萬億💰；美數千人起訴中共，習近平敲警鐘？海歸女隔離3天回家，確診連累小區封鎖；幾千億房貸還不上，742億信用卡刷爆💥！【新聞看點李沐陽04.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c940a9db4a453f57fd8e35b7a72ae319a6d956f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c940a9db4a453f57fd8e35b7a72ae319a6d956f
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
