@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bl5YbF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fFmONo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球超過201萬人感染英國經濟數百年最嚴重損失韓國如期舉行議會選舉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c728258848909c3b46c9bb37d75f92e4ed195c5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c728258848909c3b46c9bb37d75f92e4ed195c5e
+
+下载BT种子 [加拿大小姐牛津辯論：認清中共的冷戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c0a5813a50a84e0a585901cb8e27a2d2a845834.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c0a5813a50a84e0a585901cb8e27a2d2a845834
+
+下载BT种子 [川普：美國將調查世衛暫停資金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d37fef055eb11d24afe0d105dbb6e6f34f024657.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d37fef055eb11d24afe0d105dbb6e6f34f024657
+
+下载BT种子 [【环球直击】4月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e3d671742e7136b853b6f06908a79a8a8420256.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e3d671742e7136b853b6f06908a79a8a8420256
 
 下载BT种子 [《石濤聚焦》「美聯社揭秘：習近平得知疫情嚴重性後第七天才宣布」隱瞞關鍵6天不知為啥？釀成人類歷史上里程碑式的大禍備忘錄：衛健委主任馬曉偉1月14日已明確“可能人傳人”但必須團結在“習近平周圍”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/952e73a014fcbf3f9e9ca6444074e24f2d218522.torrent)
 
@@ -580,22 +596,6 @@
 下载BT种子 [【全球新闻】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a366745c50fd02966b27bf53c18c637766475ef.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a366745c50fd02966b27bf53c18c637766475ef
-
-下载BT种子 [【禁闻】数据去哪了？美或撤销中国电信运营许可.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bddf3bab2a6a68d13f53fb240abb2337b482feb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4bddf3bab2a6a68d13f53fb240abb2337b482feb
-
-下载BT种子 [【禁闻】川普面前撒谎记者以做党媒代理人为耻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa1d783e68d9c82009bf45e402406b9f4b80163b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa1d783e68d9c82009bf45e402406b9f4b80163b
-
-下载BT种子 [【禁闻】中共肺炎冲击日本助生产链回流或多元化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64ce82b69871881e6ad4a93143477547a767a316.torrent)
-
-磁力链接 magnet:?xt=urn:btih:64ce82b69871881e6ad4a93143477547a767a316
-
-下载BT种子 [方方遭遇胡锡进，崔永元救援！大义当前，各国政府给国人发钱一览，中外政府在干啥？（老北京茶馆第285集20200410）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc9962366de5f31c34e74dd2566e807443274416.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc9962366de5f31c34e74dd2566e807443274416
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
