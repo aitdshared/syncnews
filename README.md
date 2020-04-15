@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XHkqOK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/47Mal4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月15日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/665fe3de2ff1d54950e04f8a5cc5b280b5d4d7af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:665fe3de2ff1d54950e04f8a5cc5b280b5d4d7af
 
 下载BT种子 [兩岸即將開戰？😨中共有七大顧慮🤔；「台灣🇹🇼能幫忙」💪🏻國際廣告登上美媒（2020.4.15）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90277730a29c8ed9bddee3b3e9eafebd6eb40b89.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [《石濤.News》「習近平抓捕任志強惹下天大禍根」與王岐山徹底翻臉與紅二代實力派完全衝突「陳平：任志強軟落地&硬著陸遊說與威脅」習近平主動撞死在王岐山上「鐵板圖」天滅中共生與滅（1004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e2db6fd542734020f0dcb00f8c27b85a4653990.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9e2db6fd542734020f0dcb00f8c27b85a4653990
-
-下载BT种子 [4月10日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c152bcdd0788c743a1dab8e7ff4f486e43a816c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5c152bcdd0788c743a1dab8e7ff4f486e43a816c
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
