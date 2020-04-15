@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KFamS8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xCDmas)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共和世衛隱瞞疫情美參院將啟動全面調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/188e2eed2d1d24ce246880afba55cf607bcec202.torrent)
+
+磁力链接 magnet:?xt=urn:btih:188e2eed2d1d24ce246880afba55cf607bcec202
+
+下载BT种子 [美國疫情趨勢放緩歐洲英法事態仍緊張.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/775f4450713808ed736868632b51d87964a77fc5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:775f4450713808ed736868632b51d87964a77fc5
+
+下载BT种子 [IMF中共病毒重創世界經濟堪比世紀大蕭條.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2669c812ec800bf4fcc656789dc45c7d21494fb9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2669c812ec800bf4fcc656789dc45c7d21494fb9
 
 下载BT种子 [川普宣佈：美國停止資助世界衛生組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e60f72a1a4b889481a915cecaf8eb8f02f6abbc.torrent)
 
@@ -569,10 +581,6 @@
 
 磁力链接 magnet:?xt=urn:btih:69e90bd9f1347efe14342bdc186a6c2ab0934640
 
-下载BT种子 [荷蘭芬蘭都退貨中國製口罩墨西哥前大使轟中共倒賣口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9978bb7dbe4aa49159783a39e06a2473f3d34f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9978bb7dbe4aa49159783a39e06a2473f3d34f2
-
 下载BT种子 [【环球直击】4月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60eb2f6e6660d9458f705a3dcb3b05b20a2a5e18.torrent)
 
 磁力链接 magnet:?xt=urn:btih:60eb2f6e6660d9458f705a3dcb3b05b20a2a5e18
@@ -596,10 +604,6 @@
 下载BT种子 [山東大學生武漢做安保見證了武漢疫情之慘烈親見老人沒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0946016a9bb5b7b75296523d73bcc5b83c12dc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f0946016a9bb5b7b75296523d73bcc5b83c12dc
-
-下载BT种子 [武漢光谷步行街數百商戶上街遊行遭鎮壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c08d70d8f4ae43608bbde2c655272479ba92f0bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c08d70d8f4ae43608bbde2c655272479ba92f0bd
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
