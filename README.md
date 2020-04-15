@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gneH7w)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2IFd4m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中領館私信美國州議長求表揚議長怒斥「腦殘」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/266262056550b01a5c958b56902a41e91b6c4627.torrent)
+
+磁力链接 magnet:?xt=urn:btih:266262056550b01a5c958b56902a41e91b6c4627
+
+下载BT种子 [中国华为任正非上海管理层塌方！俄罗斯华人被拒入国门，黑龙江中俄边境抓特务？（老北京茶馆第288集20200414）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ae8dc9cdd34db077f043207d8f2cb4598c04d31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ae8dc9cdd34db077f043207d8f2cb4598c04d31
 
 下载BT种子 [中共和世衛隱瞞疫情美參院將啟動全面調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/188e2eed2d1d24ce246880afba55cf607bcec202.torrent)
 
@@ -588,22 +596,6 @@
 下载BT种子 [憂安全風險美或撤中國電信存運營許可.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15ac15351a07014c5ac8393178df73b759588967.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15ac15351a07014c5ac8393178df73b759588967
-
-下载BT种子 [MIT口罩送達歐洲中華民國國旗登歐盟官網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99401ced8d663e0e56b5606172b2aa669aa44565.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99401ced8d663e0e56b5606172b2aa669aa44565
-
-下载BT种子 [白宮：VOA用美國納稅人的錢為中共宣傳學者：有紅色滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b0ee70035c871d923dc35e8bb495d69741c6c2b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b0ee70035c871d923dc35e8bb495d69741c6c2b
-
-下载BT种子 [武漢解封居民仍感絕望沒工作沒收入.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7d2a3359ee3f606962fa2661d408e488461cf9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b7d2a3359ee3f606962fa2661d408e488461cf9
-
-下载BT种子 [山東大學生武漢做安保見證了武漢疫情之慘烈親見老人沒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0946016a9bb5b7b75296523d73bcc5b83c12dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f0946016a9bb5b7b75296523d73bcc5b83c12dc
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
