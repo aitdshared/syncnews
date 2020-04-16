@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I5R7TH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MGmlBo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共疫情大外宣遇挫駐法大使被召見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/239085daf56bcce285c705b2a44e426c40608659.torrent)
+
+磁力链接 magnet:?xt=urn:btih:239085daf56bcce285c705b2a44e426c40608659
 
 下载BT种子 [川普指民主黨阻官員任職痛批“美國之音”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc7f2c7d9c0d14267379610efea853118222885d.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【环球直击】4月11日完整版(1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e65f9f72cb077d2507cfa7a906bf31f70f45ad2f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e65f9f72cb077d2507cfa7a906bf31f70f45ad2f
-
-下载BT种子 [石濤.News》「陳平再專訪-呼籲習近平：留得英名否則萬世罵名」中美再也回不去了全球索賠越來越多大蕭條在即還權於民-唯一生路「陳平已失去與習近平的聯繫渠道被堵塞」紅二代四分五裂（1104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71c637c592d041e542615f4f7dc5c9e534d36d51.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71c637c592d041e542615f4f7dc5c9e534d36d51
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
