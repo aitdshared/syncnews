@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5euQJF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xixpz6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普海湖莊園被迫辭退560名員工」美參議員提出一雙法案：涉及審查隱瞞打壓‘吹哨人“等中共官員”凍結在美資產簽證等剝奪中共國「主權豁免權」美國民眾可向中共國提出巨額索賠（1504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6777c5053f97cfccce60d58dd6bda7b3374d5a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d6777c5053f97cfccce60d58dd6bda7b3374d5a2
 
 下载BT种子 [中国网民留言羞辱中共，愤怒冲破恐惧的临界点要到了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58a15e04e6f106ca0879033626526fcc52e14197.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [中共拉攏非洲掌控WHO前駐非醫師揭密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/920151c2ca15dc393f45f62171e84b4fca1cd17a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:920151c2ca15dc393f45f62171e84b4fca1cd17a
-
-下载BT种子 [面对全球“去中国化”,习近平这一心理特征极为致命;世卫组织陷入追责风暴(政论天下第149集20200411)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61b7faffa4e7ee58f7cdb01f9e098237925379d3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:61b7faffa4e7ee58f7cdb01f9e098237925379d3
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
