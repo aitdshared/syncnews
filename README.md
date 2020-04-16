@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YbzabK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I5R7TH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普指民主黨阻官員任職痛批“美國之音”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc7f2c7d9c0d14267379610efea853118222885d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc7f2c7d9c0d14267379610efea853118222885d
 
 下载BT种子 [美議員提案﹕中共需對疫情受害者負責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47237cb7883d4525ddb5f9e730eb6b64e7dd91c5.torrent)
 
@@ -588,14 +592,6 @@
 下载BT种子 [石濤.News》「陳平再專訪-呼籲習近平：留得英名否則萬世罵名」中美再也回不去了全球索賠越來越多大蕭條在即還權於民-唯一生路「陳平已失去與習近平的聯繫渠道被堵塞」紅二代四分五裂（1104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71c637c592d041e542615f4f7dc5c9e534d36d51.torrent)
 
 磁力链接 magnet:?xt=urn:btih:71c637c592d041e542615f4f7dc5c9e534d36d51
-
-下载BT种子 [《石濤聚焦》「中共國“海軍神器”-075兩棲登陸艦黑煙滾滾著火了」4.8逾越節——武漢解封-常務開會4.9火箭炸了4.10軍艦燒了-網傳：萬寶路火柴點雪茄順手把艦艇點著了（1104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d7d407211ccc15245be815a6a95a555b7f09438.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d7d407211ccc15245be815a6a95a555b7f09438
-
-下载BT种子 [【蕭茗訪談】台灣如何控制中共病毒義大利的防疫犯了哪些錯誤？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbec03e816ebb556692bdce4516a51e7901f5400.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dbec03e816ebb556692bdce4516a51e7901f5400
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
