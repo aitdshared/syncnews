@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jcE1FU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h1c6Lu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】美停世卫经费并追责震慑其他国际组织.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6969f1fa7df82d9d3888c998422a932152256da.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6969f1fa7df82d9d3888c998422a932152256da
+
+下载BT种子 [【禁闻】蓬佩奥：美国寻求从根本上改变WHO.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d6f4533b275601f94304e321387c9267e51d6b3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8d6f4533b275601f94304e321387c9267e51d6b3
+
+下载BT种子 [【禁闻】中共领馆游说“点赞”惹怒美参议员.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0554e6492b77cf3cc3959ad8b765c8530e55fdd7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0554e6492b77cf3cc3959ad8b765c8530e55fdd7
+
+下载BT种子 [【禁闻】俄罗斯华人回国避疫黑龙江悬赏抓捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fd9b20ea971fe0e1d42d8c928dba9da44953b81.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0fd9b20ea971fe0e1d42d8c928dba9da44953b81
+
+下载BT种子 [【禁闻】痛失慈母黄冈人要吿中共隐匿疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b78897e51f0824143e80532121cdbac366e0f381.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b78897e51f0824143e80532121cdbac366e0f381
+
+下载BT种子 [【禁闻】4月15日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b4526150f0dbd1ad05bc81dff9eb27202f07f72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6b4526150f0dbd1ad05bc81dff9eb27202f07f72
 
 下载BT种子 [【禁闻】4月15日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034a487ac06661752958a5006cd6df2756f0a43e.torrent)
 
