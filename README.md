@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w6K1ZK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Meqvr2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [海內外事證頻傳，病毒直撲中共而來？上百國際名人連署，譴責中共隱匿疫情哈爾濱疫情再起（2020.4.17）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80f6abdc84452fc615cc68651ea9410c8de6c10a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:80f6abdc84452fc615cc68651ea9410c8de6c10a
 
 下载BT种子 [【全球新闻】日本实施全国紧急状态美国疫情过高峰期莫华伦确诊（4月16日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e73c90fab7e5ab91fa16169fef0bccd6c3917625.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [日本疫情嚴峻萬人空巷減少出門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ead12113d23b09effcd8cade9bf566a84053981.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9ead12113d23b09effcd8cade9bf566a84053981
-
-下载BT种子 [疫情衝擊外貿訂單中國最大的小商品市場義烏商城空無一人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d238df944cd492a4a0e0f5f144c17c0c98eb6a04.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d238df944cd492a4a0e0f5f144c17c0c98eb6a04
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
