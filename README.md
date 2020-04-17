@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q6Almi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gUcGpY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球超過220萬確診日本呼籲調查世衛多國對中共表達不滿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91a96efe198f8cf0b87b3eed1e87979d9e636d9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b91a96efe198f8cf0b87b3eed1e87979d9e636d9
+
+下载BT种子 [哈爾濱疫情告急傳出一小區有男子突然倒地還有一位確診婦女跳樓自殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cec7421eeae8eda06f2b56a925b786c04722f8f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cec7421eeae8eda06f2b56a925b786c04722f8f
+
+下载BT种子 [武漢突改確診及死亡人數各界質疑動機被認為中共仍掩蓋真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec8e2bd51647f4c73bc8351150499d8dcf61bfe9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec8e2bd51647f4c73bc8351150499d8dcf61bfe9
+
+下载BT种子 [中共五毛與泰國網民爆發對壘戰亞洲9國網民組成「奶茶聯盟」聯手圍堵五毛網軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/271780cd3f5d521f56f7215cf5460ce8e27cefcf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:271780cd3f5d521f56f7215cf5460ce8e27cefcf
 
 下载BT种子 [【中國禁聞】4月16日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/328f113a06c49625ca4348c411f7ebd9dcec9b0d.torrent)
 
@@ -593,17 +609,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ee06ea9f577f71eacd01f32c964b737dadf1d06d
 
-下载BT种子 [中共對上報疫情批「政治覺悟不高」大陸財新記者蕭輝手記流傳網路被刪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/823015eb1a2d92614fc0c52939ea9dbdbdd803bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:823015eb1a2d92614fc0c52939ea9dbdbdd803bd
-
 下载BT种子 [疫情中紐約人賈維茨餐飲服務自願者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1cd16419d29c4dca78c7b7809493eaf9d8af8a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1cd16419d29c4dca78c7b7809493eaf9d8af8a0
-
-下载BT种子 [紐約帝國大廈復活節彩燈祈求神幫助美國度過最艱難時期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1dce5a5dd3fd339d272bc825b5cfe9dd6927e74.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1dce5a5dd3fd339d272bc825b5cfe9dd6927e74
 
 下载BT种子 [《石濤.News》「受難日梵蒂岡教宗的孤影：響起成龍的吶喊‘中國加油’」網友：慘啦！這回真的-在劫難逃啦！（1304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fea339c611c2f905c790d89873438559bb3b77c.torrent)
 
