@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7t2mj9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cCPrLS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普：與習近平通話談到‘武漢病毒實驗室’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df5cd629ea9961242756ae7b4810fabe7418f301.torrent)
+
+磁力链接 magnet:?xt=urn:btih:df5cd629ea9961242756ae7b4810fabe7418f301
 
 下载BT种子 [川普：將分三階段重啓美國經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/378333746c70ee007b4f63aa10a672adc8470795.torrent)
 
@@ -605,17 +609,9 @@
 
 磁力链接 magnet:?xt=urn:btih:4db77756a5e7aaf8bad0d465c7de1619e3ad024e
 
-下载BT种子 [【环球直击】义乌商城空无一人大陸劳工抗议潮再起非裔人士遭中共驱赶(4月13日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b185317f3c84ad6b18abecce0005195d6ad93f58.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b185317f3c84ad6b18abecce0005195d6ad93f58
-
 下载BT种子 [【重播】4.13紐約州中共肺炎疫情新聞發布會新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee06ea9f577f71eacd01f32c964b737dadf1d06d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ee06ea9f577f71eacd01f32c964b737dadf1d06d
-
-下载BT种子 [疫情中紐約人賈維茨餐飲服務自願者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1cd16419d29c4dca78c7b7809493eaf9d8af8a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c1cd16419d29c4dca78c7b7809493eaf9d8af8a0
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
