@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DVaD0u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DdUzqb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】香港处高危之地却疫情轻微的四大原因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70669b72e79ff9a16c7d844df0f0566e4ceba931.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70669b72e79ff9a16c7d844df0f0566e4ceba931
 
 下载BT种子 [【禁闻】4月16日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd316a41ffcf9612b688c25c879059052a6edc25.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【重磅】绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？（老北京茶馆第286集20200412）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4095c8f57d277e30abbe98fba0d47f44fd86997.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4095c8f57d277e30abbe98fba0d47f44fd86997
-
-下载BT种子 [【环球直击】4月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/194c485a7b20e82a7acf9aa3e9f0c684e279d7bb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:194c485a7b20e82a7acf9aa3e9f0c684e279d7bb
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
