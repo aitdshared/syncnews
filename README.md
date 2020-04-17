@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gUcGpY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZQzo8U)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [澳洲參議員：應就疫情向中共追責並索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e16714d43bd9c40b886b3751805809bbd6e8b0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:66e16714d43bd9c40b886b3751805809bbd6e8b0
 
 下载BT种子 [全球超過220萬確診日本呼籲調查世衛多國對中共表達不滿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91a96efe198f8cf0b87b3eed1e87979d9e636d9.torrent)
 
@@ -601,10 +605,6 @@
 
 磁力链接 magnet:?xt=urn:btih:b185317f3c84ad6b18abecce0005195d6ad93f58
 
-下载BT种子 [全球超過186萬人被確診約翰遜出院檢測陰性巴西97歲老人康復.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ef6029ccf36dd284012f3b1e3482a2a5c31af96.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6ef6029ccf36dd284012f3b1e3482a2a5c31af96
-
 下载BT种子 [【重播】4.13紐約州中共肺炎疫情新聞發布會新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee06ea9f577f71eacd01f32c964b737dadf1d06d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ee06ea9f577f71eacd01f32c964b737dadf1d06d
@@ -612,14 +612,6 @@
 下载BT种子 [疫情中紐約人賈維茨餐飲服務自願者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1cd16419d29c4dca78c7b7809493eaf9d8af8a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1cd16419d29c4dca78c7b7809493eaf9d8af8a0
-
-下载BT种子 [《石濤.News》「受難日梵蒂岡教宗的孤影：響起成龍的吶喊‘中國加油’」網友：慘啦！這回真的-在劫難逃啦！（1304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fea339c611c2f905c790d89873438559bb3b77c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8fea339c611c2f905c790d89873438559bb3b77c
-
-下载BT种子 [大疫下中共仍抓緊維穩刪帖員透露：中國網站日刪萬貼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad00cfd32023c6007f137b233e260006e15a9016.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad00cfd32023c6007f137b233e260006e15a9016
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
