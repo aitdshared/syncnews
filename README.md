@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UiClzT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qmwwxY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】哈尔滨出现随地倒和患者自杀武汉突改确诊及死亡人数(4月17日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d95744246cd270c7b0f2f28c23ab387a6ab7e428.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d95744246cd270c7b0f2f28c23ab387a6ab7e428
+
+下载BT种子 [【蕭茗訪談】章家敦：疫情在夏天不一定消失對中國經濟影響將持續企業會走掉供應鏈受到衝擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24af28720c2ce8ab5ca54579120bc2fd69ce16ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24af28720c2ce8ab5ca54579120bc2fd69ce16ef
+
+下载BT种子 [《石濤聚焦》「法國諾貝爾醫學獎得主呂克：中共-武漢病毒為人造」源自武漢P4實驗室原因—學巫術的小屁孩兒把碟子弄兒翻了「大自然神奇力量剔除了人為的因素」大流行於人類（1704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c99d671d59f09af515ddeba1b0544024605add9e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c99d671d59f09af515ddeba1b0544024605add9e
 
 下载BT种子 [紐約市民每晚七點為醫護人員祝福路上房頂上窗台上響起掌聲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23da42f3aa532619f3f63323593700531e6e3db6.torrent)
 
@@ -600,18 +612,6 @@
 下载BT种子 [台海骤紧，“珍珠港时刻”逼近？“群聚传播风险”引中非友谊广州翻船（文昭谈古论今20200413第734期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2653ce4fadd7e94cc6f1d15e498253d4d5eeb3f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2653ce4fadd7e94cc6f1d15e498253d4d5eeb3f0
-
-下载BT种子 [台海骤紧，“珍珠港时刻”逼近？“群聚风险”引中非友谊广州翻船（文昭谈古论今20200413第734期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35f77a17505d69675397f55c201a2ff583e585b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35f77a17505d69675397f55c201a2ff583e585b0
-
-下载BT种子 [【禁闻】在俄华人遭驱赶回国又被拒哪里才是家？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f4f6fe1ec85727b5c73cc5a6f9774a1f803097e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7f4f6fe1ec85727b5c73cc5a6f9774a1f803097e
-
-下载BT种子 [军心不稳，习近平出招防变！另一种索赔，非洲要求中国免债。辽宁号有动静.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/993ed9f10b1b65091676924cfce4b58ad3f60246.torrent)
-
-磁力链接 magnet:?xt=urn:btih:993ed9f10b1b65091676924cfce4b58ad3f60246
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
