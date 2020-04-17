@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cCPrLS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3trO3s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「高院駁回彈劾韓國瑜投票6月6日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bcf3d611147058131f261379f90a2a0f6f104bc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6bcf3d611147058131f261379f90a2a0f6f104bc
 
 下载BT种子 [《石濤聚焦》「川普：與習近平通話談到‘武漢病毒實驗室’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df5cd629ea9961242756ae7b4810fabe7418f301.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【禁闻】订单泡汤复工无望中国爆停工潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4db77756a5e7aaf8bad0d465c7de1619e3ad024e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4db77756a5e7aaf8bad0d465c7de1619e3ad024e
-
-下载BT种子 [【重播】4.13紐約州中共肺炎疫情新聞發布會新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee06ea9f577f71eacd01f32c964b737dadf1d06d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee06ea9f577f71eacd01f32c964b737dadf1d06d
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
