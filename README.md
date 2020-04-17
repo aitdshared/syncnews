@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Meqvr2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p6NYbv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月17日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cca9bbaf370162957fb7cddd41a51a596c54095.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6cca9bbaf370162957fb7cddd41a51a596c54095
 
 下载BT种子 [海內外事證頻傳，病毒直撲中共而來？上百國際名人連署，譴責中共隱匿疫情哈爾濱疫情再起（2020.4.17）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80f6abdc84452fc615cc68651ea9410c8de6c10a.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [《石濤聚焦》「班農推特帳號-作戰室今朝10點被封」推特沒有給出任何解釋是最早警告⚠️美國人中共病毒-武漢肺炎的媒體「只有2.2萬粉絲的班農為什麼讓中共如此懼怕？」（1304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cdb228209651bf8d606ee882e7f17bb68a3b6fbf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cdb228209651bf8d606ee882e7f17bb68a3b6fbf
-
-下载BT种子 [日本疫情嚴峻萬人空巷減少出門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ead12113d23b09effcd8cade9bf566a84053981.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ead12113d23b09effcd8cade9bf566a84053981
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
