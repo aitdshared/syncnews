@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7crCqq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Qrgk7s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [经济停摆，失业暴增，海量债务正在快速吸干中国人的财富，欠债迟早要还的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d035b254a2b595e51bc42a66b43f437955ac0cc1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d035b254a2b595e51bc42a66b43f437955ac0cc1
 
 下载BT种子 [💢國務院絕密文件外洩？派48國安密捕港人並送中，重者開槍！黑龍江城市大量救護車警車聚集！北京女開車猝死，南北頻現新病例；病毒來源，美軍透露新發現！農科院：非洲蝗蟲可能留在中國新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28edcf55eabe43b8facd095ba3a296b2f21e7f5d.torrent)
 
