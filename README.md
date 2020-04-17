@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rUaBJR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ii8TGP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共收護照，美國發救濟；習近平底線思維與中國人的斯德哥爾摩綜合症；遼寧號來了，台灣就安全了（江峰漫談20200416第157期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf0529a22efb698941656856a0bfca220dabcfa5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf0529a22efb698941656856a0bfca220dabcfa5
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十五回燃燈議破十絕陣」燃燈乃雷祖佛祖流源也文殊口吐金蓮法無邊開殺戒命該如此皆定數（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a76a62cd10640b3a19933afea0313464ada2096.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [大疫下中共仍抓緊維穩中國網站刪帖員透露：日刪萬貼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91c3cbdb3dd47ae23183ff18c2fd8a4b9be40074.torrent)
 
 磁力链接 magnet:?xt=urn:btih:91c3cbdb3dd47ae23183ff18c2fd8a4b9be40074
-
-下载BT种子 [【美國思想領袖】中國問題首席戰略家羅伯特·斯伯丁將軍：美國最大的危機就是忽略了中共的本質！中共靠什麼滲透西方？如何保護自己免受中共掠奪？台灣大選證明中國人可以有民主！大紀元新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4735a86afec849a04db892163b71e60e5a432877.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4735a86afec849a04db892163b71e60e5a432877
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
