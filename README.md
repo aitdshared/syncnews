@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qmwwxY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kV00kG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共还在核试验，折射“武统”短板；上调病逝数，习近平压力扛不住了（文昭谈古论今20200417第736期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3141c0e256c2bb417c6ff45b7785827949d7001b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3141c0e256c2bb417c6ff45b7785827949d7001b
 
 下载BT种子 [【环球直击】哈尔滨出现随地倒和患者自杀武汉突改确诊及死亡人数(4月17日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d95744246cd270c7b0f2f28c23ab387a6ab7e428.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [政府发钱和强制消费,为什么两个我都不喜欢频道开通一周年感言,点评江峰,文昭和萧茗的自媒体频道(政论天下第150集20200413)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97d5540605da3b9c60608018994d58e31cee191d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:97d5540605da3b9c60608018994d58e31cee191d
-
-下载BT种子 [台海骤紧，“珍珠港时刻”逼近？“群聚传播风险”引中非友谊广州翻船（文昭谈古论今20200413第734期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2653ce4fadd7e94cc6f1d15e498253d4d5eeb3f0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2653ce4fadd7e94cc6f1d15e498253d4d5eeb3f0
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
