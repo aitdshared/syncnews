@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Li8VTs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w6K1ZK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】日本实施全国紧急状态美国疫情过高峰期莫华伦确诊（4月16日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e73c90fab7e5ab91fa16169fef0bccd6c3917625.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e73c90fab7e5ab91fa16169fef0bccd6c3917625
 
 下载BT种子 [【中国禁闻】4月16日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c597475b64b3b878f723fedcae948fe9e485e830.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [疫情衝擊外貿訂單中國最大的小商品市場義烏商城空無一人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d238df944cd492a4a0e0f5f144c17c0c98eb6a04.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d238df944cd492a4a0e0f5f144c17c0c98eb6a04
-
-下载BT种子 [非裔人士遭中共驅趕非盟召見大使強烈抗議中共的歧視行為.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/554606310bc6b049fd0bc3e2ad6df989d076f73a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:554606310bc6b049fd0bc3e2ad6df989d076f73a
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
