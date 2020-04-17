@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9h7SP7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GqE7aE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】向中共折腰惹祸肺炎疫情重创好莱坞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f5b5952e50bdb0553843313df4417bb9eb4bcad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7f5b5952e50bdb0553843313df4417bb9eb4bcad
 
 下载BT种子 [疫情推高美失業率聯邦撥千億小企業貸款.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6120119e6acd4ccb79368a4c0b4eebb29842be24.torrent)
 
@@ -604,14 +608,6 @@
 下载BT种子 [《石濤聚焦》「美著名投資家巴斯：中共菁英拋棄習總廣東鄧家」網傳：列舉習近平N多項罪行-外交獨裁管治個人品質「換人唯一民族與國家多出路」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4226898308390066276a459c5eef9bde2ff29259.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4226898308390066276a459c5eef9bde2ff29259
-
-下载BT种子 [《石濤聚焦》「復活節：“習兵法”橫空出世孫子兵法淪為陪襯人」網友：識別邪教騙術之教材「面對全世界的問責習包子肯定要當孫子」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1102b6f1e8004c2d2c13bbe7356963195bc71d6c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1102b6f1e8004c2d2c13bbe7356963195bc71d6c
-
-下载BT种子 [【禁闻】中共文件：610人员收入超人均水平10多倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7a8fa1007aaa49b2cb0b0e2b444349b51dd519f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7a8fa1007aaa49b2cb0b0e2b444349b51dd519f
 
 下载BT种子 [《石濤聚焦》「復活節：習近平兵法出世」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0f76a36df17165f3386dea60bda027773786aa9.torrent)
 
