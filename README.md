@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tox5Qx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xqTFRN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共强推复工大陆工厂接连离奇起火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a63b8cd4b1837b85fe247e480e55845310e6110b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a63b8cd4b1837b85fe247e480e55845310e6110b
 
 下载BT种子 [【禁闻】美国政府纾困金到账旅美华人赞办实事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a77dfbcc2da539eb622325be8fc6c80f07cb2907.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「感恩節-川普高興推文：下個禮拜我們到教堂慶祝」90%美國人不信習近平與中共脫鉤86%認同美企離開中共國美參議員「中共國必須賠償美國損失」胡錫進承認「武漢病毒代表共產主義與社會主義」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a319a705870e3644867fb21219fe47db346276.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f8a319a705870e3644867fb21219fe47db346276
-
-下载BT种子 [《石濤聚焦》「復活節：英國首相出院發表感恩詞」曾經瀕臨死亡50%的人沒有他的機會「英國剛剛退貨350萬中共國試劑並要求退款」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b00bc611e97861c788c4922d113c0028e63cce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:26b00bc611e97861c788c4922d113c0028e63cce
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
