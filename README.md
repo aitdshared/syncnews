@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OUSy6Q)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DVaD0u)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】4月16日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd316a41ffcf9612b688c25c879059052a6edc25.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dd316a41ffcf9612b688c25c879059052a6edc25
+
+下载BT种子 [【禁闻】4月16日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44348ca5d9155134bad9f31307bf68827dc60219.torrent)
+
+磁力链接 magnet:?xt=urn:btih:44348ca5d9155134bad9f31307bf68827dc60219
 
 下载BT种子 [【禁闻】向中共折腰惹祸肺炎疫情重创好莱坞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f5b5952e50bdb0553843313df4417bb9eb4bcad.torrent)
 
@@ -600,30 +608,6 @@
 下载BT种子 [【环球直击】4月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/194c485a7b20e82a7acf9aa3e9f0c684e279d7bb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:194c485a7b20e82a7acf9aa3e9f0c684e279d7bb
-
-下载BT种子 [【中国禁闻】4月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9048a58cf20fa12f1d1d62b02335fd6a30e57d93.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9048a58cf20fa12f1d1d62b02335fd6a30e57d93
-
-下载BT种子 [《石濤聚焦》「美著名投資家巴斯：中共菁英拋棄習總廣東鄧家」網傳：列舉習近平N多項罪行-外交獨裁管治個人品質「換人唯一民族與國家多出路」（1204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4226898308390066276a459c5eef9bde2ff29259.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4226898308390066276a459c5eef9bde2ff29259
-
-下载BT种子 [《石濤聚焦》「復活節：習近平兵法出世」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0f76a36df17165f3386dea60bda027773786aa9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b0f76a36df17165f3386dea60bda027773786aa9
-
-下载BT种子 [【禁闻】网友大哉问中共若解答疫情真相可大白.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9e25ff851386ebd4523f2c8b7148c7c642729b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6b9e25ff851386ebd4523f2c8b7148c7c642729b
-
-下载BT种子 [六常委沉默，习近平在高层陷于孤立？突然下手整一个人。非洲国家反目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b68ad499c3ef64eb7517a06a8d871cba4097fff0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b68ad499c3ef64eb7517a06a8d871cba4097fff0
-
-下载BT种子 [【禁闻】促美企回国库德洛政府可负担“搬家费”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bda019b03dc35474e6c40af2e044ac86a3551450.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bda019b03dc35474e6c40af2e044ac86a3551450
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
