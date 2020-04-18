@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ob2OSH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EzqsWB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《中南海厚黑学》连载（1）：一部拆解红朝统治术的独特作品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68240c967fa7913ee7ecec0ba312b902430aa989.torrent)
+
+磁力链接 magnet:?xt=urn:btih:68240c967fa7913ee7ecec0ba312b902430aa989
 
 下载BT种子 [美聯社獨家爆中共知大流行後仍隱瞞6天！病毒是否實驗室洩露？川普稱美國要徹查；北京有點熱該怎麼說才對？唐靖遠方菲熱點互動04172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/892c3fcd4f4a8a8f103e3fc96094f6e1bccbe612.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【环球直击】4月14日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f50fb94935a90bd369a4e26c937132edbe5e3a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6f50fb94935a90bd369a4e26c937132edbe5e3a0
-
-下载BT种子 [七大風險包圍籠罩中國經濟☁️；中小微企業大規模倒閉😨，中共政權棘手；疫情未散，校園爆集體感染😷（2020.4.14）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40998c3f6d24e40c33e1ee4d2cf725fb6d2048b9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40998c3f6d24e40c33e1ee4d2cf725fb6d2048b9
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
