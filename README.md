@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PzIy12)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8wuZmt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [黑龍江疫情升級官方關閉綏芬河口岸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d8d7975ed7ec6ead8cf7800f34c04fd67ffbc96.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6d8d7975ed7ec6ead8cf7800f34c04fd67ffbc96
+
+下载BT种子 [香港大抓捕泛民人士！港府被批秋後算帳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae3b0ea785223cb90f3b036983b4306d9a46e4b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae3b0ea785223cb90f3b036983b4306d9a46e4b2
+
+下载BT种子 [中共病毒疫情膠著全球45億人社交疏遠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c691ec1229927f8bea63527157aba9e43534a807.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c691ec1229927f8bea63527157aba9e43534a807
+
+下载BT种子 [內蒙古「中共病毒」和「鼠疫」疫情嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bde43faf38fa24d67c3dfb3b4f9c218d6531f6b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bde43faf38fa24d67c3dfb3b4f9c218d6531f6b5
+
+下载BT种子 [美國重啟經濟全球股市大漲中國經濟下滑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c
 
 下载BT种子 [疫情難不倒動物園遠程網絡與動物們相見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/143f082ca39860d2becbd0cd4f171c50605c75f2.torrent)
 
@@ -601,21 +621,9 @@
 
 磁力链接 magnet:?xt=urn:btih:65170af2438e84945e33a5e3ebe7cb6d30c691f6
 
-下载BT种子 [英國情報部門及政要：重估與中共關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/120c48a44c284319712ca11e06def60fac28c171.torrent)
-
-磁力链接 magnet:?xt=urn:btih:120c48a44c284319712ca11e06def60fac28c171
-
 下载BT种子 [回應華春瑩美國FCC委員卡爾揭中共謊言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4868424fab03286b41362d6765a70341aedb2a6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b4868424fab03286b41362d6765a70341aedb2a6
-
-下载BT种子 [黑龍江綏芬河疫情已確診243例中共數據顯示整個黑龍江只有78例數據造假？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d06c02841dd2995a9151d541680a7c72c418cd53.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d06c02841dd2995a9151d541680a7c72c418cd53
-
-下载BT种子 [林耶凡在牛津聯盟演講：中共思維與中共病毒（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20076743003f415408a3fb5efacbf474a9f56b06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:20076743003f415408a3fb5efacbf474a9f56b06
 
 下载BT种子 [《石濤聚焦》「崔永元：44萬中共國人為英國首相病危：點贊👍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa46c88e5130ecef971beedc3895f9be37a9bb38.torrent)
 
