@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vJaymW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/20qZnq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第九回商容九間殿死節「罵君不怕身軀碎叱主何愁劍下亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/298a422ac55a082dd65655d37f0152590240158d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:298a422ac55a082dd65655d37f0152590240158d
 
 下载BT种子 [中国社会全方面透支未来，未来的苦日子怎么熬啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d420f8e8e7ed7a3f8a01c7c30737f4e537392e5.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【百姓自拍】北京火車站出現大批白衣人和大量旅遊巴士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2b3717e26bc4173d658d224edd00bde0ea8822f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d2b3717e26bc4173d658d224edd00bde0ea8822f
-
-下载BT种子 [美國日本「硬脫鉤」，中國「世界工廠」地位不保；美航母出現疫情，國防部警告勿錯判美軍實力！美國全球撤僑有何深意？Jason蕭恩熱點互動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a8e3a8aad2f1f46b5e63f8e9b212b4e341002d3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4a8e3a8aad2f1f46b5e63f8e9b212b4e341002d3
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
