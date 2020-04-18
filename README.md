@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hcYTTV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZtOaNJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】世卫称与台湾保持交流台误导世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0
 
 下载BT种子 [【禁闻】武汉上调死亡人数网友：还是假的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05972c7990acc6cf11ae8aa23bf21a5432274020.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【微视频】金融停止输血中共比移出制造业重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ed0634ee0a7d03175473f2405b72ad4f739896.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b3ed0634ee0a7d03175473f2405b72ad4f739896
-
-下载BT种子 [【全球新闻】4月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e4f8d34ca4b2820b20fe304f2c4e47da362c477.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8e4f8d34ca4b2820b20fe304f2c4e47da362c477
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
