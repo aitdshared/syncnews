@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/45tOuV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EQc1Ap)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [❗️川普爆料❗️：中國死亡人數遠超官方數據😨；病毒從實驗室外洩，美國全面追查🔥（2020.4.18）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ceb91750d3aada6acdccf02f259332bc3aa0a28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3ceb91750d3aada6acdccf02f259332bc3aa0a28
 
 下载BT种子 [【中國禁聞】4月17日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d1b109d4945f124ac0dbda2f64e6dca1ddce344.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【中國禁聞】4月13日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42047d9a62be0816769c7748f6ab75bd0933bdf0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42047d9a62be0816769c7748f6ab75bd0933bdf0
-
-下载BT种子 [【414重播】行政院紓困振興方案-「挺農民度難關」記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/835f3f1e351a470c72b893dd3146df1e983e929c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:835f3f1e351a470c72b893dd3146df1e983e929c
 
 下载BT种子 [【重播】4.14台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e4f57b754bd0efe091437c949b79af5187faceb.torrent)
 
