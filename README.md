@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FaYCt4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zaOtdO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0e31c2b0f1d0bf82354c8b605b7ed7438df6f2a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e0e31c2b0f1d0bf82354c8b605b7ed7438df6f2a
+
+下载BT种子 [习近平图谋港台。突然给军队加薪！藏身四条密道。任志强牵动高层暗斗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bda2706eebe94b24ec4d1fada701ce9bd9e54360.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bda2706eebe94b24ec4d1fada701ce9bd9e54360
 
 下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第七回費仲計廢姜皇后「早知國破終無救空向西宮血染襟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/416a0489c10d8ccfe63da47d96df621c31d54b3f.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [【禁闻】英国情报处：疫情过后重新评估对华关系.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/896bd3da999b0509c55040d811fd9e586e854377.torrent)
 
 磁力链接 magnet:?xt=urn:btih:896bd3da999b0509c55040d811fd9e586e854377
-
-下载BT种子 [【禁闻】4月14日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1d56ceac29dae60adeb07bc38c60343999aab1f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b1d56ceac29dae60adeb07bc38c60343999aab1f
-
-下载BT种子 [【禁闻】不再沉默大陆私企老板实名控告中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1899918da32b05f68b9406399595b8f1988bf648.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1899918da32b05f68b9406399595b8f1988bf648
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
