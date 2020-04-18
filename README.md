@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9pk451)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BZyeLr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情難不倒動物園遠程網絡與動物們相見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/143f082ca39860d2becbd0cd4f171c50605c75f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:143f082ca39860d2becbd0cd4f171c50605c75f2
+
+下载BT种子 [阻中共竊關鍵技術歐盟和英國開始警覺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efb65655a4dfb47b88fc2cc1bfc79edbb604ee6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:efb65655a4dfb47b88fc2cc1bfc79edbb604ee6b
+
+下载BT种子 [英國全力研發疫苗川普再斥中共嚴重瞞報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7850a004260b86df64ca6df9929ca67326f31d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e7850a004260b86df64ca6df9929ca67326f31d8
+
+下载BT种子 [英法澳首腦開始發聲追問疫情源起中共應作出交代.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9efdf87c0d5cedaeeaa9e0e252f21defe9c7fcc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b9efdf87c0d5cedaeeaa9e0e252f21defe9c7fcc
 
 下载BT种子 [疫情相關詐騙增加紐約州打擊違法網站.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a0ad34ece728f036bed70fea92fba28af865f73.torrent)
 
@@ -604,26 +620,6 @@
 下载BT种子 [《石濤聚焦》「崔永元：44萬中共國人為英國首相病危：點贊👍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa46c88e5130ecef971beedc3895f9be37a9bb38.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fa46c88e5130ecef971beedc3895f9be37a9bb38
-
-下载BT种子 [奧斯陸論壇開講分析港台防疫成功之謎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fca7d1c5e482e31b387aa6f346e1be0ff2afdb3b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fca7d1c5e482e31b387aa6f346e1be0ff2afdb3b
-
-下载BT种子 [《石濤聚焦》「昨日記者會：川普與CBS記者激烈爭吵-關於懲罰中共國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad60b4f0080bb711c4ad39584f5235c9c060b875.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad60b4f0080bb711c4ad39584f5235c9c060b875
-
-下载BT种子 [《石濤聚焦》「大手筆：2月21日美意開始爆發中共海關即刻扣留所有郵寄海外的藥物」北京某大醫院陳醫師：造成滯留海外大陸老人失去日常藥物「陰謀：海外中國老人與慢性病患者-中共借疫情打擊美國的肉彈」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/886b75ede8346e0b69849c719f90c1184846d523.torrent)
-
-磁力链接 magnet:?xt=urn:btih:886b75ede8346e0b69849c719f90c1184846d523
-
-下载BT种子 [【中國禁聞】4月13日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42047d9a62be0816769c7748f6ab75bd0933bdf0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:42047d9a62be0816769c7748f6ab75bd0933bdf0
-
-下载BT种子 [【重播】4.14台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e4f57b754bd0efe091437c949b79af5187faceb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1e4f57b754bd0efe091437c949b79af5187faceb
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
