@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kV00kG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Yg5VLf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [一季度GDP暴跌,死亡人数突增,中共示弱意味着什么;破解中国经济增长的迷思(政论天下第152集20200417)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3769a63695030b9b55a491e41ffa1bb4b6aa4d39.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3769a63695030b9b55a491e41ffa1bb4b6aa4d39
 
 下载BT种子 [中共还在核试验，折射“武统”短板；上调病逝数，习近平压力扛不住了（文昭谈古论今20200417第736期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3141c0e256c2bb417c6ff45b7785827949d7001b.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [中南海头痛，非洲要求中国免债。军心不稳？习近平出招防变！辽宁号出动.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e323ce9a0fe7a8f2c89ea086b175ebf4b9108c10.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e323ce9a0fe7a8f2c89ea086b175ebf4b9108c10
-
-下载BT种子 [政府发钱和强制消费,为什么两个我都不喜欢频道开通一周年感言,点评江峰,文昭和萧茗的自媒体频道(政论天下第150集20200413)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97d5540605da3b9c60608018994d58e31cee191d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:97d5540605da3b9c60608018994d58e31cee191d
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
