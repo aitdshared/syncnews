@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZtOaNJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tYAo6x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】人禍！中共隱匿6天才示警釀疫情全球化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5686e54ab9f17d59f58effb1fa7276cc000a56b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5686e54ab9f17d59f58effb1fa7276cc000a56b
+
+下载BT种子 [武漢調升死亡數，葫蘆賣的什麼藥？中共又施小動作，美歐對華戰略三大轉變，反共已成主流！庚子賠款將重演，32年姐妹關係掰了；戰狼外交有原因？有一事令習驚懼！【新聞看點李沐陽04.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/655b27f781aadadebfa8d7231fcf1e04145175af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:655b27f781aadadebfa8d7231fcf1e04145175af
 
 下载BT种子 [【禁闻】世卫称与台湾保持交流台误导世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0.torrent)
 
@@ -612,10 +620,6 @@
 下载BT种子 [🈲️超4千病床！黑龍江爆疫情，綏芬河重災方艙啟動，滿洲里嚴重；河北邢台緊急封閉；中共黨官染疫瞞3個月；央視推習兵法防疫，媲美孫子；江蘇反間諜法鼓勵舉報；美疫情趨穩，議重啓經濟新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1729182c36d3c72aaa866645d3660d621c4ca91.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1729182c36d3c72aaa866645d3660d621c4ca91
-
-下载BT种子 [【微视频】金融停止输血中共比移出制造业重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ed0634ee0a7d03175473f2405b72ad4f739896.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3ed0634ee0a7d03175473f2405b72ad4f739896
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
