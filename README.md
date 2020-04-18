@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lnOyzr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gl0s5a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc52c892e041eeda7a5fc683a2365d62368d4f43.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bc52c892e041eeda7a5fc683a2365d62368d4f43
 
 下载BT种子 [习近平突受高捧，隐秘如同朴槿惠？政治局定下一件事。北约戒备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/686abed2e80a64fb6c8b9d34916cfdc510e4e2bd.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【禁闻】中共官方首次披露有官员被确诊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/afae30df00acb7f5f871541fafaf7a790ff31686.torrent)
 
 磁力链接 magnet:?xt=urn:btih:afae30df00acb7f5f871541fafaf7a790ff31686
-
-下载BT种子 [【禁闻】英相染疫终出院与中共关系引关注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3674a9f4204b3b3f83a91e9f892093486475bcce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3674a9f4204b3b3f83a91e9f892093486475bcce
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
