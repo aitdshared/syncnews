@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oMuGrt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1jOWlA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大疫下的紐約唐人街冷清之中有生機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01de82451e5efb3179d58819f5f06576fad17694.torrent)
+
+磁力链接 magnet:?xt=urn:btih:01de82451e5efb3179d58819f5f06576fad17694
+
+下载BT种子 [台灣首次有軍艦官兵確診涉3軍艦官兵恐釀700多人召回集中檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a5a40fc104f4c585b4cd3640461dbf0c24ee062.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5a5a40fc104f4c585b4cd3640461dbf0c24ee062
+
+下载BT种子 [電召車司機失業紐約出租車管局參加免費餐項目司機就業送餐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86a0f4f2f193dbe711b84c9eaafa9ab13913abae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:86a0f4f2f193dbe711b84c9eaafa9ab13913abae
 
 下载BT种子 [黑龍江疫情升級官方關閉綏芬河口岸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d8d7975ed7ec6ead8cf7800f34c04fd67ffbc96.torrent)
 
@@ -608,26 +620,6 @@
 下载BT种子 [【重播】414紐約州中共肺炎疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db48d7a5d65faf06dc0b5f784ee579ac0aedd537.torrent)
 
 磁力链接 magnet:?xt=urn:btih:db48d7a5d65faf06dc0b5f784ee579ac0aedd537
-
-下载BT种子 [疫情簡報會川普：將決定何時重啟經濟批評媒體的不實報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2eb6427adbe3fabd69532b15375f5cdb9c972056.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2eb6427adbe3fabd69532b15375f5cdb9c972056
-
-下载BT种子 [全球近2百萬確診多國再延長限制令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/696e890226bdd9d101fe4a965a4669612d2870f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:696e890226bdd9d101fe4a965a4669612d2870f7
-
-下载BT种子 [大陸企業接連被取消外貿訂單民企老闆怒砸機器放火燒工廠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65170af2438e84945e33a5e3ebe7cb6d30c691f6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:65170af2438e84945e33a5e3ebe7cb6d30c691f6
-
-下载BT种子 [回應華春瑩美國FCC委員卡爾揭中共謊言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4868424fab03286b41362d6765a70341aedb2a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b4868424fab03286b41362d6765a70341aedb2a6
-
-下载BT种子 [《石濤聚焦》「崔永元：44萬中共國人為英國首相病危：點贊👍」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa46c88e5130ecef971beedc3895f9be37a9bb38.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa46c88e5130ecef971beedc3895f9be37a9bb38
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
