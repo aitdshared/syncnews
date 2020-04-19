@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zeDL20)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sINRKP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「記者會：你很憤怒中共國？川普：是很生氣！」更言‘還是蓄意投毒’他們應當讓我們進入調查‘電影「但丁密碼」現實版：中共WHO科學瘋子無神論的菁英「庚子賠款現實版或開打」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e6bef801a5d43bc1074b60c156943cd732cfbc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e6bef801a5d43bc1074b60c156943cd732cfbc6
 
 下载BT种子 [《石濤聚焦》「突發：公安部極具實力副部長-孫力軍被抓背景奇深」昨日香港大圍捕主導者即刻被抓澳洲公共衛生碩士-主理全國疫情安全孟建柱秘書-王岐山-任志強被查或江曾勢力？（1904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf8ca76e7b7dc8bfcf5685cce44369528523a4f1.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【重播】4.5台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b59e1ff752130ac35effb3f6b207b3ec2e8ca91d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b59e1ff752130ac35effb3f6b207b3ec2e8ca91d
-
-下载BT种子 [川普老辣，嗆美國之音前先做這事兒；曝光王又又的鳳凰衛視在美秘密行動（江峰漫談20200415第155期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/054d9a3272c52e3c549a4cc0a14e5f86b2038cb3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:054d9a3272c52e3c549a4cc0a14e5f86b2038cb3
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
