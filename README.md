@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JWedgk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kZEnii)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [港警秋後算賬大搜捕，王全璋隔離期滿仍不能回京，川普說中國人數不可能少於美國，武漢招募流氓做社工，趙立堅再叫板，多國元首砲轟；病毒耐高溫，天氣炎熱熱不死病毒【新聞看點李沐陽04.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3681228d17a6df972e47f00c04e4ad81277eed7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e3681228d17a6df972e47f00c04e4ad81277eed7
 
 下载BT种子 [《石濤聚焦》「上海衛視記者白宮稱‘台灣人’欺騙美國總統川普：送他出門」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eba1a5bcfac628cff8ed56b2cd18869c1d18248f.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】口罩熔喷布价格翻20倍小作坊大量生产.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef6896046098e5edb244b10f2e788b70e695347d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ef6896046098e5edb244b10f2e788b70e695347d
-
-下载BT种子 [【禁闻】英国情报处：疫情过后重新评估对华关系.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/896bd3da999b0509c55040d811fd9e586e854377.torrent)
-
-磁力链接 magnet:?xt=urn:btih:896bd3da999b0509c55040d811fd9e586e854377
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
