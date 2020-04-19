@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d98NxR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JUhycB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第四十五回燃燈議破十絕陣」‘風吼陣’燃燈無奈另求仙散宜生險失“定風珠”天數下方弼命喪風吼卻封仙慈航萬年修行也犯塵（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00820fba62c38b2f1cbe5895c4bb71f565cf7be1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:00820fba62c38b2f1cbe5895c4bb71f565cf7be1
 
 下载BT种子 [《石濤聚焦》「第二輪似乎登陸日本新加坡哈爾濱綏芬河廣州多區成疫區」網傳：大佬們全部移住北京西山-玉泉山承認二次爆發（1804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6afed6f30d6425c54933276ff857fba84a0b35a4.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [IMF中共病毒重創世界經濟堪比世紀大蕭條.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2669c812ec800bf4fcc656789dc45c7d21494fb9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2669c812ec800bf4fcc656789dc45c7d21494fb9
-
-下载BT种子 [川普宣佈：美國停止資助世界衛生組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e60f72a1a4b889481a915cecaf8eb8f02f6abbc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e60f72a1a4b889481a915cecaf8eb8f02f6abbc
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
