@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3rjmPz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TzleCx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [郝海东微博戳到中共痛处，中国人的大规模清醒只剩一层窗户纸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8670d4da82ba4fe81d45031bc225067177b8f3b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a8670d4da82ba4fe81d45031bc225067177b8f3b
+
+下载BT种子 [【重播】（中文同聲翻譯）4.18中共病毒疫情美國政府新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3797f5a9578476c7fe2d606f588027c2829b8c14.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3797f5a9578476c7fe2d606f588027c2829b8c14
+
+下载BT种子 [【華府衝擊播】專訪律所代表：中共掩蓋疫情需做最大賠償.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/768362f94db7dbda80141ef40b5683f7bf87f77a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:768362f94db7dbda80141ef40b5683f7bf87f77a
+
+下载BT种子 [中共媒體張經義白宮撒謊掩蓋身份川普下令趕出去.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/212fe126384001bc0525a34ad55d54047c44cf96.torrent)
+
+磁力链接 magnet:?xt=urn:btih:212fe126384001bc0525a34ad55d54047c44cf96
+
+下载BT种子 [美190億補貼農民死亡數比預估大幅下降.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dbc824c0ce9a1c419ada690dcbcb531c65209c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9dbc824c0ce9a1c419ada690dcbcb531c65209c9
 
 下载BT种子 [【Jason快評】世界疫情嚴重地區的感染比例夠羣體免疫了嗎？中美爲何都在修改死亡人數？爲後疫情世界做準備...熱點互動04182020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf81108781d573cf162ebcf55c13a99fcb96d27e.torrent)
 
@@ -600,26 +620,6 @@
 下载BT种子 [【唐靖遠快評】習近平「換人」傳聞會否成真？美高官稱「珍珠港時刻」暗指美國處於備戰狀態熱點互動04142020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ff9a36a2735a7a562d29eaba91429084d75006.torrent)
 
 磁力链接 magnet:?xt=urn:btih:40ff9a36a2735a7a562d29eaba91429084d75006
-
-下载BT种子 [《濤哥侃封神》『封神演義第四十四回子牙魂游昆侖山』老子出手赤精子護身奪草人太極圖遭劫失手‘落魂陣‘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29139dce3091a52f1650dda1c352c3f67ab7258a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:29139dce3091a52f1650dda1c352c3f67ab7258a
-
-下载BT种子 [中領館私信美國州議長求表揚議長怒斥「腦殘」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/266262056550b01a5c958b56902a41e91b6c4627.torrent)
-
-磁力链接 magnet:?xt=urn:btih:266262056550b01a5c958b56902a41e91b6c4627
-
-下载BT种子 [中国华为任正非上海管理层塌方！俄罗斯华人被拒入国门，黑龙江中俄边境抓特务？（老北京茶馆第288集20200414）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ae8dc9cdd34db077f043207d8f2cb4598c04d31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0ae8dc9cdd34db077f043207d8f2cb4598c04d31
-
-下载BT种子 [中共和世衛隱瞞疫情美參院將啟動全面調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/188e2eed2d1d24ce246880afba55cf607bcec202.torrent)
-
-磁力链接 magnet:?xt=urn:btih:188e2eed2d1d24ce246880afba55cf607bcec202
-
-下载BT种子 [美國疫情趨勢放緩歐洲英法事態仍緊張.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/775f4450713808ed736868632b51d87964a77fc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:775f4450713808ed736868632b51d87964a77fc5
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
