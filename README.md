@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JUhycB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/g6B6D0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【Jason快評】世界疫情嚴重地區的感染比例夠羣體免疫了嗎？中美爲何都在修改死亡人數？爲後疫情世界做準備...熱點互動04182020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf81108781d573cf162ebcf55c13a99fcb96d27e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf81108781d573cf162ebcf55c13a99fcb96d27e
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十五回燃燈議破十絕陣」‘風吼陣’燃燈無奈另求仙散宜生險失“定風珠”天數下方弼命喪風吼卻封仙慈航萬年修行也犯塵（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00820fba62c38b2f1cbe5895c4bb71f565cf7be1.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [美國疫情趨勢放緩歐洲英法事態仍緊張.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/775f4450713808ed736868632b51d87964a77fc5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:775f4450713808ed736868632b51d87964a77fc5
-
-下载BT种子 [IMF中共病毒重創世界經濟堪比世紀大蕭條.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2669c812ec800bf4fcc656789dc45c7d21494fb9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2669c812ec800bf4fcc656789dc45c7d21494fb9
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
