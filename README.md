@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/K1Vrd2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aVbNy1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港为何突发大抓捕中共破罐子破摔能摔出什么(政论天下第153集20200419)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff2a7ec555015d03e4dd08dab5016c38f6f8a262.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff2a7ec555015d03e4dd08dab5016c38f6f8a262
 
 下载BT种子 [【禁闻】4月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591e180c7c48dbea4da789370d0fe690d92f514c.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《石濤.News》「網傳4月8日常委會習近平發言」“任志強背後一定有人我知道是誰”全球爆發2點最可怕“向我追責和外貿被迫停工”“黨內沒反黨的肯定有反習集團”「我這樣幹被逼無奈」（1504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5519ba16a24c43239700082f76c66025117abed5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5519ba16a24c43239700082f76c66025117abed5
-
-下载BT种子 [【中国禁闻】3月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/853898f6244f4f89fd676360004d9c7754038359.torrent)
-
-磁力链接 magnet:?xt=urn:btih:853898f6244f4f89fd676360004d9c7754038359
-
-下载BT种子 [【415重播】台政院紓困振興方案聚焦藝文業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fd49528d70a3092f823a0b8efda85cfe05a911a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0fd49528d70a3092f823a0b8efda85cfe05a911a
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
