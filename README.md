@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3WVyu6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VhY2Ej)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7debda9f4d1bc43703b40ba2f2b9071fec64d6f5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7debda9f4d1bc43703b40ba2f2b9071fec64d6f5
 
 下载BT种子 [【新闻周刊】第728期（2020418）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b35f5b08c69bbab15f1acdecff9f2984017242.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【中国禁闻】4月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea1dcae66f53ceb98df9faffa999760136ce42de.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ea1dcae66f53ceb98df9faffa999760136ce42de
-
-下载BT种子 [《石濤聚焦》「突發：川普剛剛宣佈中止WHO所有資金」全球確診達200萬美死亡創新高2349川普明稱「我根本不能接受：WHO只顧及中共臉面按中共意願行事更聲稱中共國處理疫情透明」（1404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55895af0fc48582c2ab5fb8263b0531a6c6ffeec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55895af0fc48582c2ab5fb8263b0531a6c6ffeec
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
