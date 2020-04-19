@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/icJPpW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YfxGzo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [一周经济回顾：中共继续撒弥天大谎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/398ba631accde96179ab27b91f83c2c7fe372c70.torrent)
+
+磁力链接 magnet:?xt=urn:btih:398ba631accde96179ab27b91f83c2c7fe372c70
+
+下载BT种子 [【严真点评】外交部大实话：中共再次创造了流行病学史上精准死亡的奇迹？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a400ab31fbddf24e66ba010f0963002af3026e5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a400ab31fbddf24e66ba010f0963002af3026e5
 
 下载BT种子 [【时事小品】为何渴望回归中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8a22f9533d5effef8280a92a0850f5f16f84b47.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [【全球新闻】美国疫情趋势放缓世纪大萧条美國將启动調查中共和世卫隐瞒疫情（4月14日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edbb5692cb021372d8b4c9eebeac849ccfb88e69.torrent)
 
 磁力链接 magnet:?xt=urn:btih:edbb5692cb021372d8b4c9eebeac849ccfb88e69
-
-下载BT种子 [🚨新病毒所成立，還要建P3！李蘭娟助陣，溫州要幹啥？槍斃！黑龍江警告越境；多地緊急叫停開學；武漢賑災一人1塊，湖南發錢先扣錢，廣東企業主憤砸機器；美國疫情見頂，5.1開張？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/069a05b8bd46daf00916501dee9aa65c63f54fdb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:069a05b8bd46daf00916501dee9aa65c63f54fdb
-
-下载BT种子 [《濤哥侃封神》『封神演義第四十四回子牙魂游昆侖山』老子出手赤精子奪草人太極圖遭劫失落魂陣12金門匯西岐反殺戒共破十絕陣『道判混元曾見太極兩儀生四象鴻濛傳法又將胡人西度出函關』（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8562ae0fc6bad1ce4215db2e955dc0325de32c80.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8562ae0fc6bad1ce4215db2e955dc0325de32c80
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
