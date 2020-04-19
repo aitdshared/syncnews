@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tbVaKz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7KqiHl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共构陷金融诈骗罪名噤声武汉志愿者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c05d51221ad4a42c0b811560b4fe349e7e4e033.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c05d51221ad4a42c0b811560b4fe349e7e4e033
 
 下载BT种子 [《石濤聚焦》「社會現狀最需要孫力軍時習近平廢了他」孫履歷被刪含玄機：26局-610辦公室主任（難道習要有改變？？？）公安部港澳台辦公室主任（昨日大圍捕香港民主大佬-孫力軍授權？實際打擊習近平？）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/385dafdf6beadfc0455c1535c469bfe8f6ad73ee.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【环球直击】4月15日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/665fe3de2ff1d54950e04f8a5cc5b280b5d4d7af.torrent)
 
 磁力链接 magnet:?xt=urn:btih:665fe3de2ff1d54950e04f8a5cc5b280b5d4d7af
-
-下载BT种子 [兩岸即將開戰？😨中共有七大顧慮🤔；「台灣🇹🇼能幫忙」💪🏻國際廣告登上美媒（2020.4.15）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90277730a29c8ed9bddee3b3e9eafebd6eb40b89.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90277730a29c8ed9bddee3b3e9eafebd6eb40b89
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
