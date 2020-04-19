@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VhY2Ej)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QherQ7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「自稱‘台灣人’的上海衛視記者川普：讓他滾出去」張經義與鳳凰王又又中共菁英的『用實話騙人的體面人』被美記者稱為”中共間諜“（1804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e512d0bd16bf5bdbb4b595f5c065c176f7acf13.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e512d0bd16bf5bdbb4b595f5c065c176f7acf13
 
 下载BT种子 [【环球直击】4月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7debda9f4d1bc43703b40ba2f2b9071fec64d6f5.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [哈醫大門診五六千人長龍看病，中共抗疫代價有後遺症！揭密台灣模式的關鍵🤫！紐約一線人物特寫，美歐最壞時刻已過？為何美國確診數超高？中共的變味救濟：綑綁消費和預扣工資【新聞看點李沐陽04.14】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67e632d3d8bd8b21a52e858323b85472d77c6f71.torrent)
 
 磁力链接 magnet:?xt=urn:btih:67e632d3d8bd8b21a52e858323b85472d77c6f71
-
-下载BT种子 [【中国禁闻】4月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea1dcae66f53ceb98df9faffa999760136ce42de.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea1dcae66f53ceb98df9faffa999760136ce42de
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
