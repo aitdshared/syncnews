@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BEOc80)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qyUYdj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】中共大使抛弃旅俄华人武汉抢消费券.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65af7eb98d9821ddb22172db47e1114d063a54d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:65af7eb98d9821ddb22172db47e1114d063a54d7
 
 下载BT种子 [“國保”大總管突然栽倒，中南海急中生變；香港大搜捕民主派，是大招前奏（文昭談古論今20200420第737期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4c28a595c5196459660a634b82cf3d85749f774.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「川普海湖莊園被迫辭退560名員工」美參議員提出一雙法案：涉及審查隱瞞打壓‘吹哨人“等中共官員”凍結在美資產簽證等剝奪中共國「主權豁免權」美國民眾可向中共國提出巨額索賠（1504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6777c5053f97cfccce60d58dd6bda7b3374d5a2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d6777c5053f97cfccce60d58dd6bda7b3374d5a2
-
-下载BT种子 [中国网民留言羞辱中共，愤怒冲破恐惧的临界点要到了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58a15e04e6f106ca0879033626526fcc52e14197.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58a15e04e6f106ca0879033626526fcc52e14197
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
