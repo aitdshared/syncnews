@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/09EKg3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FIuIeH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共隐瞒疫情各国追责声浪日涨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daf4439391c067e1d84281ba8be4046b59b992c8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:daf4439391c067e1d84281ba8be4046b59b992c8
 
 下载BT种子 [突发：国保局长倒戈，习近平抢先下手！川普赶走中国记者。德国澳洲有话说.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34b0589fc7ce401ae365cb85f10e66bd1f23877.torrent)
 
@@ -609,17 +613,9 @@
 
 磁力链接 magnet:?xt=urn:btih:cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf
 
-下载BT种子 [美國「水深火熱」？中國大陸微博評論諷刺如潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98c931a8c8024ac0c4a206d07c3522fde955095f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98c931a8c8024ac0c4a206d07c3522fde955095f
-
 下载BT种子 [《石濤聚焦》「中共紅頭文件被爆光衛健委1.3已按重大疫情對待」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e664279f33d6219bee18299da789e5d134a46d35.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e664279f33d6219bee18299da789e5d134a46d35
-
-下载BT种子 [美軍確診人數超3000專家質疑中共軍隊「零感染」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f615deb3b7eec03b4828e2fb2788790982b04a9b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f615deb3b7eec03b4828e2fb2788790982b04a9b
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
