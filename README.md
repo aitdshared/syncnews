@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/654Uyq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8A9500)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第四十六回廣成子破金光陣」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84e28ada20c9e0450805d390cbe60bde8788184d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:84e28ada20c9e0450805d390cbe60bde8788184d
 
 下载BT种子 [【中国禁闻】4月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62fc2adbbdfd3539d5a087794c26054b4255196a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [全球超過201萬人感染英國經濟數百年最嚴重損失韓國如期舉行議會選舉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c728258848909c3b46c9bb37d75f92e4ed195c5e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c728258848909c3b46c9bb37d75f92e4ed195c5e
-
-下载BT种子 [川普：美國將調查世衛暫停資金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d37fef055eb11d24afe0d105dbb6e6f34f024657.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d37fef055eb11d24afe0d105dbb6e6f34f024657
 
 下载BT种子 [【环球直击】4月15日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e3d671742e7136b853b6f06908a79a8a8420256.torrent)
 
