@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vYWOgw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Z8IGpT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】哈尔滨疫情紧急民忧重蹈武汉人遭遇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7183458eb0232d71268de2630930cfb53b09f25f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7183458eb0232d71268de2630930cfb53b09f25f
+
+下载BT种子 [【禁闻】川普警告：中共故意隐瞒疫情将面临后果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/656330a01438717df19ae30c6f37640c946b34f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:656330a01438717df19ae30c6f37640c946b34f7
 
 下载BT种子 [【禁闻】中共隐瞒疫情各国追责声浪日涨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daf4439391c067e1d84281ba8be4046b59b992c8.torrent)
 
@@ -608,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「美聯社揭秘：習近平得知疫情嚴重性後第七天才宣布」隱瞞關鍵6天不知為啥？釀成人類歷史上里程碑式的大禍備忘錄：衛健委主任馬曉偉1月14日已明確“可能人傳人”但必須團結在“習近平周圍”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/952e73a014fcbf3f9e9ca6444074e24f2d218522.torrent)
 
 磁力链接 magnet:?xt=urn:btih:952e73a014fcbf3f9e9ca6444074e24f2d218522
-
-下载BT种子 [疫情致中國農產品滯銷農民虧損嚴重中共未推出任何救濟措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf
 
 下载BT种子 [《石濤聚焦》「中共紅頭文件被爆光衛健委1.3已按重大疫情對待」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e664279f33d6219bee18299da789e5d134a46d35.torrent)
 
