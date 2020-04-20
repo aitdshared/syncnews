@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FsRIC6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cpDczG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紧急会议：习家军连用六个词，喊明孙力军反习。事关最大国际话题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70d99152c85c531ae626b5cbcc9d3e53bd9c8db5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70d99152c85c531ae626b5cbcc9d3e53bd9c8db5
 
 下载BT种子 [《石濤聚焦》「世界大變：原油期貨價格歷史性跌破$0.00美元達到-$26」黑龍江宜蘭縣大雪雷鳴中世界著名投資人巴斯「香港完蛋了銀行業將瞬間崩潰有條件的港人盡可能離開香港」（2004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de04597157a46502a1efd7f6048306c911e4736e.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】俄罗斯华人回国避疫黑龙江悬赏抓捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fd9b20ea971fe0e1d42d8c928dba9da44953b81.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0fd9b20ea971fe0e1d42d8c928dba9da44953b81
-
-下载BT种子 [【禁闻】痛失慈母黄冈人要吿中共隐匿疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b78897e51f0824143e80532121cdbac366e0f381.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b78897e51f0824143e80532121cdbac366e0f381
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
