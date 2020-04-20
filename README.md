@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ICncmt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FNmmpV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [突发：国保局长倒戈，习近平抢先下手！川普赶走中国记者。德国澳洲有话说.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34b0589fc7ce401ae365cb85f10e66bd1f23877.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c34b0589fc7ce401ae365cb85f10e66bd1f23877
 
 下载BT种子 [【环球直击】4月19日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8cf3c2ea22c20a0dd8d50d4734b3202720c7423.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [《石濤聚焦》「美聯社揭秘：習近平得知疫情嚴重性後第七天才宣布」隱瞞關鍵6天不知為啥？釀成人類歷史上里程碑式的大禍備忘錄：衛健委主任馬曉偉1月14日已明確“可能人傳人”但必須團結在“習近平周圍”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/952e73a014fcbf3f9e9ca6444074e24f2d218522.torrent)
 
 磁力链接 magnet:?xt=urn:btih:952e73a014fcbf3f9e9ca6444074e24f2d218522
-
-下载BT种子 [白宮貿易顧問納瓦羅：譚德塞是中共代理人還有更多國際組織被中共掌控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e528f7008964c18869543b13a02c87df515691de.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e528f7008964c18869543b13a02c87df515691de
 
 下载BT种子 [疫情致中國農產品滯銷農民虧損嚴重中共未推出任何救濟措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb4fe9dbbe9df0c202e8a76ed1a1ef35724459bf.torrent)
 
