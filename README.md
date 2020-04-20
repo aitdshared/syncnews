@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JNXvQh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wTPMLu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】4.20台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9986e3ad958b9c06c4130e34dbead57c5c231e5a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9986e3ad958b9c06c4130e34dbead57c5c231e5a
 
 下载BT种子 [中国人回中国居然不道德，天下还有谁比中共更荒谬吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfa11c76a4267e121e89edf20f493972ee3a0ea7.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【全球新闻】4月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe7274c5cf4cebe47e56ff90f2b4b25e5dc2a6bc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fe7274c5cf4cebe47e56ff90f2b4b25e5dc2a6bc
-
-下载BT种子 [紐約男子莫名倒地😱，全球200萬染病；川普停世衛資金，安徽男子倒地抽搐，牡丹江封城？中共向美議會要「表揚」🤔；華人回家個中共不收變「偷渡」😢；天有異象：巨大日暈☀️出現【新聞看點李沐陽04.15】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b92b19ba4f9f8518d470fb8d0d0fa67d323f60ca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b92b19ba4f9f8518d470fb8d0d0fa67d323f60ca
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
