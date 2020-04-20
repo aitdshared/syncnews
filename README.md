@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8ISAyg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BDIEdx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「世界大變：原油期貨價格歷史性跌破$0.00美元達到-$26」黑龍江宜蘭縣大雪雷鳴中世界著名投資人巴斯「香港完蛋了銀行業將瞬間崩潰有條件的港人盡可能離開香港」（2004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de04597157a46502a1efd7f6048306c911e4736e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de04597157a46502a1efd7f6048306c911e4736e
 
 下载BT种子 [【环球直击】4月20日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01a24993e338949002aee91293fb5691a43c2fd8.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】美停世卫经费并追责震慑其他国际组织.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6969f1fa7df82d9d3888c998422a932152256da.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6969f1fa7df82d9d3888c998422a932152256da
-
-下载BT种子 [【禁闻】中共领馆游说“点赞”惹怒美参议员.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0554e6492b77cf3cc3959ad8b765c8530e55fdd7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0554e6492b77cf3cc3959ad8b765c8530e55fdd7
 
 下载BT种子 [【禁闻】俄罗斯华人回国避疫黑龙江悬赏抓捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fd9b20ea971fe0e1d42d8c928dba9da44953b81.torrent)
 
