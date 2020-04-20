@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F433gk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4j4gCI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62fc2adbbdfd3539d5a087794c26054b4255196a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:62fc2adbbdfd3539d5a087794c26054b4255196a
 
 下载BT种子 [《石濤.News》「公布孫力軍同時公安部表態漏睨端」港警大圍捕-孫獨斷專行武漢病毒洩漏-習嫁禍孫應對川普等西方強硬「孫力軍-反習陣營最實力」習近平最不信政法系（1904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2412548e42ab979a15435f560d99f75f2d39075b.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [全球超過201萬人感染英國經濟數百年最嚴重損失韓國如期舉行議會選舉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c728258848909c3b46c9bb37d75f92e4ed195c5e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c728258848909c3b46c9bb37d75f92e4ed195c5e
-
-下载BT种子 [加拿大小姐牛津辯論：認清中共的冷戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c0a5813a50a84e0a585901cb8e27a2d2a845834.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c0a5813a50a84e0a585901cb8e27a2d2a845834
 
 下载BT种子 [川普：美國將調查世衛暫停資金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d37fef055eb11d24afe0d105dbb6e6f34f024657.torrent)
 
