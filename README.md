@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wTPMLu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8pUKCS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月20日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a5edc94df1377e3324776669a6d1f997c375f0c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1a5edc94df1377e3324776669a6d1f997c375f0c
 
 下载BT种子 [【新唐人重播】4.20台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9986e3ad958b9c06c4130e34dbead57c5c231e5a.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【中國解密】中共利用中共病毒分裂歐洲川普譴責世衛組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12a22d16b2b5e5e65e314e462e426fcd597d5152.torrent)
 
 磁力链接 magnet:?xt=urn:btih:12a22d16b2b5e5e65e314e462e426fcd597d5152
-
-下载BT种子 [【全球新闻】4月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe7274c5cf4cebe47e56ff90f2b4b25e5dc2a6bc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fe7274c5cf4cebe47e56ff90f2b4b25e5dc2a6bc
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
