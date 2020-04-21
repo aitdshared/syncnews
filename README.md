@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/usoFFQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/68KA9l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eff1c9af9c8e1e043ad57ff4ae56dbd3fedfc006.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eff1c9af9c8e1e043ad57ff4ae56dbd3fedfc006
 
 下载BT种子 [重磅，油价暴跌到负数，原因何在？对全球冲击多大？中国房产价格会跌到负数吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ddbca12bec9569f210e3e4e684227573caca690.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【新唐人重播】416紐約州中共肺炎疫情新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8270216696c86f9c4e79348a45d6a40750f17b4e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8270216696c86f9c4e79348a45d6a40750f17b4e
-
-下载BT种子 [湖北公務員起訴政府隱瞞疫情遭約談.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b7e1b44be86c0e5b359fc1f6a84f9f79747f2c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:83b7e1b44be86c0e5b359fc1f6a84f9f79747f2c
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
