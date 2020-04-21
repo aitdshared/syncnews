@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1vuHPd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OFdmWN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】4.21紐約州中共肺炎疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1fc90531c63ad3e0112ab211e397efa3ad019c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f1fc90531c63ad3e0112ab211e397efa3ad019c7
+
+下载BT种子 [《石濤.News》「特勤局4月初抓捕孫立軍罪名“反習-政變」局長王小洪剛表態「公安姓黨」孫力軍出事時間點與任志強被調查習近平世交陳平-高調有話說「吻合無隙」中共自我崩潰之爆發點—習近平懼怕被推翻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c458096c0763131aad344c1f599d8971b925b678.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c458096c0763131aad344c1f599d8971b925b678
 
 下载BT种子 [【环球直击】4月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ea7dbb177f24346bcfb0901ecd75abb1edc544c.torrent)
 
