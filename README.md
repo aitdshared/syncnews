@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5fHAab)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kJYi5h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】421採訪香港流亡台灣林榮基前銅鑼灣書店店長遭潑紅漆恐嚇警方偵辦中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b747b78522df0398cd72b86e579eebe9ebaf845.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4b747b78522df0398cd72b86e579eebe9ebaf845
+
+下载BT种子 [孫力軍落馬，堪比王立軍出逃事件？是否與疫情有關？駐俄大使批民眾回國，“戰狼”精神哪去了？橫河Jason熱點互動04202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8283b90fc8ac6e3453e35d91adb5a05b3d103f76.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8283b90fc8ac6e3453e35d91adb5a05b3d103f76
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十六回廣成子破金光陣」金光聖母閃電之雷神無奈廣成子八卦紫壽衣法器乃境界造化太乙真人可乾坤顛倒日月互明「欲煉九還何處是震宮雷動望西成」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ba84743e912f47e3d7098b267728a918cac8bd6.torrent)
 
