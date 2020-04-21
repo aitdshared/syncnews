@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qyUYdj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OGWJP1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】港府大规模拘捕民主派人士国际谴责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a04ff6ea79722cf9be8a3ea54d4789da59e0fad3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a04ff6ea79722cf9be8a3ea54d4789da59e0fad3
 
 下载BT种子 [【微视频】中共大使抛弃旅俄华人武汉抢消费券.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65af7eb98d9821ddb22172db47e1114d063a54d7.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「港媒：中共逆向選擇‘習近平’-中共國病人」指揮WHO譚德塞對西方文明展開“超限戰”日美協助企業撤出-勢必「庚子再賠款」習氏家族被受中共蹂躪導致習總-壞話說盡壞事還沒有做絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc52c45df38509ea1f8d542088ac5694e8e327a4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dc52c45df38509ea1f8d542088ac5694e8e327a4
-
-下载BT种子 [《石濤聚焦》「川普海湖莊園被迫辭退560名員工」美參議員提出一雙法案：涉及審查隱瞞打壓‘吹哨人“等中共官員”凍結在美資產簽證等剝奪中共國「主權豁免權」美國民眾可向中共國提出巨額索賠（1504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6777c5053f97cfccce60d58dd6bda7b3374d5a2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d6777c5053f97cfccce60d58dd6bda7b3374d5a2
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
