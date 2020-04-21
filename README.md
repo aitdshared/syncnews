@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bubfVe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MpaC6S)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fdc981bb784e05576c59dd241b47a883b2df8ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fdc981bb784e05576c59dd241b47a883b2df8ae
 
 下载BT种子 [【微電影】希望的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e79611065f12f6f894e83176e57e71dd15edf46.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【微视频】要求中共免除债务不如远离它.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b71fdd2bb56ecf246362092ca92e0e42a0b38135.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b71fdd2bb56ecf246362092ca92e0e42a0b38135
-
-下载BT种子 [内外受敌！习近平图谋最后一搏：抢先开战？团派大员频现身。任志强不屈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b720d56c6ec8c57f532abb274b5fa536e116ffd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b720d56c6ec8c57f532abb274b5fa536e116ffd
 
 下载BT种子 [【新唐人重播】416紐約州中共肺炎疫情新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8270216696c86f9c4e79348a45d6a40750f17b4e.torrent)
 
