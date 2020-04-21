@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rASviT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RlvSe8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國多個州居民抗議居家防疫限制令傳染病專家福希博士：當心適得其反.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2f0bb271a87e09f6327c401a9bed39d7ff7ac31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d2f0bb271a87e09f6327c401a9bed39d7ff7ac31
+
+下载BT种子 [歐洲疫情喜憂參半南亞國家疫情仍嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de26f231d53931d0e9ad0ca273b327a55f071df5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de26f231d53931d0e9ad0ca273b327a55f071df5
+
+下载BT种子 [澳大利亞外長要求對中共隱瞞疫情進行國際調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b21b46cb1190c257251d041947a04638829b3c75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b21b46cb1190c257251d041947a04638829b3c75
+
+下载BT种子 [川普美國疫情好轉兩州率先重啓經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01ca7bbaf18f9f75bd02f4cfb572b029d53f802c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:01ca7bbaf18f9f75bd02f4cfb572b029d53f802c
 
 下载BT种子 [三峽大壩要炸？💥哈爾濱正式封城！毒霾🌫源自焚屍爐？戰狼言論再升級，砸鍋論「擊穿人性底線」；澳外長強硬發聲；中共系統培訓隱瞞疫情；雷雷欲KO方方【新聞看點李沐陽04.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9d05e67b729d805729fde41f42f27dc341f4838.torrent)
 
@@ -605,10 +621,6 @@
 
 磁力链接 magnet:?xt=urn:btih:bd9090e80e8f4b21edf1706568bed2b44135fff3
 
-下载BT种子 [疫情中韓國國會大選文在寅執政黨獲勝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2834e3c9d56a5e7aac314769a6a22ed0fade0126.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2834e3c9d56a5e7aac314769a6a22ed0fade0126
-
 下载BT种子 [湖北公務員起訴政府隱瞞疫情遭約談.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83b7e1b44be86c0e5b359fc1f6a84f9f79747f2c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:83b7e1b44be86c0e5b359fc1f6a84f9f79747f2c
@@ -616,10 +628,6 @@
 下载BT种子 [歐盟向意大利道歉德放寬限制日全國封鎖.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab66f5b9397126fd3050c764a3744447eb416d66.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ab66f5b9397126fd3050c764a3744447eb416d66
-
-下载BT种子 [蓬佩奧與楊潔篪通話強調信息透明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28aeebb8b96cf8c5cea6a116a29fd84293f60656.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28aeebb8b96cf8c5cea6a116a29fd84293f60656
 
 下载BT种子 [《石濤聚焦》「20倍數量的蝗蟲🦗敲門上海碼頭」南北兩線承載季風之勢6月份可能進入大陸（1604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/318ceca13c7335bf62d0edcaae62bacebbb6e189.torrent)
 
