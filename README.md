@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3SnKut)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1vuHPd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ea7dbb177f24346bcfb0901ecd75abb1edc544c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5ea7dbb177f24346bcfb0901ecd75abb1edc544c
+
+下载BT种子 [【中國禁聞】4月20日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bf10f0c799803e0668569d8b8838f58d32f13cb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3bf10f0c799803e0668569d8b8838f58d32f13cb
 
 下载BT种子 [全球追責疫情👆🏻，中共為何急打香港？🤔孫力軍落馬，中南海派系決戰香港🇭🇰？❗️（2020.4.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9400088acdfcfaec82e28030b314b4534fd0484a.torrent)
 
@@ -609,45 +617,13 @@
 
 磁力链接 magnet:?xt=urn:btih:7f5b5952e50bdb0553843313df4417bb9eb4bcad
 
-下载BT种子 [疫情推高美失業率聯邦撥千億小企業貸款.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6120119e6acd4ccb79368a4c0b4eebb29842be24.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6120119e6acd4ccb79368a4c0b4eebb29842be24
-
-下载BT种子 [蓬佩奧：許多國家外長一致認為中共應對瞞報疫情負責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e992eb0e9c04c8e2adaf8a7a706a45b8764fd4d1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e992eb0e9c04c8e2adaf8a7a706a45b8764fd4d1
-
 下载BT种子 [胡锡进华春莹给党上眼药！特朗普：怎么惩罚中共我先不说！中共农业部的温情警告！（老北京茶馆第289集20200416）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a852d04e123a2f44bbdab27e2111c92f25d172ce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a852d04e123a2f44bbdab27e2111c92f25d172ce
 
-下载BT种子 [中國著名男高音莫華倫確診曾撐港警.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d6fa1f4b457ede06496cf4c0fa4fd347ddebfb4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1d6fa1f4b457ede06496cf4c0fa4fd347ddebfb4
-
-下载BT种子 [加拿大反對黨領袖：中共隱瞞疫情影響世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/adc8dfb54baed7054f30a1ae62a5169e40919930.torrent)
-
-磁力链接 magnet:?xt=urn:btih:adc8dfb54baed7054f30a1ae62a5169e40919930
-
-下载BT种子 [中國大陸以外累計確診人數逼近210萬日本實施全國緊急狀態俄疫情顯著升級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7ce8f668d48a6bc59c7077fa661005f95a9634e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7ce8f668d48a6bc59c7077fa661005f95a9634e
-
 下载BT种子 [疫情下的紐約人氣地標期望繁榮重現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b20f5afee57aadc1dbc87eef576a7ab866975b3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0b20f5afee57aadc1dbc87eef576a7ab866975b3
-
-下载BT种子 [重大轉折川普公佈美國重啓經濟戰略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df8891b4eb86576ba3edd345c3e4611c3136df60.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df8891b4eb86576ba3edd345c3e4611c3136df60
-
-下载BT种子 [鐵證：內部文件揭中共瞞報；戰狼連串惹禍，譚書記果有前科；疫後次生災害顯現，獨行格外小心；3.5億病1400萬亡😱？網友推算有依據！【新聞看點李沐陽04.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e69ce4c54032cfb13d118770995a7dfa606af645.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e69ce4c54032cfb13d118770995a7dfa606af645
-
-下载BT种子 [【禁闻】中共强推复工大陆工厂接连离奇起火.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a63b8cd4b1837b85fe247e480e55845310e6110b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a63b8cd4b1837b85fe247e480e55845310e6110b
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
