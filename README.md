@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cwDySU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BsMSDZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩生死成谜，在韩前北韩高官点到了要害，北韩局势或将大变.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32db2cd166144b26f291597c212b9ded8fd483e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:32db2cd166144b26f291597c212b9ded8fd483e0
 
 下载BT种子 [孙力军失手，副主席不妙？俞正声写信含重大暗示。中国或走入另途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f35a2a2e4e27e3b9aff0f39118da2611ff93293.torrent)
 
