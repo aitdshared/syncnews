@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MdhUBd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uCJ5b5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】4月21日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcb05aeb07e66510b3df637cd40e562c585f7f0b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bcb05aeb07e66510b3df637cd40e562c585f7f0b
 
 下载BT种子 [【中国禁闻】4月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9310b81097f36e2d5533a4139062a1a72cc478fa.torrent)
 
@@ -544,62 +548,6 @@
 下载BT种子 [【中国禁闻】4月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc52c892e041eeda7a5fc683a2365d62368d4f43.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bc52c892e041eeda7a5fc683a2365d62368d4f43
-
-下载BT种子 [习近平突受高捧，隐秘如同朴槿惠？政治局定下一件事。北约戒备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/686abed2e80a64fb6c8b9d34916cfdc510e4e2bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:686abed2e80a64fb6c8b9d34916cfdc510e4e2bd
-
-下载BT种子 [一季度GDP暴跌,死亡人数突增,中共示弱意味着什么;破解中国经济增长的迷思(政论天下第152集20200417)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3769a63695030b9b55a491e41ffa1bb4b6aa4d39.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3769a63695030b9b55a491e41ffa1bb4b6aa4d39
-
-下载BT种子 [中共还在核试验，折射“武统”短板；上调病逝数，习近平压力扛不住了（文昭谈古论今20200417第736期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3141c0e256c2bb417c6ff45b7785827949d7001b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3141c0e256c2bb417c6ff45b7785827949d7001b
-
-下载BT种子 [【环球直击】哈尔滨出现随地倒和患者自杀武汉突改确诊及死亡人数(4月17日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d95744246cd270c7b0f2f28c23ab387a6ab7e428.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d95744246cd270c7b0f2f28c23ab387a6ab7e428
-
-下载BT种子 [【蕭茗訪談】章家敦：疫情在夏天不一定消失對中國經濟影響將持續企業會走掉供應鏈受到衝擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24af28720c2ce8ab5ca54579120bc2fd69ce16ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:24af28720c2ce8ab5ca54579120bc2fd69ce16ef
-
-下载BT种子 [《石濤聚焦》「法國諾貝爾醫學獎得主呂克：中共-武漢病毒為人造」源自武漢P4實驗室原因—學巫術的小屁孩兒把碟子弄兒翻了「大自然神奇力量剔除了人為的因素」大流行於人類（1704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c99d671d59f09af515ddeba1b0544024605add9e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c99d671d59f09af515ddeba1b0544024605add9e
-
-下载BT种子 [紐約市民每晚七點為醫護人員祝福路上房頂上窗台上響起掌聲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23da42f3aa532619f3f63323593700531e6e3db6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23da42f3aa532619f3f63323593700531e6e3db6
-
-下载BT种子 [《石濤聚焦》「高院駁回彈劾韓國瑜投票6月6日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6bcf3d611147058131f261379f90a2a0f6f104bc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6bcf3d611147058131f261379f90a2a0f6f104bc
-
-下载BT种子 [《石濤聚焦》「川普：與習近平通話談到‘武漢病毒實驗室’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df5cd629ea9961242756ae7b4810fabe7418f301.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df5cd629ea9961242756ae7b4810fabe7418f301
-
-下载BT种子 [澳洲參議員：應就疫情向中共追責並索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e16714d43bd9c40b886b3751805809bbd6e8b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:66e16714d43bd9c40b886b3751805809bbd6e8b0
-
-下载BT种子 [全球超過220萬確診日本呼籲調查世衛多國對中共表達不滿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b91a96efe198f8cf0b87b3eed1e87979d9e636d9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b91a96efe198f8cf0b87b3eed1e87979d9e636d9
-
-下载BT种子 [哈爾濱疫情告急傳出一小區有男子突然倒地還有一位確診婦女跳樓自殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cec7421eeae8eda06f2b56a925b786c04722f8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cec7421eeae8eda06f2b56a925b786c04722f8f
-
-下载BT种子 [武漢突改確診及死亡人數各界質疑動機被認為中共仍掩蓋真實數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec8e2bd51647f4c73bc8351150499d8dcf61bfe9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ec8e2bd51647f4c73bc8351150499d8dcf61bfe9
-
-下载BT种子 [中共五毛與泰國網民爆發對壘戰亞洲9國網民組成「奶茶聯盟」聯手圍堵五毛網軍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/271780cd3f5d521f56f7215cf5460ce8e27cefcf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:271780cd3f5d521f56f7215cf5460ce8e27cefcf
 
 下载BT种子 [【中國禁聞】4月16日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/328f113a06c49625ca4348c411f7ebd9dcec9b0d.torrent)
 
