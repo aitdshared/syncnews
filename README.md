@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tT3GDs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A4HjRv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9310b81097f36e2d5533a4139062a1a72cc478fa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9310b81097f36e2d5533a4139062a1a72cc478fa
 
 下载BT种子 [【禁闻】疫情民告官第一人湖北公务员诉省政府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04df0fb1ba25a3d6864f9fe0d30b67f0b5f92899.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [《石濤聚焦》「川普：與習近平通話談到‘武漢病毒實驗室’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df5cd629ea9961242756ae7b4810fabe7418f301.torrent)
 
 磁力链接 magnet:?xt=urn:btih:df5cd629ea9961242756ae7b4810fabe7418f301
-
-下载BT种子 [川普：將分三階段重啓美國經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/378333746c70ee007b4f63aa10a672adc8470795.torrent)
-
-磁力链接 magnet:?xt=urn:btih:378333746c70ee007b4f63aa10a672adc8470795
 
 下载BT种子 [澳洲參議員：應就疫情向中共追責並索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e16714d43bd9c40b886b3751805809bbd6e8b0.torrent)
 
