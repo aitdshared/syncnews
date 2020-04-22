@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uCJ5b5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IXGqnW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「濤哥侃封神第四十七回公明輔佐聞太師」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf83b4835a80a99cbe3a5478f5280ea7cd7e937e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf83b4835a80a99cbe3a5478f5280ea7cd7e937e
 
 下载BT种子 [【禁闻】4月21日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bcb05aeb07e66510b3df637cd40e562c585f7f0b.torrent)
 
@@ -544,50 +548,6 @@
 下载BT种子 [【禁闻】中国网友疫后80国联军将找中共算账.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/092de1c32bc1ff7bf22cebca602524b979b1e39d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:092de1c32bc1ff7bf22cebca602524b979b1e39d
-
-下载BT种子 [【中国禁闻】4月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc52c892e041eeda7a5fc683a2365d62368d4f43.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bc52c892e041eeda7a5fc683a2365d62368d4f43
-
-下载BT种子 [【中國禁聞】4月16日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/328f113a06c49625ca4348c411f7ebd9dcec9b0d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:328f113a06c49625ca4348c411f7ebd9dcec9b0d
-
-下载BT种子 [【环球直击】4月17日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cca9bbaf370162957fb7cddd41a51a596c54095.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6cca9bbaf370162957fb7cddd41a51a596c54095
-
-下载BT种子 [海內外事證頻傳，病毒直撲中共而來？上百國際名人連署，譴責中共隱匿疫情哈爾濱疫情再起（2020.4.17）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80f6abdc84452fc615cc68651ea9410c8de6c10a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:80f6abdc84452fc615cc68651ea9410c8de6c10a
-
-下载BT种子 [【全球新闻】日本实施全国紧急状态美国疫情过高峰期莫华伦确诊（4月16日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e73c90fab7e5ab91fa16169fef0bccd6c3917625.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e73c90fab7e5ab91fa16169fef0bccd6c3917625
-
-下载BT种子 [【中国禁闻】4月16日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c597475b64b3b878f723fedcae948fe9e485e830.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c597475b64b3b878f723fedcae948fe9e485e830
-
-下载BT种子 [中共收護照，美國發救濟；習近平底線思維與中國人的斯德哥爾摩綜合症；遼寧號來了，台灣就安全了（江峰漫談20200416第157期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf0529a22efb698941656856a0bfca220dabcfa5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf0529a22efb698941656856a0bfca220dabcfa5
-
-下载BT种子 [《濤哥侃封神》「封神演義第四十五回燃燈議破十絕陣」燃燈乃雷祖佛祖流源也文殊口吐金蓮法無邊開殺戒命該如此皆定數（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a76a62cd10640b3a19933afea0313464ada2096.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a76a62cd10640b3a19933afea0313464ada2096
-
-下载BT种子 [《石濤聚焦》「陳平沈默難平紅二代內訌」任志強紅二代背後相連眾多實力家族被爆光：陳元俞振聲姚依林子女（1604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39d0df3babe1a14f664e49d46904c630083d2d4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39d0df3babe1a14f664e49d46904c630083d2d4f
-
-下载BT种子 [《石濤聚焦》「3月份中共國海外搶購5000萬噸稻米」劉伯溫十愁預言中「平地無有五穀種謹防四野絕人煙」似乎已經到來印度柬埔寨緬甸越南哈薩克俄羅斯烏克蘭稻米或小麥全部出口配額（1604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f2bdf52e539a98427f68e093e69f76bca9d89b5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0f2bdf52e539a98427f68e093e69f76bca9d89b5
-
-下载BT种子 [《濤哥侃封神》「封神演義第四十五回燃燈議破十絕陣」燃燈乃雷祖佛祖流源也文殊口吐金蓮法無邊開殺戒命該如此皆定數.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7676ee22d93bdcebb1a791523b8174f52792af72.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7676ee22d93bdcebb1a791523b8174f52792af72
 
 下载BT种子 [《石濤聚焦》「哈爾濱二次大爆發很多小區今天開始封城」哈一大越千人排隊就診染病女工無💰就醫跳樓重新發放出行證高速警察“從哪兒來回哪去！哈爾濱封城了！”（1604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e64b1a4c47e6642cbdf5e58b7bc38b5368fb66a6.torrent)
 
