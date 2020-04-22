@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ifevi5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X9MvjR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [重要部长解职，孙力军牵涉更多高官？习近平重用那个人，看住党和国家领导人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a27b72a209b920b1227bdc5d2a7a0ab82e632d3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a27b72a209b920b1227bdc5d2a7a0ab82e632d3
 
 下载BT种子 [4月22日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211228915b524e4f58e657d75ce0a61d8600f358.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [內蒙古「中共病毒」和「鼠疫」疫情嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bde43faf38fa24d67c3dfb3b4f9c218d6531f6b5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bde43faf38fa24d67c3dfb3b4f9c218d6531f6b5
-
-下载BT种子 [美國重啟經濟全球股市大漲中國經濟下滑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
