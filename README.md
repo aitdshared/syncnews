@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LCPIDP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XGqLN5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [珍珠奶茶，黑糖珍奶为什么能在韩国大行其道，聊聊背后的故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6615c3cc1cab11b69c5b3e053badc93abc11f008.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6615c3cc1cab11b69c5b3e053badc93abc11f008
+
+下载BT种子 [美军太平洋舰队前情报主任采访要点；武力攻台可能吗？美国能保护台湾吗？中共不怕粮荒的原因源于3月特殊举措？中共最怕国内民变还是国外压力？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb22bd859beef50866cca1e928407a700f93064b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb22bd859beef50866cca1e928407a700f93064b
 
 下载BT种子 [【新唐人重播】總統蔡英文針對近日國人關心時事題目公開說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8a09a86044a8eb0fb529b335483c21cb413ca00.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [【禁闻】武汉上调死亡人数网友：还是假的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05972c7990acc6cf11ae8aa23bf21a5432274020.torrent)
 
 磁力链接 magnet:?xt=urn:btih:05972c7990acc6cf11ae8aa23bf21a5432274020
-
-下载BT种子 [【禁闻】4月17日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76c07c64c8f77ce1e7c8cb2d8522c977cb04ba85.torrent)
-
-磁力链接 magnet:?xt=urn:btih:76c07c64c8f77ce1e7c8cb2d8522c977cb04ba85
-
-下载BT种子 [【禁闻】4月17日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/208d1210ee879c351a9baa0306150c428d355c6a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:208d1210ee879c351a9baa0306150c428d355c6a
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
