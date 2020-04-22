@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XGqLN5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LZ6NoR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「濤哥侃封神第四十七回公明輔佐聞太師」修自玄黃煉於洪荒五氣朝元已成真只因心高氣傲妒忌恨趙公明鞭打子牙楊戩哮天犬傷其頸項「趙公明難逃紅塵之劫源自一個妒」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce4892cfb01cda612a1043bc60b9686d6d49b56a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ce4892cfb01cda612a1043bc60b9686d6d49b56a
 
 下载BT种子 [珍珠奶茶，黑糖珍奶为什么能在韩国大行其道，聊聊背后的故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6615c3cc1cab11b69c5b3e053badc93abc11f008.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁闻】世卫称与台湾保持交流台误导世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0
-
-下载BT种子 [【禁闻】武汉上调死亡人数网友：还是假的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05972c7990acc6cf11ae8aa23bf21a5432274020.torrent)
-
-磁力链接 magnet:?xt=urn:btih:05972c7990acc6cf11ae8aa23bf21a5432274020
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
