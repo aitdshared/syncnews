@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HgjWvH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cYTRLb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [內部文件曝光：哈爾濱嚴重瞞報疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/126b2ea029c2a379c74787e4d1a4f19e811caf38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:126b2ea029c2a379c74787e4d1a4f19e811caf38
+
+下载BT种子 [德媒體與政界譴中共隱瞞疫情全球多國展開對中共追責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34af63fe5046340b7a6e5fb6075c29c112a04df3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:34af63fe5046340b7a6e5fb6075c29c112a04df3
+
+下载BT种子 [美國第一個控告中共的州密蘇里要求賠償疫情損失.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c691f1295da75db916c18d705743693eee6fdd8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5c691f1295da75db916c18d705743693eee6fdd8
+
+下载BT种子 [港府否定基本法22條程翔：中共不斷以不規範的方式任意解釋法律是危險趨勢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fbfe5cab6758064a01c687aefc3d9c1d82621e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fbfe5cab6758064a01c687aefc3d9c1d82621e0
+
+下载BT种子 [全球確診258萬人死亡超過17萬南美四國確診破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1d1653184a479aaa57b28da580b6702b538546e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a1d1653184a479aaa57b28da580b6702b538546e
+
+下载BT种子 [不再依賴中國美國唯一稀土礦招工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8eb4c56177b886b32f7c5b88965db496bf9222b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8eb4c56177b886b32f7c5b88965db496bf9222b
 
 下载BT种子 [武漢100多家酒店及業主「酒店公寓志願聯盟」聯名發函向政府求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6be3a1c3d1522b6c2b803d9902b7a2084a8373ee.torrent)
 
@@ -524,34 +548,6 @@
 下载BT种子 [英法澳首腦開始發聲追問疫情源起中共應作出交代.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9efdf87c0d5cedaeeaa9e0e252f21defe9c7fcc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b9efdf87c0d5cedaeeaa9e0e252f21defe9c7fcc
-
-下载BT种子 [疫情相關詐騙增加紐約州打擊違法網站.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a0ad34ece728f036bed70fea92fba28af865f73.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a0ad34ece728f036bed70fea92fba28af865f73
-
-下载BT种子 [❗️川普爆料❗️：中國死亡人數遠超官方數據😨；病毒從實驗室外洩，美國全面追查🔥（2020.4.18）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ceb91750d3aada6acdccf02f259332bc3aa0a28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3ceb91750d3aada6acdccf02f259332bc3aa0a28
-
-下载BT种子 [【中國禁聞】4月17日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d1b109d4945f124ac0dbda2f64e6dca1ddce344.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3d1b109d4945f124ac0dbda2f64e6dca1ddce344
-
-下载BT种子 [《中南海厚黑学》连载（1）：一部拆解红朝统治术的独特作品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68240c967fa7913ee7ecec0ba312b902430aa989.torrent)
-
-磁力链接 magnet:?xt=urn:btih:68240c967fa7913ee7ecec0ba312b902430aa989
-
-下载BT种子 [美聯社獨家爆中共知大流行後仍隱瞞6天！病毒是否實驗室洩露？川普稱美國要徹查；北京有點熱該怎麼說才對？唐靖遠方菲熱點互動04172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/892c3fcd4f4a8a8f103e3fc96094f6e1bccbe612.torrent)
-
-磁力链接 magnet:?xt=urn:btih:892c3fcd4f4a8a8f103e3fc96094f6e1bccbe612
-
-下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第九回商容九間殿死節「罵君不怕身軀碎叱主何愁劍下亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/298a422ac55a082dd65655d37f0152590240158d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:298a422ac55a082dd65655d37f0152590240158d
-
-下载BT种子 [中国社会全方面透支未来，未来的苦日子怎么熬啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d420f8e8e7ed7a3f8a01c7c30737f4e537392e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2d420f8e8e7ed7a3f8a01c7c30737f4e537392e5
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
