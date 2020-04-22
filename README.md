@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LZ6NoR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZpLB92)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平也有日記了？記錄那些比蜜還甜的日子；《方方日記》遭圍攻，“家醜不可外揚”之醜（江峰漫談20200421第159期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/679037287f25241c0764593ab7b17995a96d4f8f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:679037287f25241c0764593ab7b17995a96d4f8f
 
 下载BT种子 [《濤哥侃封神》「濤哥侃封神第四十七回公明輔佐聞太師」修自玄黃煉於洪荒五氣朝元已成真只因心高氣傲妒忌恨趙公明鞭打子牙楊戩哮天犬傷其頸項「趙公明難逃紅塵之劫源自一個妒」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce4892cfb01cda612a1043bc60b9686d6d49b56a.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [武漢調升死亡數，葫蘆賣的什麼藥？中共又施小動作，美歐對華戰略三大轉變，反共已成主流！庚子賠款將重演，32年姐妹關係掰了；戰狼外交有原因？有一事令習驚懼！【新聞看點李沐陽04.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/655b27f781aadadebfa8d7231fcf1e04145175af.torrent)
 
 磁力链接 magnet:?xt=urn:btih:655b27f781aadadebfa8d7231fcf1e04145175af
-
-下载BT种子 [【禁闻】世卫称与台湾保持交流台误导世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:169dad5b7e1e9a6bd9b6ecb904542d08a9b473a0
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
