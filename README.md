@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LVp5Ov)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Qjbog9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】4月21日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aeb90af75bcc384aa220dfa85e84cf9fda55cbb8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aeb90af75bcc384aa220dfa85e84cf9fda55cbb8
 
 下载BT种子 [《石濤聚焦》「最新：金正恩手術前已知自己很可能‘不死也廢’」習近平-最想結束金正恩的人川普’不知詳情金正恩曾經心腹太永浩「極其不正常一定出事了」（2204）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ffcc656422949ca6f783ca8855f29ccb9966a073.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [中国社会全方面透支未来，未来的苦日子怎么熬啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d420f8e8e7ed7a3f8a01c7c30737f4e537392e5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2d420f8e8e7ed7a3f8a01c7c30737f4e537392e5
-
-下载BT种子 [【全球新闻】4月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f26312a64e51cc91af2b95acfe0de0b6d063fe8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f26312a64e51cc91af2b95acfe0de0b6d063fe8f
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
