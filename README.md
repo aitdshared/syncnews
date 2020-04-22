@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R19tsR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/89zac0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】一国两制危殆!港澳办发文干预香港内部事务.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d3626903741dca556b06b67f66cd84bee806e6a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5d3626903741dca556b06b67f66cd84bee806e6a
 
 下载BT种子 [《石濤聚焦》「孫立軍被抓時習近平詭異去秦嶺-老子道德經與燃燈古佛道場」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e444e87cb9404b5e059bd2ed40b38269fef71fa.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [美國重啟經濟全球股市大漲中國經濟下滑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1d55f5d461c2a1c1ca4451ce94adc1cc30cab21c
-
-下载BT种子 [疫情難不倒動物園遠程網絡與動物們相見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/143f082ca39860d2becbd0cd4f171c50605c75f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:143f082ca39860d2becbd0cd4f171c50605c75f2
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
