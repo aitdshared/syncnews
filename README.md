@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gsu3tW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d84yKi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】總統蔡英文針對近日國人關心時事題目公開說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8a09a86044a8eb0fb529b335483c21cb413ca00.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8a09a86044a8eb0fb529b335483c21cb413ca00
 
 下载BT种子 [🎯百人被捕！中央警衛半夜抓孫力軍，震撼秘密警察系統；黑龍江4月大雪打雷，瀋陽暴雨成河；內蒙城市防病毒疫情，禁黑龍江人入境；美暫停部分綠卡申請；紐約或分區重啓經濟；油價首現負值新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1a933981a57319b3044f38597b4467b8a2adc01.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁闻】4月17日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/208d1210ee879c351a9baa0306150c428d355c6a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:208d1210ee879c351a9baa0306150c428d355c6a
-
-下载BT种子 [【禁闻】纽约香港疫情对比为何两地差距这么大？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eacc66247568ba3c11926b9e82cbd3975bdb581d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eacc66247568ba3c11926b9e82cbd3975bdb581d
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
