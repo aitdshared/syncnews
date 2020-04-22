@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5lhYmJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b75QT6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】为中共效力英政客面临调查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/349d5d65711f853089316c65deed6a1bb9f1d157.torrent)
+
+磁力链接 magnet:?xt=urn:btih:349d5d65711f853089316c65deed6a1bb9f1d157
 
 下载BT种子 [習近平“西狩”，既避險也冒險；美國第一起索賠中共公訴上路；庚子賠款2.0有多嚴重？（文昭談古論今20200422第739期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/339f449518d504b7746ad7023b776bc900aa33ef.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [香港大抓捕泛民人士！港府被批秋後算帳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae3b0ea785223cb90f3b036983b4306d9a46e4b2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ae3b0ea785223cb90f3b036983b4306d9a46e4b2
-
-下载BT种子 [中共病毒疫情膠著全球45億人社交疏遠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c691ec1229927f8bea63527157aba9e43534a807.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c691ec1229927f8bea63527157aba9e43534a807
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
