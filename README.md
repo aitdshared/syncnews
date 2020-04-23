@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kpmOM5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KyBKts)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9fee8df6fd9f2f1ca6414009887d48562c84b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b9fee8df6fd9f2f1ca6414009887d48562c84b5
+
+下载BT种子 [【禁闻】比利时死亡率高居全球之首的背后.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502c8605dd596e2f67005ac11a994d9da4cc601.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1502c8605dd596e2f67005ac11a994d9da4cc601
 
 下载BT种子 [城市無行人動物稱霸王大自然之新氣象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c27c6063ac03391f9b32d17f5cd8a9835610fd9e.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [港警秋後算賬大搜捕，王全璋隔離期滿仍不能回京，川普說中國人數不可能少於美國，武漢招募流氓做社工，趙立堅再叫板，多國元首砲轟；病毒耐高溫，天氣炎熱熱不死病毒【新聞看點李沐陽04.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3681228d17a6df972e47f00c04e4ad81277eed7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e3681228d17a6df972e47f00c04e4ad81277eed7
-
-下载BT种子 [《石濤聚焦》「上海衛視記者白宮稱‘台灣人’欺騙美國總統川普：送他出門」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eba1a5bcfac628cff8ed56b2cd18869c1d18248f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eba1a5bcfac628cff8ed56b2cd18869c1d18248f
-
-下载BT种子 [习近平图谋港台。突然给将官大幅加薪！藏身四条密道。任志强牵动高层暗斗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a25652437ab17d9f22ab6eae40adb0daa9de265.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3a25652437ab17d9f22ab6eae40adb0daa9de265
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
