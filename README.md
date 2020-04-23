@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/37q0x)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/37udl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [4月23日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfecf79a1e81def68c8e2c945d07cda3f9953bd8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dfecf79a1e81def68c8e2c945d07cda3f9953bd8
+
+下载BT种子 [【禁闻】大纪元特稿：避疫自救有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb3fecb627e9b838d1c0632cfda7b5593a30c705.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb3fecb627e9b838d1c0632cfda7b5593a30c705
 
 下载BT种子 [南海险些开战！习近平远走西安，部署一件大事。秦岭的秘密。特朗普大喊击沉，指的是.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbd705f8a100795568b9ce500cf4b4301e13edb2.torrent)
 
@@ -540,22 +548,6 @@
 下载BT种子 [【禁闻】川普警告：中共故意隐瞒疫情将面临后果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/656330a01438717df19ae30c6f37640c946b34f7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:656330a01438717df19ae30c6f37640c946b34f7
-
-下载BT种子 [【禁闻】中共隐瞒疫情各国追责声浪日涨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daf4439391c067e1d84281ba8be4046b59b992c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daf4439391c067e1d84281ba8be4046b59b992c8
-
-下载BT种子 [突发：国保局长倒戈，习近平抢先下手！川普赶走中国记者。德国澳洲有话说.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34b0589fc7ce401ae365cb85f10e66bd1f23877.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c34b0589fc7ce401ae365cb85f10e66bd1f23877
-
-下载BT种子 [香港为何突发大抓捕中共破罐子破摔能摔出什么(政论天下第153集20200419)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff2a7ec555015d03e4dd08dab5016c38f6f8a262.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff2a7ec555015d03e4dd08dab5016c38f6f8a262
-
-下载BT种子 [【禁闻】4月19日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591e180c7c48dbea4da789370d0fe690d92f514c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:591e180c7c48dbea4da789370d0fe690d92f514c
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
