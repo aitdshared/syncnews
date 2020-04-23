@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E85Sid)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jcZrYZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普對美國重啓樂觀CDC主管澄清假新聞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66520f04004732150ec029cbafbf3e5f1cf5f808.torrent)
+
+磁力链接 magnet:?xt=urn:btih:66520f04004732150ec029cbafbf3e5f1cf5f808
+
+下载BT种子 [多國疫情現曙光澳大利亞牽頭追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34ecbbbd0d8b85fa44bcd1ab8e939daec2dccd49.torrent)
+
+磁力链接 magnet:?xt=urn:btih:34ecbbbd0d8b85fa44bcd1ab8e939daec2dccd49
 
 下载BT种子 [伊朗海軍騷擾美軍艦川普：可全部摧毀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a6da590876c5e162de7534a439230e6d3c5812e.torrent)
 
@@ -540,18 +548,6 @@
 下载BT种子 [习近平图谋港台。突然给军队加薪！藏身四条密道。任志强牵动高层暗斗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bda2706eebe94b24ec4d1fada701ce9bd9e54360.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bda2706eebe94b24ec4d1fada701ce9bd9e54360
-
-下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第七回費仲計廢姜皇后「早知國破終無救空向西宮血染襟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/416a0489c10d8ccfe63da47d96df621c31d54b3f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:416a0489c10d8ccfe63da47d96df621c31d54b3f
-
-下载BT种子 [《石濤.News》「習近平-中共生命之最終之本爆光完了」WHO圖標：權杖蛇-源自非洲橄欖枝稱霸人類病毒與WHO—習總化身「掌權7年7常委川普大習7歲三7婆川普斷WHO資金-蛇死了」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86d5fc3487443951c777954ce6715e4998362f57.torrent)
-
-磁力链接 magnet:?xt=urn:btih:86d5fc3487443951c777954ce6715e4998362f57
-
-下载BT种子 [大疫下的紐約唐人街冷清之中有生機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01de82451e5efb3179d58819f5f06576fad17694.torrent)
-
-磁力链接 magnet:?xt=urn:btih:01de82451e5efb3179d58819f5f06576fad17694
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
