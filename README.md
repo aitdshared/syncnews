@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2udUCA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vIIUhD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f56d30149c6cee8d7bac29b2192ad0ea00d5fca.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f56d30149c6cee8d7bac29b2192ad0ea00d5fca
 
 下载BT种子 [金正恩刷屏，特朗普发声！中共大哥怎么办？孙力军被拿下后现表忠潮，反习阵营遭重创？（老北京茶馆第293集20200422）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b785855acce3a5834b5f1338b930a90a70b32ad1.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [《石濤聚焦》「自稱‘台灣人’的上海衛視記者川普：讓他滾出去」張經義與鳳凰王又又中共菁英的『用實話騙人的體面人』被美記者稱為”中共間諜“（1804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e512d0bd16bf5bdbb4b595f5c065c176f7acf13.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e512d0bd16bf5bdbb4b595f5c065c176f7acf13
-
-下载BT种子 [【环球直击】4月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7debda9f4d1bc43703b40ba2f2b9071fec64d6f5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7debda9f4d1bc43703b40ba2f2b9071fec64d6f5
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
