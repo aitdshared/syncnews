@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ObWxTc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MvA5av)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】4月22日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a369120e7ce8adfc58f6f987bf4f94cb02767ae4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a369120e7ce8adfc58f6f987bf4f94cb02767ae4
 
 下载BT种子 [【禁闻】又甩锅？高福称从未说没有人传人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4896e21e5023e3ab19d8629f189f8d5f36a76f75.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [大疫下的紐約唐人街冷清之中有生機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01de82451e5efb3179d58819f5f06576fad17694.torrent)
 
 磁力链接 magnet:?xt=urn:btih:01de82451e5efb3179d58819f5f06576fad17694
-
-下载BT种子 [台灣首次有軍艦官兵確診涉3軍艦官兵恐釀700多人召回集中檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a5a40fc104f4c585b4cd3640461dbf0c24ee062.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a5a40fc104f4c585b4cd3640461dbf0c24ee062
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
