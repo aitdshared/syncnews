@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BfkLD6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2udUCA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩刷屏，特朗普发声！中共大哥怎么办？孙力军被拿下后现表忠潮，反习阵营遭重创？（老北京茶馆第293集20200422）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b785855acce3a5834b5f1338b930a90a70b32ad1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b785855acce3a5834b5f1338b930a90a70b32ad1
 
 下载BT种子 [孫力軍落馬央視女主持被帶走，孟建柱也被查？獨家湖南女監爆疫全封鎖；香港2少年被控謀殺，港府人事變動，為撤特區「建市」預設班子？百年大雪襲擊糧倉，中國人抓緊多備糧！【新聞看點李沐陽04.22】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c42ed918e3bb7d5751148900b39c757fe3ff5d02.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【环球直击】4月18日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7debda9f4d1bc43703b40ba2f2b9071fec64d6f5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7debda9f4d1bc43703b40ba2f2b9071fec64d6f5
-
-下载BT种子 [【新闻周刊】第728期（2020418）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26b35f5b08c69bbab15f1acdecff9f2984017242.torrent)
-
-磁力链接 magnet:?xt=urn:btih:26b35f5b08c69bbab15f1acdecff9f2984017242
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
