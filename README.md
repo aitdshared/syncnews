@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SqEL94)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lb3iPj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】又甩锅？高福称从未说没有人传人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4896e21e5023e3ab19d8629f189f8d5f36a76f75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4896e21e5023e3ab19d8629f189f8d5f36a76f75
+
+下载BT种子 [(开场白)密苏里州起诉中共：隐瞒疫情酿巨大损失.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc4ea6673ecbc9f22f026fc592121e3add5e6f63.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bc4ea6673ecbc9f22f026fc592121e3add5e6f63
 
 下载BT种子 [【禁闻】为中共效力英政客面临调查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/349d5d65711f853089316c65deed6a1bb9f1d157.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [台灣首次有軍艦官兵確診涉3軍艦官兵恐釀700多人召回集中檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a5a40fc104f4c585b4cd3640461dbf0c24ee062.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5a5a40fc104f4c585b4cd3640461dbf0c24ee062
-
-下载BT种子 [電召車司機失業紐約出租車管局參加免費餐項目司機就業送餐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86a0f4f2f193dbe711b84c9eaafa9ab13913abae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:86a0f4f2f193dbe711b84c9eaafa9ab13913abae
-
-下载BT种子 [香港大抓捕泛民人士！港府被批秋後算帳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae3b0ea785223cb90f3b036983b4306d9a46e4b2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ae3b0ea785223cb90f3b036983b4306d9a46e4b2
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
