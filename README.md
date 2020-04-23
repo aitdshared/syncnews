@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/37fzx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/37i1g)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】罕见雪灾冰雹袭击中国产粮大省.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9f6503e09dd4bf549573ad3eafee157bd406b3d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9f6503e09dd4bf549573ad3eafee157bd406b3d
 
 下载BT种子 [【新唐人重播】423紐約州中共肺炎疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69a94e09c2e7ed554504b058aa9b37ffc7bb2f41.torrent)
 
@@ -544,34 +548,6 @@
 下载BT种子 [【环球直击】4月19日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f268c0e39dc8605ce377e0c4c2c38d4903e981e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f268c0e39dc8605ce377e0c4c2c38d4903e981e7
-
-下载BT种子 [【禁闻】中共构陷金融诈骗罪名噤声武汉志愿者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c05d51221ad4a42c0b811560b4fe349e7e4e033.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c05d51221ad4a42c0b811560b4fe349e7e4e033
-
-下载BT种子 [《石濤聚焦》「孫力軍最不該此時此刻被抓習近平為什麼？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e80691ce185c51b8d5bdc78d08db9a9a6deaa6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:66e80691ce185c51b8d5bdc78d08db9a9a6deaa6
-
-下载BT种子 [《石濤聚焦》「記者會：你很憤怒中共國？川普：是很生氣！」更言‘還是蓄意投毒’他們應當讓我們進入調查‘電影「但丁密碼」現實版：中共WHO科學瘋子無神論的菁英「庚子賠款現實版或開打」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e6bef801a5d43bc1074b60c156943cd732cfbc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e6bef801a5d43bc1074b60c156943cd732cfbc6
-
-下载BT种子 [《石濤聚焦》「突發：公安部極具實力副部長-孫力軍被抓背景奇深」昨日香港大圍捕主導者即刻被抓澳洲公共衛生碩士-主理全國疫情安全孟建柱秘書-王岐山-任志強被查或江曾勢力？（1904）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf8ca76e7b7dc8bfcf5685cce44369528523a4f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf8ca76e7b7dc8bfcf5685cce44369528523a4f1
-
-下载BT种子 [《石濤聚焦》「突發：公安部極具實力副部長-孫立軍被抓背景奇深」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5401a9923f0be496f8c1c1af2d2c5b1ed684450.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e5401a9923f0be496f8c1c1af2d2c5b1ed684450
-
-下载BT种子 [一周经济回顾：中共继续撒弥天大谎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/398ba631accde96179ab27b91f83c2c7fe372c70.torrent)
-
-磁力链接 magnet:?xt=urn:btih:398ba631accde96179ab27b91f83c2c7fe372c70
-
-下载BT种子 [【严真点评】外交部大实话：中共再次创造了流行病学史上精准死亡的奇迹？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a400ab31fbddf24e66ba010f0963002af3026e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a400ab31fbddf24e66ba010f0963002af3026e5
 
 下载BT种子 [【时事小品】为何渴望回归中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8a22f9533d5effef8280a92a0850f5f16f84b47.torrent)
 
