@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3csu4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3ct8m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】（中文同聲翻譯）4.24中共病毒疫情美國政府新聞發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d48c27c5097b173ceaaba96869e882abdb9e61c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4d48c27c5097b173ceaaba96869e882abdb9e61c
+
+下载BT种子 [【禁闻】记者直击：哈尔滨患者的焦虑和无奈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4270e35027f52d1eeef3cd3f7ec1e6b77effe35.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f4270e35027f52d1eeef3cd3f7ec1e6b77effe35
 
 下载BT种子 [陕西行，习近平说话漏底！政敌就在那里。瑞典与中国脱钩，坦桑尼亚退出一带一路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9d5a80f2a0b7264d64d02406ecffd52a72ef8d.torrent)
 
@@ -540,10 +548,6 @@
 下载BT种子 [【禁闻】港府大规模拘捕民主派人士国际谴责.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a04ff6ea79722cf9be8a3ea54d4789da59e0fad3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a04ff6ea79722cf9be8a3ea54d4789da59e0fad3
-
-下载BT种子 [【微视频】中共大使抛弃旅俄华人武汉抢消费券.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65af7eb98d9821ddb22172db47e1114d063a54d7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:65af7eb98d9821ddb22172db47e1114d063a54d7
 
 下载BT种子 [“國保”大總管突然栽倒，中南海急中生變；香港大搜捕民主派，是大招前奏（文昭談古論今20200420第737期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4c28a595c5196459660a634b82cf3d85749f774.torrent)
 
