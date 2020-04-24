@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3civt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cjy1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】4月24日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d4ddf951eea1a8993aaa8c7033769c42a661265.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0d4ddf951eea1a8993aaa8c7033769c42a661265
+
+下载BT种子 [《石濤聚焦》「薄熙來致習近平公開信-下集：你的光明之路-解散中國共產黨」你就像做皇帝個人崇拜到極權統治剝奪言論自由-大疫情原因「絕口不提信仰自由活摘」明指「病毒源自武漢P4習總報復」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecf47ff2163c01865d148fa3564e9421ddb93e6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2ecf47ff2163c01865d148fa3564e9421ddb93e6
 
 下载BT种子 [中行「原油寶」爆倉虧數千投資人倒欠銀行鉅款300多億元人民幣血本無歸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce5ce415e20887a5d15c56c26d7a8881c8eb4a62.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [《石濤聚焦》「哈爾濱小區單元樓被上鎖滯留俄羅斯國民狂吼“我要回國”」美大使館推文「中共國必須對世界交代一切」川普「中共國確診與死亡一定是最多的」比利時醫師確診後見到已故親人（2004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79f11f876927f6d4faa72f4e061db0647e940add.torrent)
 
 磁力链接 magnet:?xt=urn:btih:79f11f876927f6d4faa72f4e061db0647e940add
-
-下载BT种子 [紧急会议：习家军连用六个词，喊明孙力军反习。事关最大国际话题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70d99152c85c531ae626b5cbcc9d3e53bd9c8db5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:70d99152c85c531ae626b5cbcc9d3e53bd9c8db5
-
-下载BT种子 [《石濤聚焦》「世界大變：原油期貨價格歷史性跌破$0.00美元達到-$26」黑龍江宜蘭縣大雪雷鳴中世界著名投資人巴斯「香港完蛋了銀行業將瞬間崩潰有條件的港人盡可能離開香港」（2004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de04597157a46502a1efd7f6048306c911e4736e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de04597157a46502a1efd7f6048306c911e4736e
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
