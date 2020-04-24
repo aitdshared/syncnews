@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3coj4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cst8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [陕西行，习近平说话漏底！政敌就在那里。瑞典与中国脱钩，坦桑尼亚退出一带一路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9d5a80f2a0b7264d64d02406ecffd52a72ef8d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7d9d5a80f2a0b7264d64d02406ecffd52a72ef8d
 
 下载BT种子 [【蕭茗訪談】中共欺騙瞞報引人禍世界若早知道真相疫情會否有所不同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64925e9acf53d2afc3d39865b61ab6c6fe18bc52.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [“國保”大總管突然栽倒，中南海急中生變；香港大搜捕民主派，是大招前奏（文昭談古論今20200420第737期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4c28a595c5196459660a634b82cf3d85749f774.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c4c28a595c5196459660a634b82cf3d85749f774
-
-下载BT种子 [《石濤聚焦》「哈爾濱小區單元樓被上鎖滯留俄羅斯國民狂吼“我要回國”」美大使館推文「中共國必須對世界交代一切」川普「中共國確診與死亡一定是最多的」比利時醫師確診後見到已故親人（2004）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79f11f876927f6d4faa72f4e061db0647e940add.torrent)
-
-磁力链接 magnet:?xt=urn:btih:79f11f876927f6d4faa72f4e061db0647e940add
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
