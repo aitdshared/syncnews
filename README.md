@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/38rh0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/38vcm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】澳洲总理：WHO成员应支持调查中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42ffa40279c1175b9348276b3d6e62a272e5c3d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:42ffa40279c1175b9348276b3d6e62a272e5c3d5
 
 下载BT种子 [【禁闻】哈尔滨疫情续扩散恐沦为武汉第二.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d159ad5edbe2a71229e0f0a5684ed930e4c8de3e.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁闻】中共深度渗透联合国189人染疫3人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e034d15091a7a2a0e69feb4b6225ed7d077c21ce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e034d15091a7a2a0e69feb4b6225ed7d077c21ce
-
-下载BT种子 [【禁闻】川普警告：中共故意隐瞒疫情将面临后果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/656330a01438717df19ae30c6f37640c946b34f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:656330a01438717df19ae30c6f37640c946b34f7
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
