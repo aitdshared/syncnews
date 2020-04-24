@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cf9s)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cgws)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「薄熙來致習近平公開信-上集：黨領導一切是萬惡之源！」萬言書共九章節武漢肺炎-中共病毒「是你親手打開了潘多拉魔盒」香港反送中風暴「是你一手造成的」（2404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb93f28326e38f8d9edd4c801889452b0b8711b6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb93f28326e38f8d9edd4c801889452b0b8711b6
 
 下载BT种子 [習近平秦嶺視察神祕地點，意欲何為？美國左右勢力聯手追訴中共責任，首次透露絕招（江峰漫談20200424第161期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e1425f14858a460aa1746f239f29547a2bd2849.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [失業威脅下福建貴州啟動大學生下鄉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06e525c141e59242f352d756fb673bec20c278ed.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06e525c141e59242f352d756fb673bec20c278ed
-
-下载BT种子 [全球近200專家聯署譴責中共掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d011017d84c1638ca5a704cda65d2374fa6063a1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d011017d84c1638ca5a704cda65d2374fa6063a1
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
