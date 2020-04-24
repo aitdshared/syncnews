@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/39z6j)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3a2p6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -548,10 +548,6 @@
 下载BT种子 [【中國禁聞】4月19日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3358507846cc0239e6c884cc95049b54ebe8330.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c3358507846cc0239e6c884cc95049b54ebe8330
-
-下载BT种子 [【环球直击】4月20日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a5edc94df1377e3324776669a6d1f997c375f0c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1a5edc94df1377e3324776669a6d1f997c375f0c
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
