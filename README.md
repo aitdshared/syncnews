@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cgxw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cgye)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國多位議員和參議員發聲譴責中共美防長：應該制止中共散播假信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d576098fac8d4bf63ef26f88cbf3ae35bcfe4392.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d576098fac8d4bf63ef26f88cbf3ae35bcfe4392
 
 下载BT种子 [《石濤聚焦》「薄熙來致習近平公開信-上集：黨領導一切是萬惡之源！」萬言書共九章節武漢肺炎-中共病毒「是你親手打開了潘多拉魔盒」香港反送中風暴「是你一手造成的」（2404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb93f28326e38f8d9edd4c801889452b0b8711b6.torrent)
 
