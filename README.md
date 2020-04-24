@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3ccx8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cf9i)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平秦嶺視察神祕地點，意欲何為？美國左右勢力聯手追訴中共責任，首次透露絕招（江峰漫談20200424第161期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2e1425f14858a460aa1746f239f29547a2bd2849.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2e1425f14858a460aa1746f239f29547a2bd2849
 
 下载BT种子 [習近平秦嶺秘密視察，意欲何為？美國左右勢力聯手追訴中共責任，首次透露絕招（江峰漫談20200424第161期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d309e84d308256f4183a79b5bf618ac60f289f4.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [全球近200專家聯署譴責中共掩蓋疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d011017d84c1638ca5a704cda65d2374fa6063a1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d011017d84c1638ca5a704cda65d2374fa6063a1
-
-下载BT种子 [【瘟疫與中共】拉美震央厄瓜多爾被「買斷」的未來？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad92c4d6d726d11dff5f6a9dfc673662329e274f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ad92c4d6d726d11dff5f6a9dfc673662329e274f
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
