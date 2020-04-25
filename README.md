@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1Q9c2M)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3e5l2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [㊙️金正恩詐死？俄獻花籃，川普否病危報導，與金通話？丹東火車停運，朝鮮局勢詭譎；三千人檢測！瀋陽醫院暴病毒感染；連累2萬人，哈爾濱毒王隔離時逃跑；紐約：不恰當開放，7月暴發更重新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1096fbdf0659dcc94b59385630805cd0793cc7c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e1096fbdf0659dcc94b59385630805cd0793cc7c
+
+下载BT种子 [【禁闻】追责索赔潮涨美两州政府起诉中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6a439dea411397386ec3b113b46bff0b0c9ac54.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6a439dea411397386ec3b113b46bff0b0c9ac54
+
+下载BT种子 [【禁闻】中行“原油宝”期货亏300亿投资户跳楼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a5c610936ae96df6e2b82b334f17609436e061e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a5c610936ae96df6e2b82b334f17609436e061e
+
+下载BT种子 [【禁闻】4月24日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be6d400b6bd37fb4711c0ff59412a2dd9707be78.torrent)
+
+磁力链接 magnet:?xt=urn:btih:be6d400b6bd37fb4711c0ff59412a2dd9707be78
+
+下载BT种子 [【禁闻】4月24日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/210b183a1bbf7c7e2e76e01ba19327cb7d9f9f05.torrent)
+
+磁力链接 magnet:?xt=urn:btih:210b183a1bbf7c7e2e76e01ba19327cb7d9f9f05
 
 下载BT种子 [大紐約地區點燭光紀念「四·二五」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9dd586141c1eb9fa9a184d6469f2510d5e917f3.torrent)
 
@@ -528,26 +548,6 @@
 下载BT种子 [综合韩媒报道，金正恩或真的病危了，韩半岛未来局势堪忧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c384dbe86b1884bf9ea02a641b5c5dc6680ffe8b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c384dbe86b1884bf9ea02a641b5c5dc6680ffe8b
-
-下载BT种子 [【全球新闻】4月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fdc981bb784e05576c59dd241b47a883b2df8ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5fdc981bb784e05576c59dd241b47a883b2df8ae
-
-下载BT种子 [【微電影】希望的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e79611065f12f6f894e83176e57e71dd15edf46.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e79611065f12f6f894e83176e57e71dd15edf46
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eff1c9af9c8e1e043ad57ff4ae56dbd3fedfc006.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eff1c9af9c8e1e043ad57ff4ae56dbd3fedfc006
-
-下载BT种子 [重磅，油价暴跌到负数，原因何在？对全球冲击多大？中国房产价格会跌到负数吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ddbca12bec9569f210e3e4e684227573caca690.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ddbca12bec9569f210e3e4e684227573caca690
-
-下载BT种子 [【中国禁闻】4月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fadc33701fc5dac6429aeeb91efa156018f18d05.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fadc33701fc5dac6429aeeb91efa156018f18d05
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
