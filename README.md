@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3dse8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3dsv7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大紐約地區點燭光紀念「四·二五」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9dd586141c1eb9fa9a184d6469f2510d5e917f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d9dd586141c1eb9fa9a184d6469f2510d5e917f3
+
+下载BT种子 [哈勃太空望遠鏡30歲發布驚人新圖像.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c448f72e745a15973f2bef28360565248503b0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c448f72e745a15973f2bef28360565248503b0d
+
+下载BT种子 [川普簽新救助法案美向多國援助呼吸機.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecfc866901f8a343bfe3d46368061d1c858a3b3d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ecfc866901f8a343bfe3d46368061d1c858a3b3d
+
+下载BT种子 [德國解禁英法謹慎日本再添新福利中國大陸以外確診升至273萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e5fbd2c77f866e3c64a50eca4c16ac89b57d343.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e5fbd2c77f866e3c64a50eca4c16ac89b57d343
 
 下载BT种子 [两岸要开打？美轰炸机重大异动，蔡英文愿承受第一波打击！习近平不敢攻台五个理由！（老北京茶馆第294集20200424）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01d8fb07a707b8d664832887752d5e4da3344ae4.torrent)
 
