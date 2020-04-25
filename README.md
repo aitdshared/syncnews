@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3e8zi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3e9y6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】4月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a87e81906dec06ac4abb225f307ccec748b05b1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a87e81906dec06ac4abb225f307ccec748b05b1
+
+下载BT种子 [韩国大量空姐失业，聊聊韩国空姐的年薪收入，您觉得多吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2402a4d7c5e72ffbbf3b5973054318641afa1415.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2402a4d7c5e72ffbbf3b5973054318641afa1415
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十七回公明輔佐聞太師」青紅衣黑白臉武夷散人“羅寶金錢”羞辱趙公明燃燈因緣24顆定海珠回歸佛門成就燃燈古佛公明狂躁逼借金骹剪三仙姑同毀大劫中（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b4d59626b4a63a55c28176ec9e7ff0864cee977.torrent)
 
@@ -536,10 +544,6 @@
 下载BT种子 [孙力军失手，副主席不妙？俞正声写信含重大暗示。中国或走入另途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f35a2a2e4e27e3b9aff0f39118da2611ff93293.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f35a2a2e4e27e3b9aff0f39118da2611ff93293
-
-下载BT种子 [【新唐人重播】421採訪香港流亡台灣林榮基前銅鑼灣書店店長遭潑紅漆恐嚇警方偵辦中.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b747b78522df0398cd72b86e579eebe9ebaf845.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b747b78522df0398cd72b86e579eebe9ebaf845
 
 下载BT种子 [孫力軍落馬，堪比王立軍出逃事件？是否與疫情有關？駐俄大使批民眾回國，“戰狼”精神哪去了？橫河Jason熱點互動04202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8283b90fc8ac6e3453e35d91adb5a05b3d103f76.torrent)
 
