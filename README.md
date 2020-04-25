@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3e9y6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3ebn3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「日媒：金正恩心血管搭橋失敗已成植物人」中國醫師透露消息給日媒：鄉間視察突發心臟病中共國北京復興和301醫院派出專家朝鮮醫師提前搭橋失敗（2404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/405f26a549d28d7ac8836757cff06df45d36a092.torrent)
+
+磁力链接 magnet:?xt=urn:btih:405f26a549d28d7ac8836757cff06df45d36a092
 
 下载BT种子 [【全球新闻】4月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a87e81906dec06ac4abb225f307ccec748b05b1.torrent)
 
@@ -548,10 +552,6 @@
 下载BT种子 [孫力軍落馬，堪比王立軍出逃事件？是否與疫情有關？駐俄大使批民眾回國，“戰狼”精神哪去了？橫河Jason熱點互動04202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8283b90fc8ac6e3453e35d91adb5a05b3d103f76.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8283b90fc8ac6e3453e35d91adb5a05b3d103f76
-
-下载BT种子 [《濤哥侃封神》「封神演義第四十六回廣成子破金光陣」金光聖母閃電之雷神無奈廣成子八卦紫壽衣法器乃境界造化太乙真人可乾坤顛倒日月互明「欲煉九還何處是震宮雷動望西成」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ba84743e912f47e3d7098b267728a918cac8bd6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8ba84743e912f47e3d7098b267728a918cac8bd6
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
