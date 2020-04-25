@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hefa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hfi2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【425重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2
 
 下载BT种子 [《石濤聚焦》「法國全球著名漫畫雜誌-查理週刊最新封面：習近平與穿山甲共寢心滿意足」銅鑼灣書店台北重開門「誠心誠意開給習近平的」查理漫畫暗指-習近平與中共病毒同床共枕法國人玩笑大了！（2504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ee9965aa26b6215597a5c126d7336f7ff2879fc.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [4.25法輪功學員和平上訪21周年真實心聲02（2020）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bec744d83252214653999441f01b96212cd5ac21.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bec744d83252214653999441f01b96212cd5ac21
-
-下载BT种子 [王全璋希望與家人團聚透露自己從沒認罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0751e4e6db4b30d27f4ff47aafec5ca60430586b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0751e4e6db4b30d27f4ff47aafec5ca60430586b
 
 下载BT种子 [台灣第二波百萬口罩送達美國麻州官員感謝台灣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9afed0c6881cc6c32a84f6b051b1d149b26b2083.torrent)
 
