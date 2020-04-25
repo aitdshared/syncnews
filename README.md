@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3ebn3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3eq31)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [21年前的這件事，和今天的這場瘟疫有何關係？歷史上的大瘟疫給了我們什麼教訓？唐靖遠汪志遠陳師眾熱點互動04242020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f87723e3b4ea0f5a3bd0e209f66500ce70d9b3c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f87723e3b4ea0f5a3bd0e209f66500ce70d9b3c3
 
 下载BT种子 [《石濤聚焦》「日媒：金正恩心血管搭橋失敗已成植物人」中國醫師透露消息給日媒：鄉間視察突發心臟病中共國北京復興和301醫院派出專家朝鮮醫師提前搭橋失敗（2404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/405f26a549d28d7ac8836757cff06df45d36a092.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [金正恩生死成谜，在韩前北韩高官点到了要害，北韩局势或将大变.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32db2cd166144b26f291597c212b9ded8fd483e0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:32db2cd166144b26f291597c212b9ded8fd483e0
-
-下载BT种子 [孙力军失手，副主席不妙？俞正声写信含重大暗示。中国或走入另途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f35a2a2e4e27e3b9aff0f39118da2611ff93293.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f35a2a2e4e27e3b9aff0f39118da2611ff93293
 
 下载BT种子 [孫力軍落馬，堪比王立軍出逃事件？是否與疫情有關？駐俄大使批民眾回國，“戰狼”精神哪去了？橫河Jason熱點互動04202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8283b90fc8ac6e3453e35d91adb5a05b3d103f76.torrent)
 
