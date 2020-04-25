@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3cuaq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3do9e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [朝鮮「秘不發喪」？撐多久？倒習政變順籐摸出反賊窩子（文昭談古論今20200424第740期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a5687b833c750917a06d3fd5bc7428fb07ba76.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4a5687b833c750917a06d3fd5bc7428fb07ba76
 
 下载BT种子 [【禁闻】“四二五”成契机法轮大法广传台湾.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b8c745e708932db8b3eba68817ed1dc8352a253.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁闻】疫情曝中共假货泛滥党媒露馅疫苗早研发.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd1ab6e367c19b73eaeb3577f21eed03368ae66.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dfd1ab6e367c19b73eaeb3577f21eed03368ae66
-
-下载BT种子 [【禁闻】孙力军落马帮中共隐瞒疫情引火烧身？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7a1c7173d7003cd49733dc0ae837ddfc023c079.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c7a1c7173d7003cd49733dc0ae837ddfc023c079
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
