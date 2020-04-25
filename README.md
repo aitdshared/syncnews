@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hfkx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hh6t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [瀋陽醫生染疫官方否認被質疑隱瞞疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6505a61deb7115581f899a1cca966ebbd5f8f5ab.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6505a61deb7115581f899a1cca966ebbd5f8f5ab
+
+下载BT种子 [港政要支持法輪功讚堅忍精神鼓舞港人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45bf36d9e4e5f5e25048a54928f29997d97dde44.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45bf36d9e4e5f5e25048a54928f29997d97dde44
+
+下载BT种子 [日媒爆金正恩變植物人朝鮮未來受關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b7d734b3884d72c2c2ac57bd36d94c43d44074f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1b7d734b3884d72c2c2ac57bd36d94c43d44074f
+
+下载BT种子 [【环球直击】沈阳医生染疫官方否认日媒曝金正恩变植物人港政要支持法轮功(4月25日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e516c78b86762efd083c77074ea9dfe9c245810a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e516c78b86762efd083c77074ea9dfe9c245810a
+
+下载BT种子 [中國大陸以外確診超274萬死亡人數突破19萬疫情緩解多國謹慎解封澳拒中國高價口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fafe02de4bd6469e0c9ff3cbf443de5529f646f9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fafe02de4bd6469e0c9ff3cbf443de5529f646f9
 
 下载BT种子 [【425重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2.torrent)
 
@@ -505,10 +525,6 @@
 
 磁力链接 magnet:?xt=urn:btih:9310b81097f36e2d5533a4139062a1a72cc478fa
 
-下载BT种子 [【禁闻】疫情民告官第一人湖北公务员诉省政府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04df0fb1ba25a3d6864f9fe0d30b67f0b5f92899.torrent)
-
-磁力链接 magnet:?xt=urn:btih:04df0fb1ba25a3d6864f9fe0d30b67f0b5f92899
-
 下载BT种子 [（預告片）中共：霸凌世界三部曲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/343540f0fcb14441d784ae2a5db11672850e7058.torrent)
 
 磁力链接 magnet:?xt=urn:btih:343540f0fcb14441d784ae2a5db11672850e7058
@@ -528,14 +544,6 @@
 下载BT种子 [報導中共病毒真相財經冷眼：無辜被封號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08a140d9d118f3a3fe81d1d5cabd993d680538c7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:08a140d9d118f3a3fe81d1d5cabd993d680538c7
-
-下载BT种子 [4.25法輪功學員和平上訪21周年真實心聲02（2020）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bec744d83252214653999441f01b96212cd5ac21.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bec744d83252214653999441f01b96212cd5ac21
-
-下载BT种子 [台灣第二波百萬口罩送達美國麻州官員感謝台灣.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9afed0c6881cc6c32a84f6b051b1d149b26b2083.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9afed0c6881cc6c32a84f6b051b1d149b26b2083
 
 下载BT种子 [議員推新法案允許美國人就疫情起訴中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a174a21e79babe995a5c47882d2b886836a7bff.torrent)
 
