@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3eq31)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3gzmy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「425萬人上訪」為何震驚國際🤔、牽動中共政局？🧐數字人民幣加速獨裁？💰（2020.4.25）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c399948f859f13952a94c827326f21ae30c7f019.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c399948f859f13952a94c827326f21ae30c7f019
 
 下载BT种子 [21年前的這件事，和今天的這場瘟疫有何關係？歷史上的大瘟疫給了我們什麼教訓？唐靖遠汪志遠陳師眾熱點互動04242020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f87723e3b4ea0f5a3bd0e209f66500ce70d9b3c3.torrent)
 
@@ -536,10 +540,6 @@
 下载BT种子 [【环球直击】4月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ea7dbb177f24346bcfb0901ecd75abb1edc544c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5ea7dbb177f24346bcfb0901ecd75abb1edc544c
-
-下载BT种子 [【中國禁聞】4月20日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bf10f0c799803e0668569d8b8838f58d32f13cb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3bf10f0c799803e0668569d8b8838f58d32f13cb
 
 下载BT种子 [全球追責疫情👆🏻，中共為何急打香港？🤔孫力軍落馬，中南海派系決戰香港🇭🇰？❗️（2020.4.21）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9400088acdfcfaec82e28030b314b4534fd0484a.torrent)
 
