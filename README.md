@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hb1u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3hdd5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「李肇星侄女香港衛視高管秦楓：金正恩已經死了我從不發假消息」更直言「最大受益人是俄羅斯」朝鮮第二號人物今晚出鏡中朝邊界列車全部停駛3周「三胖完蛋-天滅中共=共產主義在人類滅絕」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0152b4b49e7065183dfa9295c360b5cdc2b69442.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0152b4b49e7065183dfa9295c360b5cdc2b69442
 
 下载BT种子 [【中國禁聞】4月24日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27f6d6ba2fe3b6e4a44e5f50f69ae7233570f111.torrent)
 
@@ -548,10 +552,6 @@
 下载BT种子 [金正恩生死成谜，在韩前北韩高官点到了要害，北韩局势或将大变.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32db2cd166144b26f291597c212b9ded8fd483e0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:32db2cd166144b26f291597c212b9ded8fd483e0
-
-下载BT种子 [孫力軍落馬，堪比王立軍出逃事件？是否與疫情有關？駐俄大使批民眾回國，“戰狼”精神哪去了？橫河Jason熱點互動04202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8283b90fc8ac6e3453e35d91adb5a05b3d103f76.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8283b90fc8ac6e3453e35d91adb5a05b3d103f76
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
