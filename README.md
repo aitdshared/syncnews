@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3dujz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3dz9c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -548,34 +548,6 @@
 下载BT种子 [【中国禁闻】4月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fadc33701fc5dac6429aeeb91efa156018f18d05.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fadc33701fc5dac6429aeeb91efa156018f18d05
-
-下载BT种子 [美國多個州居民抗議居家防疫限制令傳染病專家福希博士：當心適得其反.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2f0bb271a87e09f6327c401a9bed39d7ff7ac31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d2f0bb271a87e09f6327c401a9bed39d7ff7ac31
-
-下载BT种子 [歐洲疫情喜憂參半南亞國家疫情仍嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de26f231d53931d0e9ad0ca273b327a55f071df5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de26f231d53931d0e9ad0ca273b327a55f071df5
-
-下载BT种子 [澳大利亞外長要求對中共隱瞞疫情進行國際調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b21b46cb1190c257251d041947a04638829b3c75.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b21b46cb1190c257251d041947a04638829b3c75
-
-下载BT种子 [川普美國疫情好轉兩州率先重啓經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01ca7bbaf18f9f75bd02f4cfb572b029d53f802c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:01ca7bbaf18f9f75bd02f4cfb572b029d53f802c
-
-下载BT种子 [三峽大壩要炸？💥哈爾濱正式封城！毒霾🌫源自焚屍爐？戰狼言論再升級，砸鍋論「擊穿人性底線」；澳外長強硬發聲；中共系統培訓隱瞞疫情；雷雷欲KO方方【新聞看點李沐陽04.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9d05e67b729d805729fde41f42f27dc341f4838.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f9d05e67b729d805729fde41f42f27dc341f4838
-
-下载BT种子 [【禁闻】中共驻俄大使“带病闯关”论引反弹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fd6f977e9357f87a7208ccd51aea8c116fb7de8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9fd6f977e9357f87a7208ccd51aea8c116fb7de8
-
-下载BT种子 [【禁闻】疫情曝中共假货泛滥党媒露馅疫苗早研发.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfd1ab6e367c19b73eaeb3577f21eed03368ae66.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfd1ab6e367c19b73eaeb3577f21eed03368ae66
 
 下载BT种子 [仁慈號醫療船工作人員感染中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8164186e4ce17232859272a25061cdbff0a81690.torrent)
 
