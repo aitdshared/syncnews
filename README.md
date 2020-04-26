@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3ithd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3j081)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩无力回天？方方公案延烧南京，小崔舍身加入；王全璋蜚声世界，大变局来临！（老北京茶馆第295集20200425）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8908a796c7eb43981b8c78119b1538a0b82b3e93.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8908a796c7eb43981b8c78119b1538a0b82b3e93
+
+下载BT种子 [【新闻周刊】第729期（2020425）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca8babe1bb01a35b95cfaa8427abf1995d4ba4d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca8babe1bb01a35b95cfaa8427abf1995d4ba4d0
+
+下载BT种子 [【环球直击】4月25日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48d9b033aae01fffaf722b7b1f1e1c7465cd592.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e48d9b033aae01fffaf722b7b1f1e1c7465cd592
 
 下载BT种子 [中朝边境异动！金正恩已经死亡？六人争位。可能爆发战争.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcde4d801a5d2392f97c78e91926de50d8f50e92.torrent)
 
