@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3j08b)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3j12w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「習近平秦嶺行應受‘高人’指點：祭伏羲更拜女媧」商洛秦嶺別墅群-破毀中華民族之祖脈安康-伏羲女媧之祖地平利縣老城-女媧廟「習近平好似紂王轉世回扣當年拜女媧招狐仙毀商朝周易出」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65e8c61a88a468709d137c452cbdf60cad4946ee.torrent)
+
+磁力链接 magnet:?xt=urn:btih:65e8c61a88a468709d137c452cbdf60cad4946ee
+
+下载BT种子 [《石濤聚焦》「王小洪被辭北京公安局長全力保護習近平」習無人無力清洗政法委中南海內訌沖天收縮親信圈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3eba7c68aae224f2a5f2292c620d3f971816de9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a3eba7c68aae224f2a5f2292c620d3f971816de9
 
 下载BT种子 [金正恩无力回天？方方公案延烧南京，小崔舍身加入；王全璋蜚声世界，大变局来临！（老北京茶馆第295集20200425）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8908a796c7eb43981b8c78119b1538a0b82b3e93.torrent)
 
