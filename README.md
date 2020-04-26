@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3j57m)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mMFohC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第四十八回陸壓獻計射公明」金蛟剪燃燈無奈捨仙鹿全因七情六慾無盡去遭此大劫也自然金蛟出世公明遭大難陸壓順時落陣前自稱散人無人曉只因玄真已破空（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e1dccb50deb09b7efeb28a61ac71cd540d925b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07e1dccb50deb09b7efeb28a61ac71cd540d925b
 
 下载BT种子 [為金正恩點蠟燭？🕯朝鮮300萬人病亡？😨一家5口被釘門隔離，慘遭滅門❗️；🇺🇸美國人替誰受難？聯合國成重災區；誰親共？染疫輕重分明🧐；病毒繞行港台，因有保命妙招！【新聞看點】（2020425）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/671fecacd827847e19b6ae12c6185dfc980a63be.torrent)
 
