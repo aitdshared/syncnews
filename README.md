@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3mg82)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3mhlr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月26日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8c3f3d663fa61d8c9f125f84b2bd22b453e7f55.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8c3f3d663fa61d8c9f125f84b2bd22b453e7f55
 
 下载BT种子 [《石濤聚焦》「袁天罡三大預言最後一個：五星連珠2020年」司馬遷也曾記述其利禍之別漢朝明確「五星連東方利中國」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7c5b68b714ad7a6c5d61d22a06d36c020d8e833.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美军太平洋舰队前情报主任采访要点；武力攻台可能吗？美国能保护台湾吗？中共不怕粮荒的原因源于3月特殊举措？中共最怕国内民变还是国外压力？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb22bd859beef50866cca1e928407a700f93064b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:eb22bd859beef50866cca1e928407a700f93064b
-
-下载BT种子 [【新唐人重播】總統蔡英文針對近日國人關心時事題目公開說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8a09a86044a8eb0fb529b335483c21cb413ca00.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d8a09a86044a8eb0fb529b335483c21cb413ca00
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
