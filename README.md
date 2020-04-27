@@ -21,21 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pjy2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pjyh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [市民：哈爾濱疫情已二次大爆發無數家庭家門被封死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e59111074e17f49bc46dfa29458efbfb8df5dcc1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e59111074e17f49bc46dfa29458efbfb8df5dcc1
-
-下载BT种子 [港人再上街喊口號港警辱記者市民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f99e4941ec7bf25a4aa01b003c21dd57d0be927b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f99e4941ec7bf25a4aa01b003c21dd57d0be927b
 
 下载BT种子 [李文足在北京突發疾病就醫王全璋赴京探望終團聚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24fd2d772c85f2302e1268e6634d58fda93d87f9.torrent)
 
@@ -620,6 +612,10 @@
 下载BT种子 [不再依賴中國美國唯一稀土礦招工.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8eb4c56177b886b32f7c5b88965db496bf9222b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d8eb4c56177b886b32f7c5b88965db496bf9222b
+
+下载BT种子 [武漢100多家酒店及業主「酒店公寓志願聯盟」聯名發函向政府求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6be3a1c3d1522b6c2b803d9902b7a2084a8373ee.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6be3a1c3d1522b6c2b803d9902b7a2084a8373ee
 
 下载BT种子 [【中國禁聞】4月21日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aeb90af75bcc384aa220dfa85e84cf9fda55cbb8.torrent)
 
