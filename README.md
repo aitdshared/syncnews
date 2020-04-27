@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pkme)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pkrc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球感染超過3百萬20多萬人喪生英國首相重返崗位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f48bc62d2c82f66b67d54e5fcd211c0868d4c46.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f48bc62d2c82f66b67d54e5fcd211c0868d4c46
 
 下载BT种子 [金正恩缺席《板門店宣言》健康狀況成焦點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b45d0c39176edead4d132a1c8d83a921e1323564.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [德媒體與政界譴中共隱瞞疫情全球多國展開對中共追責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34af63fe5046340b7a6e5fb6075c29c112a04df3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:34af63fe5046340b7a6e5fb6075c29c112a04df3
-
-下载BT种子 [美國第一個控告中共的州密蘇里要求賠償疫情損失.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c691f1295da75db916c18d705743693eee6fdd8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5c691f1295da75db916c18d705743693eee6fdd8
 
 下载BT种子 [全球確診258萬人死亡超過17萬南美四國確診破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1d1653184a479aaa57b28da580b6702b538546e.torrent)
 
