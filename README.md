@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3olzg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3oss3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [清算开始的话，中共的资金一出大陆就会被吸干，人民币面对美元太脆弱了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba0d467839fb558dc95a0c3729174520a56aed1f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ba0d467839fb558dc95a0c3729174520a56aed1f
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十八回陸壓獻計射公明」彩虹飄去金蛟剪無奈陸壓「火內之珍離地之精三昧之靈」碎破“烈焰陣”赤精子三入落魂陣奪回太極圖陸壓一幅畫公明頓失真（中集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e95b3ce7c5a86ac29414ecbe9f4ca4d6d2ba65c.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [習近平也有日記了？記錄那些比蜜還甜的日子；《方方日記》遭圍攻，“家醜不可外揚”之醜（江峰漫談20200421第159期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/679037287f25241c0764593ab7b17995a96d4f8f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:679037287f25241c0764593ab7b17995a96d4f8f
-
-下载BT种子 [《濤哥侃封神》「濤哥侃封神第四十七回公明輔佐聞太師」修自玄黃煉於洪荒五氣朝元已成真只因心高氣傲妒忌恨趙公明鞭打子牙楊戩哮天犬傷其頸項「趙公明難逃紅塵之劫源自一個妒」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce4892cfb01cda612a1043bc60b9686d6d49b56a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ce4892cfb01cda612a1043bc60b9686d6d49b56a
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
