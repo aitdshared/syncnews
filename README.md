@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3m9ot)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3mdpj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】欧盟接连严重警示：中国口罩不合格.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28da2b6b4d1783e932fabf5127c3b6d55549b361.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28da2b6b4d1783e932fabf5127c3b6d55549b361
 
 下载BT种子 [【禁闻】警称王全璋还在服刑被斥明著耍流氓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0611ddc877bdb12a6f0a9816f7e2132a1591b5f3.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《濤哥侃封神》「濤哥侃封神第四十七回公明輔佐聞太師」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf83b4835a80a99cbe3a5478f5280ea7cd7e937e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bf83b4835a80a99cbe3a5478f5280ea7cd7e937e
-
-下载BT种子 [（預告片）中共：霸凌世界三部曲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/343540f0fcb14441d784ae2a5db11672850e7058.torrent)
-
-磁力链接 magnet:?xt=urn:btih:343540f0fcb14441d784ae2a5db11672850e7058
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
