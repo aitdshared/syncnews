@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pofj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3poku)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「平壤開始恐慌性搶購各種傳言關鍵影響」金正恩再沈默-韓朝4.27板門店協議2週年傳4.14導彈試射失敗致傷（2704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1e1382fc4d302228bf10c6aea2156f2ce249a4f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a1e1382fc4d302228bf10c6aea2156f2ce249a4f
+
+下载BT种子 [《石濤聚焦》「傳習近平秦嶺行曾參拜習仲勳墓地」武警解除與地方關係全權歸軍委「更說明習近平備感極度不安全政變擔憂甚重」（2704）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89a686fbba7a2ef1ae27c4ccbdc231720ed725f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89a686fbba7a2ef1ae27c4ccbdc231720ed725f3
+
+下载BT种子 [【禁闻】美议员拟立法：禁止凤凰卫视在美广播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0937d1c31d8c5af3101d67759043640492624d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0937d1c31d8c5af3101d67759043640492624d2
 
 下载BT种子 [【禁闻】大疫前中共补贴企业贷款政策套利肥了谁？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/104a8b3dc0aff0f940697fa1a374904408cff177.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [4月22日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211228915b524e4f58e657d75ce0a61d8600f358.torrent)
 
 磁力链接 magnet:?xt=urn:btih:211228915b524e4f58e657d75ce0a61d8600f358
-
-下载BT种子 [【禁闻】一国两制危殆!港澳办发文干预香港内部事务.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d3626903741dca556b06b67f66cd84bee806e6a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5d3626903741dca556b06b67f66cd84bee806e6a
-
-下载BT种子 [《石濤聚焦》「孫立軍被抓時習近平詭異去秦嶺-老子道德經與燃燈古佛道場」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e444e87cb9404b5e059bd2ed40b38269fef71fa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e444e87cb9404b5e059bd2ed40b38269fef71fa
-
-下载BT种子 [【环球直击】4月22日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a4108bdea4cdb7de3be8b292726a9979b45362e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a4108bdea4cdb7de3be8b292726a9979b45362e
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
