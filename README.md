@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pp0a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3pvjo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩故意躲藏？朝鲜官媒开腔了！习近平加快换人，极度迷信那种事。美澳加发话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3922ed846bfb04189d3e38dd7021d72925e0ddd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d3922ed846bfb04189d3e38dd7021d72925e0ddd
+
+下载BT种子 [【禁闻】王全璋回到北京家中与妻儿团圆.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e63d5182b43e55bc4964f0062ff543d44a31717d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e63d5182b43e55bc4964f0062ff543d44a31717d
 
 下载BT种子 [金正恩故意躲避？朝鲜官媒开腔了！习近平加快换人，极度迷信那种事。美澳加发话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e6cc0810003ea3c7a5caec9f39df3bf8e0d4d61.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [【禁闻】为中共效力英政客面临调查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/349d5d65711f853089316c65deed6a1bb9f1d157.torrent)
 
 磁力链接 magnet:?xt=urn:btih:349d5d65711f853089316c65deed6a1bb9f1d157
-
-下载BT种子 [習近平“西狩”，既避險也冒險；美國第一起索賠中共公訴上路；庚子賠款2.0有多嚴重？（文昭談古論今20200422第739期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/339f449518d504b7746ad7023b776bc900aa33ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:339f449518d504b7746ad7023b776bc900aa33ef
-
-下载BT种子 [重要部长解职，孙力军牵涉更多高官？习近平重用那个人，看住党和国家领导人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a27b72a209b920b1227bdc5d2a7a0ab82e632d3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a27b72a209b920b1227bdc5d2a7a0ab82e632d3
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
