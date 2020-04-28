@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vtr9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vu6l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「金正恩胞妹金與正老公是不是崔龍海次子？」朝鮮後金正恩時期能否穩定的關鍵「金與正老公是誰：三個版本無一確定」崔龍海親美習近平不爽（2804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f18954320b63dfba43f1d51448ef2ceeabc82375.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f18954320b63dfba43f1d51448ef2ceeabc82375
 
 下载BT种子 [《石濤聚焦》「平壤流傳金正恩已死妹妹金與正接班的視頻」昨日美韓罕見出動6次偵察機網傳視頻大批坦克砲車運往丹東「朝鮮官媒痛斥李肇星姪女秦楓為“北京大媽”造謠」（2804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/710c57b4c9ac276b5fb862ce23643acf08cc940a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [武漢市民透露病毒檢測錯誤率達30%令外界更加質疑中共的統計數據.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ce1c88f9be7157965d9e0b2d1f74a1cf878fc49.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3ce1c88f9be7157965d9e0b2d1f74a1cf878fc49
-
-下载BT种子 [澳洲與英法美等國家領導人通話支持對世衛獨立調查美尋求替代世衛組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b62a73e2adc90a026be49f22b5a8596b280f189c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b62a73e2adc90a026be49f22b5a8596b280f189c
 
 下载BT种子 [中國人權律師高智晟獲林昭自由獎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57538c99a523880c5c82c27dfdb534f4329254c1.torrent)
 
