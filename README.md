@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3w09c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3w0t8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [40多個國家向中共提出集體訴訟川普：有方法讓中共承擔責任會要求索賠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14c1f93b5493ac0a1a6abfa8a45668e8238e3263.torrent)
+
+磁力链接 magnet:?xt=urn:btih:14c1f93b5493ac0a1a6abfa8a45668e8238e3263
+
+下载BT种子 [質量不過關印度取消中國試劑盒訂單.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/982f213878584c5ed3b5e95a7d230393e1f58bf2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:982f213878584c5ed3b5e95a7d230393e1f58bf2
+
+下载BT种子 [中共被控逼死捷克議長遺族揭「恐嚇信」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc3117b03c912bd6bd25bff4d271f805278e6f20.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc3117b03c912bd6bd25bff4d271f805278e6f20
 
 下载BT种子 [《石濤.News》「美五角大樓歷史性公布UFO視頻」猶太拉比-雅根引用猶太人著名思想作品《佐哈爾》（第172b頁）「彌賽亞-彌勒來到2次瘟疫第二次更嚴重—上帝淨化人間」否定神佛道習氏中共被淨化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7ffc2c3c70fb6e6e0a7c4c9e66ffee91a579978.torrent)
 
@@ -608,10 +620,6 @@
 下载BT种子 [【中国禁闻】4月23日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43f03073ce415ce9b4cfed24c0d425b8f954d7e5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:43f03073ce415ce9b4cfed24c0d425b8f954d7e5
-
-下载BT种子 [4月23日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f31a9ddb04d69dfa00519eab1b94cea62780e8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f31a9ddb04d69dfa00519eab1b94cea62780e8f
 
 下载BT种子 [美国暂停绿卡申请，意味着什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79b3a1788ed735ba2965ddcfdb6b5826e8f92df3.torrent)
 
