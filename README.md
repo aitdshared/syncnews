@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vwjb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vx8f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美軍機紐約上空飛行表演為前線醫護人員加油致敬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/516e0297b2ba4f876e31db9275cc46be3188f030.torrent)
+
+磁力链接 magnet:?xt=urn:btih:516e0297b2ba4f876e31db9275cc46be3188f030
+
+下载BT种子 [【禁闻】助武汉受害家属维权律师团提供诉状模板.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d47631487dd439a57d90e6027db8e5ab6aded7c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0d47631487dd439a57d90e6027db8e5ab6aded7c
 
 下载BT种子 [《石濤.News》「美五角大樓歷史性公布：UFO視頻」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e27ca299a75d2bc38493c6df2251d677d74d5d.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [【新唐人重播】423紐約州中共肺炎疫情發布會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69a94e09c2e7ed554504b058aa9b37ffc7bb2f41.torrent)
 
 磁力链接 magnet:?xt=urn:btih:69a94e09c2e7ed554504b058aa9b37ffc7bb2f41
-
-下载BT种子 [【微视频】北京朝阳区疫情高风险背后的暗黑逻辑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce3d7ea601f3ec2320f15e6801b07592021f0e78.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ce3d7ea601f3ec2320f15e6801b07592021f0e78
-
-下载BT种子 [前央視主持人李澤華失聯後首發聲！發布被追捕視頻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70273571fbaf96a96855e8a59e836aa1c9f093d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c70273571fbaf96a96855e8a59e836aa1c9f093d
 
 下载BT种子 [染病康復百老匯巨星每晚自家窗台免費獻唱感謝紐約前線醫護人員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae59b0227410ed20e6490d7da930243e34ddc0f.torrent)
 
