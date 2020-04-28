@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3qv80)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3qvqq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [哈爾濱疫情持續蔓延已全城淪陷最大的三甲醫院發生群聚感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e73d6c218c9b4daec1b6f448f4b52a8ae42dfa19.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e73d6c218c9b4daec1b6f448f4b52a8ae42dfa19
+
+下载BT种子 [中國大陸以外感染近300萬死亡超20萬多國進入防疫解封階段戴口罩或成常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f27ab2ca23eaab7f4aa50a420345387fef560d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f27ab2ca23eaab7f4aa50a420345387fef560d4
+
+下载BT种子 [FCC要求4家中國電信商：證明在美國從事的經營是否正當.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2abeaa314baa22147cf27d1c1456a57a000ec4c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2abeaa314baa22147cf27d1c1456a57a000ec4c7
+
+下载BT种子 [追責中共的聲浪不斷澳洲追責獲多國支持中共竟拿陸消費者要脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43f72b44c608a837f669400907bff8eb74ccbe94.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43f72b44c608a837f669400907bff8eb74ccbe94
+
+下载BT种子 [川普指美國將快速恢復暗指中共製造苦難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28ad3c31308eb489e7b74371bacc9d9194213c99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28ad3c31308eb489e7b74371bacc9d9194213c99
+
+下载BT种子 [美國各州重啟經濟姆努欽：夏天經濟回彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24d37a75bd55e6ed48b1572f3c2df564944e57a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24d37a75bd55e6ed48b1572f3c2df564944e57a3
 
 下载BT种子 [中共黑客瘋狂偷竊美病毒資料，美生死回擊💥台灣將入世衛⁉️法國死亡率比中國高90倍；4中共電訊商將被趕出美國；瑞典關閉孔院，捷克展六四資料。金正恩不妙；美保持「今晚開戰」【新聞看點李沐陽04.27】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c46deecd21d53bb614fa8fb20e36fb3071646c9b.torrent)
 
@@ -600,10 +624,6 @@
 下载BT种子 [【中国禁闻】4月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9fee8df6fd9f2f1ca6414009887d48562c84b5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7b9fee8df6fd9f2f1ca6414009887d48562c84b5
-
-下载BT种子 [【禁闻】比利时死亡率高居全球之首的背后.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1502c8605dd596e2f67005ac11a994d9da4cc601.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1502c8605dd596e2f67005ac11a994d9da4cc601
 
 下载BT种子 [城市無行人動物稱霸王大自然之新氣象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c27c6063ac03391f9b32d17f5cd8a9835610fd9e.torrent)
 
