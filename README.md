@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vjjp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vpcu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】4月27日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4aed32a746fb65dba2633f4cfdacf19bc780a285.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4aed32a746fb65dba2633f4cfdacf19bc780a285
 
 下载BT种子 [【环球直击】4月28日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1c85d32c43e8ac9241bba84354f686c0538c597.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [金正恩傳病危蓬佩奧：無論誰當家目標不變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec1354e38775985a0e0ec37da31fef0f08e5274f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ec1354e38775985a0e0ec37da31fef0f08e5274f
-
-下载BT种子 [《石濤聚焦》「記者：密蘇里州狀告中共國⋯？川普：我太喜歡😍啦⋯」疫情新階段-全球向中共國索賠風暴密西西里州緊跟義大利3機構「向中國政府集體訴訟索賠」1000億歐元中宣部要反訴😂（2304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49c20c1823b7dc5c05af0e29d1f40d0efde06fbe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:49c20c1823b7dc5c05af0e29d1f40d0efde06fbe
 
 下载BT种子 [《石濤.News》「習近平要軟化要任志強‘保證書’即可任拒絕習大怒摔杯」瞎掰！陳平-習近平騎虎難下任志強絕不低頭「中宣部-王滬寧最阿諛奉承之中共國毒瘤」（2304）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1844f41c6ed679d91b3a1e9838bc178a1c1ffad.torrent)
 
