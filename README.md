@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Vtcf36)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8rD7Hw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [4月28日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a9f251c8977b986504524fcd8425377207134eb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a9f251c8977b986504524fcd8425377207134eb
+
+下载BT种子 [【禁闻】“非洲兄弟”律师起诉中共索赔2千亿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ce1aafa274b7ed7276b4296432ef2a8d2179ab3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5ce1aafa274b7ed7276b4296432ef2a8d2179ab3
+
+下载BT种子 [4月28日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0b3e223e1370551326a7fa59d48c153c7da546a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e0b3e223e1370551326a7fa59d48c153c7da546a
 
 下载BT种子 [港區議員被打壓兩次被捕盼天滅中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/94185676f44990f0e45d2046410dd8f6e976afb1.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【禁闻】澳洲总理：WHO成员应支持调查中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42ffa40279c1175b9348276b3d6e62a272e5c3d5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42ffa40279c1175b9348276b3d6e62a272e5c3d5
-
-下载BT种子 [【禁闻】哈尔滨疫情续扩散恐沦为武汉第二.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d159ad5edbe2a71229e0f0a5684ed930e4c8de3e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d159ad5edbe2a71229e0f0a5684ed930e4c8de3e
-
-下载BT种子 [4月23日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfecf79a1e81def68c8e2c945d07cda3f9953bd8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfecf79a1e81def68c8e2c945d07cda3f9953bd8
-
-下载BT种子 [【禁闻】大纪元特稿：避疫自救有良方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb3fecb627e9b838d1c0632cfda7b5593a30c705.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cb3fecb627e9b838d1c0632cfda7b5593a30c705
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
