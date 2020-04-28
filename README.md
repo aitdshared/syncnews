@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vuyr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://ipsite.org/3vwiu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「美五角大樓歷史性公布：UFO視頻」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79e27ca299a75d2bc38493c6df2251d677d74d5d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:79e27ca299a75d2bc38493c6df2251d677d74d5d
 
 下载BT种子 [《石濤聚焦》「金正恩胞妹金與正老公是不是崔龍海次子—崔成？」朝鮮後金正恩時期能否穩定的關鍵「金與正老公是誰：三個版本無一確定」崔龍海親美習近平不爽（2804）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce24b9ee5b5c6135562f64fc941675f1bcdfda41.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [前央視主持人李澤華失聯後首發聲！發布被追捕視頻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c70273571fbaf96a96855e8a59e836aa1c9f093d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c70273571fbaf96a96855e8a59e836aa1c9f093d
-
-下载BT种子 [中國人權律師高智晟獲林昭自由獎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57538c99a523880c5c82c27dfdb534f4329254c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:57538c99a523880c5c82c27dfdb534f4329254c1
 
 下载BT种子 [染病康復百老匯巨星每晚自家窗台免費獻唱感謝紐約前線醫護人員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae59b0227410ed20e6490d7da930243e34ddc0f.torrent)
 
