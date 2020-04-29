@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wweIwp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zUMQTO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】709最后律师王全璋终于回家了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c34dd59ee9273fb2b35c6139a7a72b4a12b67e09.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c34dd59ee9273fb2b35c6139a7a72b4a12b67e09
 
 下载BT种子 [【禁闻】中共宣传援菲抗疫歌曲惹恼17万人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6c75b03da49154d94e8dea6ce9b5efddca41aff.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美日率先行動大瘟疫下加速「去中國化」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc6bbfc3a96b5484eaefb06ffdff12885ae225f3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc6bbfc3a96b5484eaefb06ffdff12885ae225f3
-
-下载BT种子 [麥塔斯：世界正承擔漠視活摘罪行的後果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0bed885d4d98cfc31f9c29789914f060a7db1eed.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0bed885d4d98cfc31f9c29789914f060a7db1eed
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
