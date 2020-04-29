@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/llYYNg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yZ1r1H)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [从央视女主播看中共的假自信，从台湾办事处更名看中共的真自卑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daa5263edc7333858240039ff50c673bb8d09d9e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:daa5263edc7333858240039ff50c673bb8d09d9e
 
 下载BT种子 [捷克議長赴台前中共大使館密談72小時後離奇身故，遺屬現身指控中共與捷克親共總統；中俄特工聯手？習近平與捷克總統會面為何只有他在場？（江峰漫談20200428第163期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/717fd4ce010f255cb843d13edbd758dde70a8541.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】4月24日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d4ddf951eea1a8993aaa8c7033769c42a661265.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0d4ddf951eea1a8993aaa8c7033769c42a661265
-
-下载BT种子 [《石濤聚焦》「薄熙來致習近平公開信-下集：你的光明之路-解散中國共產黨」你就像做皇帝個人崇拜到極權統治剝奪言論自由-大疫情原因「絕口不提信仰自由活摘」明指「病毒源自武漢P4習總報復」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecf47ff2163c01865d148fa3564e9421ddb93e6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ecf47ff2163c01865d148fa3564e9421ddb93e6
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
