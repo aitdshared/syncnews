@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ytBzwa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UE4duD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [惊传：中朝边境爆发激战？习近平出动三十万大军。朝鲜准备大事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8f1079feacd7858c09a9c970ff1edbd3f927d8a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e8f1079feacd7858c09a9c970ff1edbd3f927d8a
 
 下载BT种子 [【环球直击】4月29日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0976a1c8ecf0943506f81e0210ad40b57831e729.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [㊙️金正恩詐死？俄獻花籃，川普否病危報導，與金通話？丹東火車停運，朝鮮局勢詭譎；三千人檢測！瀋陽醫院暴病毒感染；連累2萬人，哈爾濱毒王隔離時逃跑；紐約：不恰當開放，7月暴發更重新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1096fbdf0659dcc94b59385630805cd0793cc7c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e1096fbdf0659dcc94b59385630805cd0793cc7c
-
-下载BT种子 [【禁闻】追责索赔潮涨美两州政府起诉中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6a439dea411397386ec3b113b46bff0b0c9ac54.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f6a439dea411397386ec3b113b46bff0b0c9ac54
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
