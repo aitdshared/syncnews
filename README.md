@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/34MTJG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wrt38l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美司法部審查防疫行政令保障公民權利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd7d4cf22c4651f600711ca62fb2b1af54e11675.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cd7d4cf22c4651f600711ca62fb2b1af54e11675
+
+下载BT种子 [中國大陸以外感染人數升至304萬人意大利法國步入解封日本擔憂明年奧運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/302150e7f5460705172d379e8a8413d0f8d1868f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:302150e7f5460705172d379e8a8413d0f8d1868f
 
 下载BT种子 [【全球新闻】4月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/800d842b79191a2938123f73c443920936b9b800.torrent)
 
@@ -616,10 +624,6 @@
 下载BT种子 [習近平秦嶺秘密視察，意欲何為？美國左右勢力聯手追訴中共責任，首次透露絕招（江峰漫談20200424第161期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d309e84d308256f4183a79b5bf618ac60f289f4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2d309e84d308256f4183a79b5bf618ac60f289f4
-
-下载BT种子 [人民幣要作廢？💰中共急推數字貨幣🤔，藏六大詭計❗️（2020.4.24）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed3b41a486af31dc46cda4c8625d00f40d95ccd4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed3b41a486af31dc46cda4c8625d00f40d95ccd4
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
