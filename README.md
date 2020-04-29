@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RMsDsJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BsNGFW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【唐靖遠快評】習近平心目中的大秦帝國之路如何坍塌？四大王朝末日敗象集於一身熱點互動04282020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abaa40822d362e284dfc092add08ca085e557019.torrent)
+
+磁力链接 magnet:?xt=urn:btih:abaa40822d362e284dfc092add08ca085e557019
 
 下载BT种子 [【中国禁闻】4月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b566bc4f940e62a3371849be19c124c39d9c3d.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【瘟疫與中共】：紐約華爾街欺詐層出的「中國騙局」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1148096beab37a1c0b87a3e722cde89abf4086d8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1148096beab37a1c0b87a3e722cde89abf4086d8
-
-下载BT种子 [蓬佩奧：中共要付出代價袒護中共的世衛必須徹底改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/029c141f5b9c60851f0c0f7b25ce034efe01ccb3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:029c141f5b9c60851f0c0f7b25ce034efe01ccb3
 
 下载BT种子 [418大搜捕至少15名民主派人士被逮捕梁耀忠：是政治檢控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aaf2571ee013e02ca7aed44cbfb72a0e2e480b33.torrent)
 
