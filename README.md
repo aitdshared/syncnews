@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cwcFxM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9xVuVU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第四十八回陸壓獻計射公明」子牙拜掉趙公明元神散而不歸聞太師知曉慾搶頭書陸壓大驚-頭書被搶吾輩皆亡楊戩設計救眾仙（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/312707473aa2026b6dcc54c439e84dd8f88d6680.torrent)
+
+磁力链接 magnet:?xt=urn:btih:312707473aa2026b6dcc54c439e84dd8f88d6680
 
 下载BT种子 [《濤哥侃封神》「封神演義第四十八回陸壓獻計射公明」牙拜掉趙公明元神散而不歸聞太師知曉慾搶頭書陸壓大驚-頭書被搶吾輩皆亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/48e5d0f295e9f5ac2580f29461a9d7301966dbb6.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「薄熙來致習近平公開信-下集：你的光明之路-解散中國共產黨」你就像做皇帝個人崇拜到極權統治剝奪言論自由-大疫情原因「絕口不提信仰自由活摘」明指「病毒源自武漢P4習總報復」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ecf47ff2163c01865d148fa3564e9421ddb93e6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2ecf47ff2163c01865d148fa3564e9421ddb93e6
-
-下载BT种子 [中行「原油寶」爆倉虧數千投資人倒欠銀行鉅款300多億元人民幣血本無歸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce5ce415e20887a5d15c56c26d7a8881c8eb4a62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ce5ce415e20887a5d15c56c26d7a8881c8eb4a62
 
 下载BT种子 [【瘟疫與中共】：紐約華爾街欺詐層出的「中國騙局」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1148096beab37a1c0b87a3e722cde89abf4086d8.torrent)
 
