@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZuQFoo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qnqxTg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美知識產權特別301報告中國列優先觀察國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dff33804983a007330b66dd20db1dc7a70172ded.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dff33804983a007330b66dd20db1dc7a70172ded
 
 下载BT种子 [戰狼外交惹大禍，捷克議長遭恐嚇「猝亡」；中共2會日期選定，山西疫爆如同武漢；美推動兩殺手鐧，重大訴訟將接踵而至；中共模糊焦點改歷史，徐曉東怒斥張大使，嘉義城隍廟爆紅！【新聞看點李沐陽04.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb4f690f4ece221135129c3011d6afbd5acd3e80.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【425重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2
-
-下载BT种子 [【重播】425紐約州中共肺炎疫情追蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38f92ef5a30c4c79d04b009ae5a6ce9db1c073f5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38f92ef5a30c4c79d04b009ae5a6ce9db1c073f5
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
