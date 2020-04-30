@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mM6tkU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vB3A1b)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】无惧中共要胁澳洲坚持调查疫情起源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f39d781281682ca722e8ff2ca8824a99c3db2593.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f39d781281682ca722e8ff2ca8824a99c3db2593
+
+下载BT种子 [【禁闻】凶残迫害人权傅政华被免司法部长.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf59874cacd6a3f3abd1e57cf8b7b59a2388c4c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf59874cacd6a3f3abd1e57cf8b7b59a2388c4c9
+
+下载BT种子 [【禁闻】4月29日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50c0cffdde896b85c82ffb852e6beab53cd1ad3c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:50c0cffdde896b85c82ffb852e6beab53cd1ad3c
+
+下载BT种子 [【禁闻】4月29日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f47c9a19ece4ce56c583a10aacffdb0ec68837b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0f47c9a19ece4ce56c583a10aacffdb0ec68837b
 
 下载BT种子 [【禁闻】复工又返乡中共拖不动经济三驾马车.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/647dcdb950a929df24d32cfde8d79f752f845b87.torrent)
 
@@ -608,22 +624,6 @@
 下载BT种子 [【中國禁聞】4月24日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27f6d6ba2fe3b6e4a44e5f50f69ae7233570f111.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27f6d6ba2fe3b6e4a44e5f50f69ae7233570f111
-
-下载BT种子 [「425萬人上訪」為何震驚國際🤔、牽動中共政局？🧐數字人民幣加速獨裁？💰（2020.4.25）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c399948f859f13952a94c827326f21ae30c7f019.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c399948f859f13952a94c827326f21ae30c7f019
-
-下载BT种子 [21年前的這件事，和今天的這場瘟疫有何關係？歷史上的大瘟疫給了我們什麼教訓？唐靖遠汪志遠陳師眾熱點互動04242020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f87723e3b4ea0f5a3bd0e209f66500ce70d9b3c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f87723e3b4ea0f5a3bd0e209f66500ce70d9b3c3
-
-下载BT种子 [《石濤聚焦》「日媒：金正恩心血管搭橋失敗已成植物人」中國醫師透露消息給日媒：鄉間視察突發心臟病中共國北京復興和301醫院派出專家朝鮮醫師提前搭橋失敗（2404）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/405f26a549d28d7ac8836757cff06df45d36a092.torrent)
-
-磁力链接 magnet:?xt=urn:btih:405f26a549d28d7ac8836757cff06df45d36a092
-
-下载BT种子 [【全球新闻】4月24日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a87e81906dec06ac4abb225f307ccec748b05b1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4a87e81906dec06ac4abb225f307ccec748b05b1
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
