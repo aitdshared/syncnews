@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Oa7LRo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9tlpPw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】429川普與企業高層討論如何重啟美國（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20377d093139ca7f734f8dff34873ead4c3707ee.torrent)
+
+磁力链接 magnet:?xt=urn:btih:20377d093139ca7f734f8dff34873ead4c3707ee
+
+下载BT种子 [【中國解密】金正恩是否已死亡中共或秘密測試核試爆香港受到攻擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39af866a7263efb9986e8c581c7261495def15f8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39af866a7263efb9986e8c581c7261495def15f8
+
+下载BT种子 [加州陽台上演藝經典歌劇讓歌聲充滿關愛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cdea848027a34e69cad483c97c92f842bf1c8f2c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cdea848027a34e69cad483c97c92f842bf1c8f2c
 
 下载BT种子 [蓬佩奧病毒源頭未知武漢病毒所可疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1039393949ff42ac77e33ba6e784fbc3b6db0d3.torrent)
 
@@ -620,14 +632,6 @@
 下载BT种子 [瀋陽醫生染疫官方否認被質疑隱瞞疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6505a61deb7115581f899a1cca966ebbd5f8f5ab.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6505a61deb7115581f899a1cca966ebbd5f8f5ab
-
-下载BT种子 [港政要支持法輪功讚堅忍精神鼓舞港人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45bf36d9e4e5f5e25048a54928f29997d97dde44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:45bf36d9e4e5f5e25048a54928f29997d97dde44
-
-下载BT种子 [【环球直击】沈阳医生染疫官方否认日媒曝金正恩变植物人港政要支持法轮功(4月25日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e516c78b86762efd083c77074ea9dfe9c245810a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e516c78b86762efd083c77074ea9dfe9c245810a
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
