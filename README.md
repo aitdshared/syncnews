@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rzlza3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6wUieX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】4月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07aab40a002710a6c60686844dad2bc78c41cf28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07aab40a002710a6c60686844dad2bc78c41cf28
 
 下载BT种子 [【重播】429川普與企業高層討論如何重啟美國（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/20377d093139ca7f734f8dff34873ead4c3707ee.torrent)
 
@@ -601,14 +605,6 @@
 
 磁力链接 magnet:?xt=urn:btih:8908a796c7eb43981b8c78119b1538a0b82b3e93
 
-下载BT种子 [【新闻周刊】第729期（2020425）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca8babe1bb01a35b95cfaa8427abf1995d4ba4d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ca8babe1bb01a35b95cfaa8427abf1995d4ba4d0
-
-下载BT种子 [【环球直击】4月25日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e48d9b033aae01fffaf722b7b1f1e1c7465cd592.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e48d9b033aae01fffaf722b7b1f1e1c7465cd592
-
 下载BT种子 [中朝边境异动！金正恩已经死亡？六人争位。可能爆发战争.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcde4d801a5d2392f97c78e91926de50d8f50e92.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dcde4d801a5d2392f97c78e91926de50d8f50e92
@@ -628,10 +624,6 @@
 下载BT种子 [新鮮蔬菜來了！紐約食品銀行向民眾發餐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4ad63b0c476dbe4d47de485bea5ade14dab68ee.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d4ad63b0c476dbe4d47de485bea5ade14dab68ee
-
-下载BT种子 [瀋陽醫生染疫官方否認被質疑隱瞞疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6505a61deb7115581f899a1cca966ebbd5f8f5ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6505a61deb7115581f899a1cca966ebbd5f8f5ab
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
