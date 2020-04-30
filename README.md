@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MCBXlZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/k99fGp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [戰狼外交惹大禍，捷克議長遭恐嚇「猝亡」；中共2會日期選定，山西疫爆如同武漢；美推動兩殺手鐧，重大訴訟將接踵而至；中共模糊焦點改歷史，徐曉東怒斥張大使，嘉義城隍廟爆紅！【新聞看點李沐陽04.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb4f690f4ece221135129c3011d6afbd5acd3e80.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb4f690f4ece221135129c3011d6afbd5acd3e80
 
 下载BT种子 [金正恩咋了川普为何就是不说被骂成“人类公敌”,蓬佩奥该如何应对全球经济崩溃是中共收购廉价资产的好时机吗(政论天下第157集20200429)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/407ea22816714a3e3a9cf6add5db8a78f7d9340e.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【425重播】台灣中央疫情指揮中心召開記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:41a0496b9c56db36ec7945e7b2bfdb1f388cbdc2
-
-下载BT种子 [《石濤聚焦》「法國全球著名漫畫雜誌-查理週刊最新封面：習近平與穿山甲共寢心滿意足」銅鑼灣書店台北重開門「誠心誠意開給習近平的」查理漫畫暗指-習近平與中共病毒同床共枕法國人玩笑大了！（2504）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ee9965aa26b6215597a5c126d7336f7ff2879fc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ee9965aa26b6215597a5c126d7336f7ff2879fc
 
 下载BT种子 [【重播】425紐約州中共肺炎疫情追蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38f92ef5a30c4c79d04b009ae5a6ce9db1c073f5.torrent)
 
