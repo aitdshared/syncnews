@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nFEpZT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5bPiip)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美司法部撤銷對弗林的指控川普歡迎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24a4a1580bc4b02c3d840acefcf2964e37541c7f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24a4a1580bc4b02c3d840acefcf2964e37541c7f
+
+下载BT种子 [美中通話同意履行第一階段協議義務.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8df57d688b35d1d89e2a5456dce5355a286457c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8df57d688b35d1d89e2a5456dce5355a286457c9
+
+下载BT种子 [保持社交距離創意標誌溫馨提示.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3cc85b2a822bc7ec206990c76a9ad84e53f9cbb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e3cc85b2a822bc7ec206990c76a9ad84e53f9cbb
 
 下载BT种子 [【重播】0508白宮發言人舉行簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcd32d230b13d371573c6c87095f7fedef320d0.torrent)
 
@@ -605,10 +617,6 @@
 
 磁力链接 magnet:?xt=urn:btih:221839786410aa82b51abe181c4e898719fce77c
 
-下载BT种子 [白宮官員中共壓制疫情導致更英勇反抗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f6ccfd06dad87808fb6842017e5c5fb3c630151.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7f6ccfd06dad87808fb6842017e5c5fb3c630151
-
 下载BT种子 [央視「潑婦式」謾罵蓬佩奧人氣不減反升.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12b7ebe4b5ac7925a7ea3d153bbb5f0ade3bee72.torrent)
 
 磁力链接 magnet:?xt=urn:btih:12b7ebe4b5ac7925a7ea3d153bbb5f0ade3bee72
@@ -616,14 +624,6 @@
 下载BT种子 [義大利公園終開放市民出門感受自然風光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06efb93822a70fe93bd0b5b6dc695b3b1f715aef.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06efb93822a70fe93bd0b5b6dc695b3b1f715aef
-
-下载BT种子 [【禁闻】蓬佩奥：中共病毒来自武汉实验室.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dde109d7ab3521cb3902b2d91075eb489d703a8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dde109d7ab3521cb3902b2d91075eb489d703a8f
-
-下载BT种子 [【微视频】中共病毒追责重在扩散不是实验室.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2add966d37bb571bbe10d0a67566144f4858deb9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2add966d37bb571bbe10d0a67566144f4858deb9
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
