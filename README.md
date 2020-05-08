@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/j3xBP1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CdPecv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】0508白宮發言人舉行簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcd32d230b13d371573c6c87095f7fedef320d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ddcd32d230b13d371573c6c87095f7fedef320d0
 
 下载BT种子 [《石濤聚焦》「胡錫進強硬回覆川普‘戰爭論’：核彈頭增加至1000枚」獲6萬多人點讚華春瑩稱其“言論自由”「文革時期-毛主席與批鬥劉少奇等人珍貴視頻」真實再現習近平-中國夢與定於一尊的期待（0805.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff393f5d6d7d7f3c7e4d9445a783af49d6ba29db.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁闻】蓬佩奥：中共病毒来自武汉实验室.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dde109d7ab3521cb3902b2d91075eb489d703a8f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dde109d7ab3521cb3902b2d91075eb489d703a8f
-
-下载BT种子 [【禁闻】五眼联盟报告五大主题戳穿中共隐匿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4acbef34736c2d9746777fda8d8af74fb9a0ea2a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4acbef34736c2d9746777fda8d8af74fb9a0ea2a
 
 下载BT种子 [【微视频】中共病毒追责重在扩散不是实验室.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2add966d37bb571bbe10d0a67566144f4858deb9.torrent)
 
