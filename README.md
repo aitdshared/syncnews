@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AWE4S1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nqa0zJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】港立会爆冲突“李慧琼越权”特斯拉上海工厂停工中共早知病毒人传人（5月8日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0e69e789f153e02b8b62190d96aa5a211ac8387.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0e69e789f153e02b8b62190d96aa5a211ac8387
 
 下载BT种子 [港立會爆衝突「李慧琼越權」泛民議員被抬出場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa754ffb822dfc9496fd68d92e4d0d5de93f298a.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [港警頻爆僭建佔地醜聞案區議員促徹查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5db1d245272a016f6bdb966975a3edb0affa72db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5db1d245272a016f6bdb966975a3edb0affa72db
-
-下载BT种子 [各州不同策略解除居家令美國疫情仍嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2033b5ea1a9a674cd0606d0c1cb7e1b83c738a28.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2033b5ea1a9a674cd0606d0c1cb7e1b83c738a28
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
