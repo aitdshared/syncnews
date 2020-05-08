@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yahsAk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0rAMgu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】58台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a119bd9dc61441ee65436301a5252874682a928.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5a119bd9dc61441ee65436301a5252874682a928
 
 下载BT种子 [華為、孟晚舟命運改寫？美國重啟與華為5G標準談判意味著什麼？核心技術拼市場，美國也用拖刀法，直接進入6G戰略時代（江峰漫談20200507第167期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8beafd84c3fc3ee0f6b61f307aa5b6627cf97a28.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [意外：极左军头也反习！石正丽遭控制？习近平忽然拉抬李鹏之女.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f76e5e9802179a291bc406caa3ea89074085e340.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f76e5e9802179a291bc406caa3ea89074085e340
-
-下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6c714adeedda43f74c1f2d1c460143c44fa08db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f6c714adeedda43f74c1f2d1c460143c44fa08db
 
 下载BT种子 [瑞士人民黨前副主席：中共與中國是二回事中共是附在中國身上的病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a274795dd4d28688b4ee16929f51d4db6aa3c47.torrent)
 
