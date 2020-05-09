@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hzl2qP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XJyBX2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美國特勤局34名特工染病60名隔離」白宮在快速淪陷川普對待習近平-中共的態度阻止疫情的關鍵（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a749f98c9831d33d90c51b3e636a42682668d0b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a749f98c9831d33d90c51b3e636a42682668d0b
+
+下载BT种子 [K聯賽疫情下重啟歐洲三大聯賽躍躍欲試.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7b31d1a44892e94022047ee56502cc5b7fc6969.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7b31d1a44892e94022047ee56502cc5b7fc6969
 
 下载BT种子 [【中國禁聞】4月8日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d26a34eaa67aedd3f93ce6499a6d32a0a39d17f9.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [【禁闻】5月5日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f00e51aa58b4de45325b2035056f2e9d921b675b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f00e51aa58b4de45325b2035056f2e9d921b675b
-
-下载BT种子 [【禁闻】内部报告：国际反共情绪六四以来最高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b47012e5d694b86ac05d0ee5f0e81d25425f59f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8b47012e5d694b86ac05d0ee5f0e81d25425f59f
-
-下载BT种子 [【禁闻】中医师为709律师治病揭中共酷刑迫害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31002291161a92b5fae8d416eec192bfae16f0e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:31002291161a92b5fae8d416eec192bfae16f0e5
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
