@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D8ikc1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Wbyq3o)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】5月8日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93
 
 下载BT种子 [倒爺自述如何發國難財🚫N95要50元，假額溫器炒到400多❗️呼吸機漲了20多萬😨美又拿出終極懲罰❗️美解體中共？習近平何去何從？🤔台灣入世衛不重要？什麼重要？【新聞看點李沐陽05.08】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/583a42c564121fb795cf315b756d223d4f08ed50.torrent)
 
@@ -620,18 +624,6 @@
 下载BT种子 [中共滲透美國大學國會議員呼籲調查孔子學院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f5f1e3b672751caa3d6c30d81e5511d9614338a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f5f1e3b672751caa3d6c30d81e5511d9614338a
-
-下载BT种子 [萧茗采访班农：你见了国内出逃科学家？央视为何选此时攻击你？美国情报机构有警告你吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cafa4222396efc4d9c4293d595fe2b3e3294951a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cafa4222396efc4d9c4293d595fe2b3e3294951a
-
-下载BT种子 [【中國禁聞】5月3日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c0f586a56166338328dbd715ea5cf66ed5a20d9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c0f586a56166338328dbd715ea5cf66ed5a20d9
-
-下载BT种子 [【环球直击】5月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a36379c5cf5d6a21e294f9cbb5ac2c9526891e31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a36379c5cf5d6a21e294f9cbb5ac2c9526891e31
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
