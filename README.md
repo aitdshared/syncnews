@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lWnJzk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U0GIPm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [2020年5月13日「世界法輪大法日」洪傳28週年-華人修煉故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364cf74b7d58793b53f057951d31ed2b3aae1217.torrent)
+
+磁力链接 magnet:?xt=urn:btih:364cf74b7d58793b53f057951d31ed2b3aae1217
 
 下载BT种子 [震撼！德国查实：习近平亲自干了那件事！党媒编造普京通话。王沪宁反马克思。胡锡进又咋了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06da8c7f060893e81805b3637cc1bf24513049a5.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [川普視察口罩工廠暗示中共輸出劣質口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/04924fe816bb8ef1621833ddb117f8ab862c1308.torrent)
 
 磁力链接 magnet:?xt=urn:btih:04924fe816bb8ef1621833ddb117f8ab862c1308
-
-下载BT种子 [「中國通」博明與中共交手，回懟崔天凱、制裁華為。中文演講網瘋傳：「實現民主要靠誰？還等一百年？」傅政華帶走軟禁，孟建柱被抓抄家。澳洲「老毛」來信，自揭轉變過程，對比中澳差別【新聞看點05.04】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e39f39165787436bffb0c610b470241e51833c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e39f39165787436bffb0c610b470241e51833c7
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
