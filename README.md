@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gqOqKS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AxSXsh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4271d2de75b76777de5cbee47f033e1cb1ed176b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4271d2de75b76777de5cbee47f033e1cb1ed176b
 
 下载BT种子 [2020年5月13日「世界法輪大法日」洪傳28週年-華人修煉故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364cf74b7d58793b53f057951d31ed2b3aae1217.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【唐靖遠快評】倒習保習公開信唱雙簧？國際社會追責5連擊;中共面臨六四以來最嚴峻國際形勢熱點互動05052020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72becee8451a325f03653bbcb4e1c40dca282bba.torrent)
 
 磁力链接 magnet:?xt=urn:btih:72becee8451a325f03653bbcb4e1c40dca282bba
-
-下载BT种子 [美國情報總監提名人﹕將聚焦中共病毒調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eeed5e53a8ee3b531cd73ecfa5e1df60d0ce4abd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:eeed5e53a8ee3b531cd73ecfa5e1df60d0ce4abd
 
 下载BT种子 [俄連續三天新增破萬印度人買醉感染突增中國大陸以外增至363萬人感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb82ef3d78ad69217487e9e8cece89f3cfdfd720.torrent)
 
