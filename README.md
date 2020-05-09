@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2036aB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cb5hbK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [海外確診392萬俄羅斯日本計劃部分解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd30c6dfc7c6c8c4aae4189d0f8062ab4acb3cee.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fd30c6dfc7c6c8c4aae4189d0f8062ab4acb3cee
+
+下载BT种子 [失業率升高白宮川普會再打造最火經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7edbbc171cb7da7a43f5efb53090bbd2cb34b9c6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7edbbc171cb7da7a43f5efb53090bbd2cb34b9c6
+
+下载BT种子 [二戰「歐洲勝利日」75週年各國舉行無聚集紀念活動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/978002f3789475ee625267d13cf6361c56208f4b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:978002f3789475ee625267d13cf6361c56208f4b
 
 下载BT种子 [【禁闻】中国学术造假39篇论文被国际期刊撤稿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43c5a419cac46951b37cbb6405f27bdd1d9278d4.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【环球直击】5月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a36379c5cf5d6a21e294f9cbb5ac2c9526891e31.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a36379c5cf5d6a21e294f9cbb5ac2c9526891e31
-
-下载BT种子 [抨击彭佩奥，中共智商堪忧，一首歌20万点踩，中共不把人得罪干净不罢休.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3597e3d5ab28f64d17724cdbc8feb1b635e7bdc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3597e3d5ab28f64d17724cdbc8feb1b635e7bdc5
-
-下载BT种子 [比鄧習公開信靠譜，中共智庫說了啥？易北河精神背後玄妙看中俄遲早翻臉？川普準備好了，要帶領全世界人民討說法（江峰漫談20200504第166期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/474fc26b651d1bbdce18e7d0da2daa8d49ff248b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:474fc26b651d1bbdce18e7d0da2daa8d49ff248b
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十一回子牙劫營破聞仲」楊戩誆聞仲步步自入絕龍嶺子牙鞭打菡芝仙哪吒槍送彩云仙三十萬大軍盡失聞太師命絕自我（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de27941599a1991fe9e6acfdc06bc568135ed733.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de27941599a1991fe9e6acfdc06bc568135ed733
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
