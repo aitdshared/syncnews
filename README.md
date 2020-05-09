@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l6fqdV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q6RLL6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共核威懾川普軟了？川普倚重貿易協議是避戰還是備戰？兩會無議案與國會追討熱三部曲，看中美間制裁與反制的博弈（江峰漫談20200508第169期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f846917631f3d12d9452e7b215a4d606d2f803a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f846917631f3d12d9452e7b215a4d606d2f803a
 
 下载BT种子 [中共鷹派將領轉調,「復興大業」與「統一台灣」脫鉤？美力挺台灣重返世衛，對中共發出一清晰訊號唐靖遠賴怡忠熱點互動05082020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51d97126adffdcf080f3de61d693074ef2c1013b.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「網傳：孟建柱5月3日中午被抓上海多處房產被抄」被中央警衛團政委鄒石龍帶走上海公安局特警總隊黨委書記兼總隊長吳捷領隊同時上海幾名正處級以上公安官員被抓（0505）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cb06b7f5191d7313364d58c1a8de7c8610298ea.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4cb06b7f5191d7313364d58c1a8de7c8610298ea
-
-下载BT种子 [《石濤聚焦》「突發：研究武漢肺炎華裔美學者劉斌家中被殺兇手隨後自殺」劉斌即將取得突破成果之際被殺3月底曾與7位華人學者聯名論文-問題「誰殺他為什麼與中共國關係散居世界華人學者組隊—為什麼」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81202580ee9cb1417208c63cb1f1b551158f1903.torrent)
-
-磁力链接 magnet:?xt=urn:btih:81202580ee9cb1417208c63cb1f1b551158f1903
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
