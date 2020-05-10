@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f6Bu5u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wHxU1I)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「修者自悟：二波瘟疫将起9月回12月頂峰源頭-印度」土木福星变天罚8億人難逃「火金水三災星天罚七灾俱下」君亡大水兵亂臣反大疫「三峽大壩崩潰可能-地震或戰爭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/621347d61fc333bf6c40e8f2f543f7fa27204479.torrent)
+
+磁力链接 magnet:?xt=urn:btih:621347d61fc333bf6c40e8f2f543f7fa27204479
 
 下载BT种子 [2020年5月13日「世界法輪大法日」洪傳28週年-西人修煉故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b28dea151d0bc407a92ff619af15d02cfee8a88.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [不甩中聯辦港人挺黃店台灣良心老闆受益.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/732e9351d53f7d7233a22dfa356810be5a6ebb50.torrent)
 
 磁力链接 magnet:?xt=urn:btih:732e9351d53f7d7233a22dfa356810be5a6ebb50
-
-下载BT种子 [港地政署長調職分析：中共阻港警黑幕曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf0d6fc5509281b7a5a5913a79134d6cc3940727.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bf0d6fc5509281b7a5a5913a79134d6cc3940727
 
 下载BT种子 [【新唐人重播】5.6美國國務卿蓬佩奧記者會（中文同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a7a53076e2385dcddb4df6e160b2543aa067a9.torrent)
 
