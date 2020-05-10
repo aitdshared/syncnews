@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EaIsDB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/97Kcfy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d96e8cfd04c1c470bf531e770476d45d9c888eaa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d96e8cfd04c1c470bf531e770476d45d9c888eaa
 
 下载BT种子 [《石濤聚焦》「台灣刪除‘統一條款’中共國惱怒‘台獨-狂飆’」難道習近平急切期待「中華民國與憲政回歸大陸？」這是一個小學課題-基本邏輯（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7db14f35c2ea27fa68fc4cd1422895ff818a7465.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【重播】川普在Honeywell國際公司發表有關口罩生產的講話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a9442d035e9780bce80327a6dab88885a82663b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a9442d035e9780bce80327a6dab88885a82663b
-
-下载BT种子 [瘦16磅像「上刀山」紐約華人經歷感染到康復.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc499bc3c2a28d0fd91fb30cfee566e3a2bf3bbd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc499bc3c2a28d0fd91fb30cfee566e3a2bf3bbd
 
 下载BT种子 [【唐靖遠快評】倒習保習公開信唱雙簧？國際社會追責5連擊;中共面臨六四以來最嚴峻國際形勢熱點互動05052020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72becee8451a325f03653bbcb4e1c40dca282bba.torrent)
 
