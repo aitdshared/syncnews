@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uCbwqa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QoyjZy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「加拿大總理：中共國口罩不合格退貨不給錢！」CNN：中美關係陷入幾十年之冰點彼此民間的仇恨歷史性頂點（1005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b78eb2638e177046ed7d2a870287c3e43a95fff5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b78eb2638e177046ed7d2a870287c3e43a95fff5
+
+下载BT种子 [《石濤聚焦》「任志強被宣布管制1個月北京現象詭異」任志強的作品書籍一切照舊在書店中招賣「蔡奇被出賣？或中南海互不相讓？」（1005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abe7c852013711e93f62e440167d5cc786d0d197.torrent)
+
+磁力链接 magnet:?xt=urn:btih:abe7c852013711e93f62e440167d5cc786d0d197
 
 下载BT种子 [《石濤.News》「修者自悟：二波瘟疫将起9月回12月頂峰源頭-印度」土木福星变天罚8億人難逃「火金水三災星天罚七灾俱下」君亡大水兵亂臣反大疫「三峽大壩崩潰可能-地震或戰爭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/621347d61fc333bf6c40e8f2f543f7fa27204479.torrent)
 
@@ -613,10 +621,6 @@
 
 磁力链接 magnet:?xt=urn:btih:732e9351d53f7d7233a22dfa356810be5a6ebb50
 
-下载BT种子 [【新唐人重播】5.6美國國務卿蓬佩奧記者會（中文同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a7a53076e2385dcddb4df6e160b2543aa067a9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a1a7a53076e2385dcddb4df6e160b2543aa067a9
-
 下载BT种子 [全球超過375萬人確診德意計畫出國度假英國下週部分解封也擔憂出現第二波疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c915e988477feeeb9336c07679ea4bfc3790bdfb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c915e988477feeeb9336c07679ea4bfc3790bdfb
@@ -624,10 +628,6 @@
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cea7f4181840edbe53ae792f5c8045ec5231beeb
-
-下载BT种子 [黑龍江疫情嚴峻先後發出緊急通知百姓叫苦連天.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8506f269efc057c469005677c572fe1e6b57d110.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8506f269efc057c469005677c572fe1e6b57d110
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
