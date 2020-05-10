@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c78pKT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zmTWs7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新闻周刊】第731期（202059）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f28d42fff80db55bba6a632bb7965e3d792351c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f28d42fff80db55bba6a632bb7965e3d792351c
 
 下载BT种子 [石家莊天空變色，10公里外有震撼；特大冰雹，15分鐘積1米深；「病毒長眼」入名校，哈佛染疫背後；軍方捐助哈佛；曾經小粉紅翻牆罵中共；回網友：逃離中共控制只需一點【新聞看點李沐陽05.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af657dfed0ed26fbe8f32567c570c9756d75bce4.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「最新：匹茲堡被殺學者劉斌案：細節披露」警察：兇手-顧浩與劉斌相識「與劉斌研究是否相關-不確定」網傳—匹茲堡中文學校有同名者2014與前任現任校長獲得員工獎「學校與中共國僑辦有關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22835f60adfd5b7ff0badedfca79c95399242329.torrent)
 
 磁力链接 magnet:?xt=urn:btih:22835f60adfd5b7ff0badedfca79c95399242329
-
-下载BT种子 [【全球新闻】5月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/824beed9aa6205ffe4ec20001c1fdcc59b386581.torrent)
-
-磁力链接 magnet:?xt=urn:btih:824beed9aa6205ffe4ec20001c1fdcc59b386581
 
 下载BT种子 [《石濤聚焦》「習近平確認有人政變傅政華是其中一個可能」孫力軍被抓後傅政華隨後失去司法部黨組副書記之職更失去郭聲琨今日主持政法委「平安中國第一次會議」唐一軍頂上（2104）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3476b30da02d4f3ca931051cc8ca527ddf103f6d.torrent)
 
