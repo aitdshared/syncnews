@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eYYh9r)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XEp0z6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「習近平今日忽然造訪：雲崗石窟-彌勒與三世佛」雲崗石窟-北魏太武帝滅佛駕崩後文成帝興佛修建的傳諸多佛像面目仿當朝皇帝「習近平拜過女媧廟再拜彌勒-三世佛」自覺大難劫數不遠？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0851ab20ae3bb11a455a97e9fa627c0aeebf8aa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c0851ab20ae3bb11a455a97e9fa627c0aeebf8aa
 
 下载BT种子 [习近平突然释放前政治局委员！两会前的神秘用意。某政治老人干了两件事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/482b93259bbaecacfe89af55325ea3088f975777.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「官方：虎門大橋停用應来自習近平」天滅中共之意：虎門大橋建設-鄧小平南巡至死亡江澤民題字虎門銷煙-鴉片戰爭-庚子年「邪不壓正開篇—百年紅潮碰上第五代-要坐皇帝-朱潛龍遭遇7定數」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aac630b2df269e133678221abe3cafe151224b7a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aac630b2df269e133678221abe3cafe151224b7a
-
-下载BT种子 [《石濤聚焦》「官方：虎門大橋停用應来自習近平」天滅中共之意：虎門大橋建設-鄧小平南巡至死亡江澤民題字虎門銷煙-鴉片戰爭-庚子年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/723ca3fb708609bb3034577cad05d088ba34852c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:723ca3fb708609bb3034577cad05d088ba34852c
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
