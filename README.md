@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oCMhYV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cMlrsN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【511重播】總統府說明520就職大典.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcf52298fb0c645ec084d697df8d929ab5dd6f4f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fcf52298fb0c645ec084d697df8d929ab5dd6f4f
 
 下载BT种子 [中共手握《百官行述》，“号令”国际政要为其站台；美国再出手，中美脱钩成大势；防火墙拆了，中国人依然沉睡，您同意此观点吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fb0735ba42a7fcf4ad6cca202f4bdda1d26f55b.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】5月3日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42d7cf634b921aeb04c67172ceda1f824044518b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42d7cf634b921aeb04c67172ceda1f824044518b
-
-下载BT种子 [【禁闻】路透：中国4月进出口或现两位数降幅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27fcddfa20f1518f84af1bcf413f52148d138f25.torrent)
-
-磁力链接 magnet:?xt=urn:btih:27fcddfa20f1518f84af1bcf413f52148d138f25
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
