@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mejQGO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3ykELr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】戴安娜·韋斯特：他們不是在捍衛憲法誓言而是在踐踏憲法！共產主義意識形態已滲透到美國情報機構？在調查間諜門醜聞的過程中，發現了有關他們信仰的秘密！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5284ee757db2d0ee132499ebc5a9bc17ea42043c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5284ee757db2d0ee132499ebc5a9bc17ea42043c
 
 下载BT种子 [《濤哥侃封神》「封神演義第五十五回土行孫歸服西岐」懼留孫設計抓徒兒更惱因色累自身掐指一算甚無奈更遣宜生說姻緣土行孫又因貪色得生路前世姻緣本世了無人敢阻足下牽（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d890819197714212386c58168dac09ecd780214.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共鷹派將領「逆反」阻攻台，美國干預台海的第四種方法；「超限戰」與川普的「終極制裁」（文昭談古論今20200506第746期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3cb3bf09056d2d3efe6afd66fb7cf4089c8801b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b3cb3bf09056d2d3efe6afd66fb7cf4089c8801b
-
-下载BT种子 [【环球直击】5月7日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0d2559c5e8935cc153ab1bd25472f0b903d175c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e0d2559c5e8935cc153ab1bd25472f0b903d175c
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
