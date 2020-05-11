@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P6exp4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s16jS1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【特別報導】養虎為患華爾街的省思.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/607cd8ae9fb23fa5f2fff9b41b90986f92f6f045.torrent)
+
+磁力链接 magnet:?xt=urn:btih:607cd8ae9fb23fa5f2fff9b41b90986f92f6f045
 
 下载BT种子 [【禁闻】5月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac739373b4f1a042592d218a4cdf2a30bc2d9c02.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [突发奇案！土共在美国动手了？国际调查难点：没有证据？中国人争相表达爱国心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fac64b40d8a2a566f3b3bb561b6e9667a042725a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fac64b40d8a2a566f3b3bb561b6e9667a042725a
-
-下载BT种子 [《石濤聚焦》「川普死對頭CNN主持接連被中共病毒」川普依然拒絕口罩😷更甚會拒絕疫苗「除非對美國國家有利」（0605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/967fbfb7a3b269d90aece703de0fadfe5b97cbf9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:967fbfb7a3b269d90aece703de0fadfe5b97cbf9
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
