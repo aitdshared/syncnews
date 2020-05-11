@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LSRBru)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/n4wmyn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【瘟疫與中共】城市外交：姐妹城背後的中共滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e75d4f4234db1aa43190bc7fde387d4baebe773.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e75d4f4234db1aa43190bc7fde387d4baebe773
+
+下载BT种子 [俄羅斯連9天確診破萬英法開始放寬限制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0f42e9f413befbfc993423739c477f5ba54d801.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0f42e9f413befbfc993423739c477f5ba54d801
 
 下载BT种子 [《石濤聚焦》「以色列總理納塔尼亞胡：陰轉陽-如二次爆發將【終結人類】」各國政府失效-國家崩潰「吉林舒蘭市爆疫情進「戰爭狀態」11人全是公安不知來源」武漢再現社區感染擴散6人不知原因（1105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12f72b0a1cbad8ea0c25918d1505240953e49a10.torrent)
 
@@ -612,10 +620,6 @@
 下载BT种子 [【禁闻】筹款建疫情纪念碑武汉市民遭传唤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecc06d3322d8c3e50db1018f03d56b5a33bb73ec.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ecc06d3322d8c3e50db1018f03d56b5a33bb73ec
-
-下载BT种子 [【禁闻】5月6日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8cce5a1243b25c3dd5a7b1f0bb8a8bfea88bf2a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c8cce5a1243b25c3dd5a7b1f0bb8a8bfea88bf2a
 
 下载BT种子 [【禁闻】5月6日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e252d9aa6288de0a881c39d1a1f5bdf7ed852c79.torrent)
 
