@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/68q94u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eYYh9r)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平突然释放前政治局委员！两会前的神秘用意。某政治老人干了两件事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/482b93259bbaecacfe89af55325ea3088f975777.torrent)
+
+磁力链接 magnet:?xt=urn:btih:482b93259bbaecacfe89af55325ea3088f975777
 
 下载BT种子 [【环球直击】5月11日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a74330a6a562a81832622afa974e06b745c4c41.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「官方：虎門大橋停用應来自習近平」天滅中共之意：虎門大橋建設-鄧小平南巡至死亡江澤民題字虎門銷煙-鴉片戰爭-庚子年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/723ca3fb708609bb3034577cad05d088ba34852c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:723ca3fb708609bb3034577cad05d088ba34852c
-
-下载BT种子 [【禁闻】曾助中共建武汉P4实验室法国疫情严重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27833d20dcf1ffa1bcf879c811b325607ccd254b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:27833d20dcf1ffa1bcf879c811b325607ccd254b
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
