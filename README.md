@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FYVlQw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t39qPc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [旅港北京人：央視全是騙人的新唐人這兒說真話大陸人最喜歡看你們的電視.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2066653a8340fec6af10e3748079a904e63f0be6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2066653a8340fec6af10e3748079a904e63f0be6
 
 下载BT种子 [高智晟被強制失蹤1000天死不明妻子營救丈夫四處奔走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70d993dde1a8ea2b17a59ba713fd4d565a9c391d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】曾助中共建武汉P4实验室法国疫情严重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27833d20dcf1ffa1bcf879c811b325607ccd254b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27833d20dcf1ffa1bcf879c811b325607ccd254b
-
-下载BT种子 [【禁闻】世卫大会在即美国务院发推文挺台湾.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/247429f5e2488b76c80f7f7f7d3133cdfed661ad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:247429f5e2488b76c80f7f7f7d3133cdfed661ad
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
