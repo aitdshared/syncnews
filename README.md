@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AgY5LM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KK5rJt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】世界各地法轮功学员恭祝师尊生日快乐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85a96029835fddd5b1348d8b93dd7bbfcfc1c2f9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:85a96029835fddd5b1348d8b93dd7bbfcfc1c2f9
 
 下载BT种子 [【禁闻】德情报局：习近平要求谭德塞压下疫情讯息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9da2c024fea82a0b14ee2c2325ff24b86b2632a6.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【中國解密】中共肺炎疫情監控模式是否會到美國？中共是否從新冠疫情中恢復過來？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/750a6d80bed6b524a7c11136351ca53f23a22052.torrent)
 
 磁力链接 magnet:?xt=urn:btih:750a6d80bed6b524a7c11136351ca53f23a22052
-
-下载BT种子 [【中國禁聞】5月5日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8b5708c48f3a04adbc8da8246c3123fa13024f8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c8b5708c48f3a04adbc8da8246c3123fa13024f8
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
