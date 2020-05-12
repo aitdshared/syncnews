@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DgP8jz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CcVXiv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中国大陆法轮功学员恭贺师尊华诞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f0dcef5b4f8e5e51870d78af5f1c1f1e3c122de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f0dcef5b4f8e5e51870d78af5f1c1f1e3c122de
+
+下载BT种子 [【微视频】美国官员分清中共与中国让中共暴怒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65a29c2cd2203b118beca4a68ebf3df683332568.torrent)
+
+磁力链接 magnet:?xt=urn:btih:65a29c2cd2203b118beca4a68ebf3df683332568
 
 下载BT种子 [習近平逆襲「80國聯軍」，擬對澳洲徵關稅；新華社24條無死角甩鍋，川普弱點暴露（20200511第748期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbcca47f8b98ce59ba2074fe14067098979579e3.torrent)
 
@@ -609,10 +617,6 @@
 
 磁力链接 magnet:?xt=urn:btih:a4fbec915ce7dcaa2a7adecf857211e05ad14c46
 
-下载BT种子 [與中共脫鉤美議員將提案助美企回遷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9865792ae2ffecabdfb3d5b3fba29e7ebb77fdf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9865792ae2ffecabdfb3d5b3fba29e7ebb77fdf
-
 下载BT种子 [蓬佩奧就疫情再批中共支持台灣參與世衛大會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b65627a06deb941bb1593ca1b4e0f41b6e9da33a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b65627a06deb941bb1593ca1b4e0f41b6e9da33a
@@ -620,10 +624,6 @@
 下载BT种子 [海外確診逾371萬英國俄羅斯醞釀解封俄羅斯儘管連日新增破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d931d6dc640899dade6ddc42f2c395b57c6c10f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0d931d6dc640899dade6ddc42f2c395b57c6c10f
-
-下载BT种子 [美德聯手中共病毒疫苗進入人體試驗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21e29be3b26ae0b85592feb65fdf4aef88c63b0e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21e29be3b26ae0b85592feb65fdf4aef88c63b0e
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
