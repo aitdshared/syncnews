@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Udd9Jt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5dEf6n)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月12日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84b9e90ec557c3e28018f91fb95f2c36857d4633.torrent)
+
+磁力链接 magnet:?xt=urn:btih:84b9e90ec557c3e28018f91fb95f2c36857d4633
 
 下载BT种子 [【512重播】世衛稱13國提案邀請台灣參加WHA外交部回應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6d17adfedc35ccca075330e4dd347b4be3ad228.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁闻】四家公司获批疫苗临床试验两家曾涉疫苗丑闻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8322d8ec1c6b9eaf196b1e67effa03680afae801.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8322d8ec1c6b9eaf196b1e67effa03680afae801
-
-下载BT种子 [【环球直击】５月７日完整版（２）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da91c814a34875c7b6149dc0c85a57a93d1ded7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da91c814a34875c7b6149dc0c85a57a93d1ded7f
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
