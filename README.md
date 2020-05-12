@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jaj8bg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7UGssm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「納瓦羅：武漢肺炎病毒僅60天摧毀川普3年建立的美國偉大」明言美方已掌握：零號病人出現時間病毒原發出WHO與中共聯手坑害人類罪證中共國大發人類滅頂之災之大財（1105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/268ad358cf26603adfec8ee2fff88aa905490890.torrent)
+
+磁力链接 magnet:?xt=urn:btih:268ad358cf26603adfec8ee2fff88aa905490890
 
 下载BT种子 [在台湾不能提中华民国，台湾的大学怕什么？韩国出口—46%，轿车出口—80%，还没到谷底.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b8869290ce72b50fec1aa8e46f7ca814d22b962.torrent)
 
