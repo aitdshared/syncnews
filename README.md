@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](请再刷新)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SQbv3B)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美元荒、中共慌；貨幣互換、「絞龍索」；疫苗黑客或觸發戰爭機制（文昭談古論今20200512第749期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b328fc23627d036a8b41a3ebf4148b9e596a1e27.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b328fc23627d036a8b41a3ebf4148b9e596a1e27
 
 下载BT种子 [【513專題】法輪大法好全世界都知道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fc2e78b0248536cd6e24f24362e3e61abcc7628.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【新唐人重播】58總統蔡英文宣布蘇貞昌續任閣揆.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8563e20efcc9f2a7f7bdfb2f60ad2c15eab8c42f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8563e20efcc9f2a7f7bdfb2f60ad2c15eab8c42f
-
-下载BT种子 [【中国禁闻】5月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8ace0169e00fbe8ae44877d4432f93e0a46e6e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a8ace0169e00fbe8ae44877d4432f93e0a46e6e5
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
