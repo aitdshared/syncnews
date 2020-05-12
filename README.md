@@ -21,13 +21,45 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1wVyXu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u04QV6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美食滑翔而下疫情下瑞典「一桌一人」餐廳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c5f905b78b84c3de5f318c1837626179293072a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5c5f905b78b84c3de5f318c1837626179293072a
+
+下载BT种子 [【全球新闻】各国解封进行时伊朗海军摆乌龙姐妹城背后的中共（5月11日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0dfabf5761d9afb0abcd2c7f556a0f4ab2206a06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0dfabf5761d9afb0abcd2c7f556a0f4ab2206a06
+
+下载BT种子 [特斯拉狀告左派政策專家：恢復生產優於一味補貼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fc6162a87dcb4711f6fa3b707a1d25ab2b9966d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3fc6162a87dcb4711f6fa3b707a1d25ab2b9966d
+
+下载BT种子 [母親節港警濫捕逾230人台立委：天理不容.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4505e41b9d81957c39510fdd6a522d32ae592d10.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4505e41b9d81957c39510fdd6a522d32ae592d10
+
+下载BT种子 [中國大陸以外感染人數升至416萬英國謹慎俄國大膽各國解封進行時.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f0c6c608f1fc5457df6894d826ca3cb1197766d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6f0c6c608f1fc5457df6894d826ca3cb1197766d
+
+下载BT种子 [伊朗海軍擺烏龍導彈擊中自家軍艦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29cb27a5abe5d00a391ac6a5e2d547eb25045769.torrent)
+
+磁力链接 magnet:?xt=urn:btih:29cb27a5abe5d00a391ac6a5e2d547eb25045769
+
+下载BT种子 [習近平施壓譚德塞美議員﹕世界要真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/121688678c9d5cfd32cd4495677af81eeb180cd3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:121688678c9d5cfd32cd4495677af81eeb180cd3
+
+下载BT种子 [川普美病毒檢測能力領先密切監視中共企圖對美國疫苗研究的竊取.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f31aa5e48c1e527ff166796135505726c3d27f04.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f31aa5e48c1e527ff166796135505726c3d27f04
 
 下载BT种子 [【513話感恩】人生低潮幸得大法台大醫師謝師恩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a0035e2fce4eefe138dcc2b17e40586e149438f.torrent)
 
@@ -592,38 +624,6 @@
 下载BT种子 [《石濤.News》「華裔學者劉斌被殺細節公佈陰謀論四起」中共國即刻宣布疫苗動物實驗成果兇手顧浩有共同‘親密夥伴’上市公司主管已入美國籍「劉斌無身份遇害時妻子不在」案情移交聯邦（0705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c40e04b5b00bc5d0af8ebc382a8fd9591c00412.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0c40e04b5b00bc5d0af8ebc382a8fd9591c00412
-
-下载BT种子 [【环球直击】人权律师文东海被中共国保约谈广东家具展因疫情一再延期(5月7日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3764f3d7528f787168e2ac4b2cfbb060ebd14ed2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3764f3d7528f787168e2ac4b2cfbb060ebd14ed2
-
-下载BT种子 [【中國禁聞】5月6日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef354b5facbadb5d164e4aac6f65d193b3c31146.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ef354b5facbadb5d164e4aac6f65d193b3c31146
-
-下载BT种子 [澳洲记者犀利提问，耿爽尴尬；被要求政治正确，港台艺人万马齐喑；80后的我是《后浪》还是前浪？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00f8cd14751f334488d358dc8c6e85fe9a785aaf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:00f8cd14751f334488d358dc8c6e85fe9a785aaf
-
-下载BT种子 [白宮副國安顧問中文演講爆紅網絡；央視罵班農，網友腦洞大開：班農是班加西農民！中共當今面對國際敵意堪比六四後？Jason趙培熱點互動05062020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74297048aebe773140604c4051720c7b5736189b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:74297048aebe773140604c4051720c7b5736189b
-
-下载BT种子 [【中国禁闻】5月6日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c6dc22702d09003af617efb829397a9d18f693d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5c6dc22702d09003af617efb829397a9d18f693d
-
-下载BT种子 [【全球新闻】5月6号完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfd31b6d45e7937fde50ce81de5486de777aa9f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cfd31b6d45e7937fde50ce81de5486de777aa9f2
-
-下载BT种子 [【美國思想領袖】美國國會眾議員馬克·沃克：😷口罩反映出供需關係，這是一場人道主義危機！中共數據不可信？每天數萬次網絡襲擊「誤導」幾乎成了中共的本能🦠中共病毒對經濟的影響！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bf1062a86bdef70374dfa8276e3543454f6e4f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7bf1062a86bdef70374dfa8276e3543454f6e4f4
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十二回絕龍嶺聞仲歸天」聞太師逢“絕”必死乃命中所定必無生機雲中子八根通天神火柱各含49條火龍時空盡絕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40a84ae633cc3f8f8d0f87cace20f8418fff2ff7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40a84ae633cc3f8f8d0f87cace20f8418fff2ff7
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
