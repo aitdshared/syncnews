@@ -29,6 +29,10 @@
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
 
+下载BT种子 [【513專題】法輪大法好全世界都知道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fc2e78b0248536cd6e24f24362e3e61abcc7628.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fc2e78b0248536cd6e24f24362e3e61abcc7628
+
 下载BT种子 [《石濤聚焦》「法媒：病毒從沒有被消滅過武漢人怕死了！」東西湖小區再被封鎖不知源頭因由武漢人焦慮與警察衝突對政府完全不信任「公共環境全部電子監控相生相剋中共國社會崩潰—天下最易發生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73efed3b41099a80836b55664bff04b8dbece917.torrent)
 
 磁力链接 magnet:?xt=urn:btih:73efed3b41099a80836b55664bff04b8dbece917
@@ -620,10 +624,6 @@
 下载BT种子 [【中国禁闻】5月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8ace0169e00fbe8ae44877d4432f93e0a46e6e5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a8ace0169e00fbe8ae44877d4432f93e0a46e6e5
-
-下载BT种子 [习近平指示乔良：武统台湾无限期拖延？中共再拒世卫调查！华春莹替王全璋喊冤？老北京茶馆第303集20200507）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a94e5129da02617234455b6ebfab9f5438ce9ff2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a94e5129da02617234455b6ebfab9f5438ce9ff2
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
