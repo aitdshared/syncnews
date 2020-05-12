@@ -21,13 +21,1282 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BpPqot)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](<!DOCTYPE html>
+<html xmlns="http://www.w3.org/1999/xhtml">
+<head>
+<meta http-equiv="Content-Type" content="text/html; charset=utf-8" />
+<meta name="viewport" content="width=device-width, initial-scale=1" />
+<title>网门</title>
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
+</head>
+<body><style type="text/css">
+body {margin:0; color:#303030; font-size:14px; line-height:24px; font-family:Warnock,Georgia,Helvetica,Arial,Microsoft YaHei; background:#ffffff;}
+table {margin:auto; border:solid 2px #000000; border-spacing:0px; border-collapse:collapse; word-wrap:break-word; width:100%;}
+td {border:solid 1px #000000; padding:6px;}
+th {border:solid 1px #000000; padding:6px;}
+h1 {line-height:36px;}
+li {text-align:justify; word-wrap:break-word;}
+textarea {line-height:20px; font-family:Warnock,Georgia,Helvetica,Arial,Microsoft YaHei;}
+textarea.editv {height:90px; width:100%; margin:0px; padding:6px; box-sizing:border-box; outline:none; border-style:solid; border-color:#ff8000; border-width:1px; box-shadow:0px 0px 3px 0px rgba(255,128,0,0.5) inset; overflow-x:hidden; resize:vertical;}
+label.li2v {color:#c06e1b; border:solid 1px #c06e1b; border-radius:2px;}
+
+a:link {text-decoration:none; color:#c06e1b;}
+a:visited {text-decoration:none; color:#c06e1b;}
+a:hover {text-decoration:none; color:#c06e1b;}
+a:active {text-decoration:none; color:#c06e1b;}
+
+p {line-height:24px; margin:6px 0; text-align:justify; word-wrap:break-word;}
+p.carb {margin:0px; word-wrap:break-word;}
+p.head {margin:0px 0px 3px 0px; color:#c06e1b; font-size:15px; word-break:break-word;}
+p.artl {font-size:15px; margin:12px 0; line-height:24px;}
+p.artb {font-size:22px; margin:18px 0; line-height:36px;}
+p.artv {font-size:14px; margin:2px 0;  line-height:23px;}
+p.artc {text-align:center;}
+p.namv {font-size:15px; margin:0px; color:#c06e1b;}
+p.home {font-size:15px; margin:12px 0 0 15px;}
+
+font.title {color:#303030; font-size:17px;}
+font.count {color:#d9c5a0; font-size:13px;}
+font.quest {color:#ff8040; font-size:15px;}
+font.upper {color:#4080ff; line-height:12px;}
+font.notes {color:#c0c0c0;}
+font.black {color:#000000;}
+font.grey {color:#303030;}
+font.fontn {color:#c06e1b;}
+font.fontm {color:#d000ff;}
+font.silver {color:#e6e8fa;}
+font.link {color:#c06e1b;}
+font.linn {color:#dda839;}
+font.linv {color:#ff8000;}
+font.li2v {color:#c06e1b; border:solid 1px #c06e1b; border-radius:2px;}
+font.li3v {color:#ffffff; background-color:#ff00ff;}
+font.season {color:#303030;}
+font.ques {color:#ff8040;}
+font.answ {color:#4080ff;}
+font.user {font-size:12px;}
+
+div.ogad {width:100%; height:100px; margin:0 auto; overflow:hidden;}
+div.main {margin:0 auto; width:1000px;}
+div.maim {padding:0 40px;}
+div.code {margin:0 auto; width:160px; height:160px;}
+div.card {margin:12px 12px  10px 12px; height:194px; overflow:hidden;}
+div.carm {margin:12px 12px  10px 12px; height:194px; overflow:hidden;}
+div.carh {margin:12px 12px  10px 12px; height:194px; overflow:hidden;}
+div.carl {margin:12px 12px  12px 12px; overflow:hidden;}
+div.carn {margin:12px 12px   4px 10px; height:80px;  overflow:hidden;}
+div.carv {margin:18px 18px   6px 18px; overflow:hidden;}
+div.ca1v {margin: 0px  0px   0px  0px; height:135px; overflow:hidden;}
+div.ca2v {padding:0px 18px  18px 18px; overflow:hidden;}
+div.ca3v {padding:12px 0px  12px  0px; overflow:hidden; background-color:rgba(250,242,225,0.5);}
+div.ca4v {padding:6px  0px   6px  0px; overflow:hidden; background-color:rgba(250,242,225,0.5);}
+div.ca5v {padding:18px 18px 18px 18px; overflow:hidden; background-color:transparent;}
+div.cahv {margin: 0px  0px   0px  0px; height:90px; overflow:hidden;}
+div.cari {padding:3px 12px; background-color:rgba(250,242,225,0.5);}
+div.info {margin:0px; height:24px; overflow:hidden; background-color:rgba(250,242,225,0.5);}
+div.infd {width:40%; text-align:center; float:left; overflow:hidden;}
+div.infs {width:30%; text-align:center; float:left; overflow:hidden;}
+div.infz {width:0%;  text-align:center; float:left; overflow:hidden;}
+div.inod {width:28%; text-align:center; float:left; overflow:hidden;}
+div.inos {width:18%; text-align:center; float:left; overflow:hidden;}
+div.inoz {width:18%; text-align:center; float:left; overflow:hidden;}
+div.picp {margin:0px 12px 5px 0px; width:120px; height:120px; border-radius:50%; float:left; overflow:hidden;}
+div.picm {margin:0px 12px 5px 0px; width:120px; height:120px; border-radius:50%; float:left; overflow:hidden;}
+div.pich {margin:0px 12px 5px 0px; width:120px; height:180px; border-radius:4px; float:left; overflow:hidden;}
+div.picb {margin:0px 12px 5px 0px; width:120px; height:180px; border-radius:4px; float:left; overflow:hidden;}
+div.picn {margin:0px 12px 0px 0px; width: 80px; height: 80px; border-radius:50%; float:left; overflow:hidden;}
+div.picmm {margin:0px 12px 0px 0px; width: 80px; height: 80px; border-radius:0px; float:left; overflow:hidden;}
+div.picv {margin:0px 10px 0px 0px; width:50px;  height:50px;  border-radius:50%; float:left; overflow:hidden;}
+div.pi2v {margin:0px  0px 0px 0px; width:90px;  height:135px; border-radius:0px; float:left; overflow:hidden;}
+div.pihv {margin:0px  0px 0px 0px; width:90px;  height: 90px; border-radius:0px; float:left; overflow:hidden;}
+div.artn {padding:6px 12px; text-align:justify; word-wrap:break-word;}
+div.artl {padding:12px 18px 12px 18px;}
+div.artv {margin:0px 0px 0px 60px;}
+div.ar1v {margin:0px 0px 0px 0px; height:76px; overflow:hidden;}
+div.ar2v {margin:12px 12px 23px 102px; height:76px; overflow:hidden;}
+div.arhv {margin:10px 12px 10px 102px; height:46px; overflow:hidden;}
+div.list {max-height:180px; overflow-y:auto;}
+div.lisa {max-height:640px; overflow-y:auto;}
+div.lisv {padding:12px 18px 10px 18px; border-top:solid 2px rgba(250,242,225,0.5);}
+div.navi {display:table; margin:0 auto 20px auto;}
+div.erro {text-align:center; color:#d000ff; padding:6px 0 0 0;}
+div.lisb {margin:5px;   border:0px; background-color:#ffffff; width:240px; height:240px; vertical-align:top; float:left; overflow:hidden; border-radius:2px;}
+div.b {margin:5px;   border:0px; background-color:#ffffff; width:240px; height:240px; vertical-align:top; float:left; overflow:hidden; border-radius:2px; box-shadow:0 0 5px 1px rgba(0,0,0,0.1);}
+div.lisl {margin:5px 0; border:0px; background-color:#ffffff; width:100%; height:auto;   vertical-align:top; float:left; overflow:hidden; border-radius:2px;}
+div.l {margin:5px 0; border:0px; background-color:#ffffff; width:100%; height:auto;   vertical-align:top; float:left; overflow:hidden; border-radius:2px;}
+div.liso {margin:5px 0; border:0px; background-color:transparent; width:100%; height:auto; vertical-align:top; float:left; overflow:hidden;}
+div.o {margin:5px 0; border:0px; background-color:transparent; width:100%; height:auto; vertical-align:top; float:left; overflow:hidden;}
+
+div.buttoncontainer {display:table; margin:0 auto;}
+div.button {background-color:#ffc0ff; width:120px; height:24px; line-height:24px; text-align:center; font-size:15px; float:left; box-shadow:0 0 5px 1px rgba(0,0,0,0.1);}
+div.button2 {background-color:#ffffff; width:48px; height:24px; line-height:24px; text-align:center; font-size:15px; float:left; box-shadow:0 0 5px 1px rgba(0,0,0,0.1); margin:5px;}
+div.button3 {background-color:#ffffff; width:60px; height:24px; line-height:24px; text-align:center; font-size:15px; float:left; box-shadow:0 0 5px 1px rgba(0,0,0,0.1); margin:5px;}
+div.ogHeadM {display:none;}
+div.videocontainer {position:relative; line-height:0;}
+div.videocontrol {position:absolute; top:0; width:100%; height:30px; color:#ffffff; background-color:#000000; opacity:0; z-index:99992;}
+div.videocontrol:hover {opacity:0.5;}
+div.videobutton {margin:5px; width:40px; height:18px; border:1px solid; border-color:#ffffff; text-align:center; line-height:18px; float:right;}
+
+div.slides {position:relative; line-height:0;}
+div.slide {display:none; animation:slide 0s; -webkit-animation:slide 0s;}
+div.sldot {cursor:pointer; height:15px; width:15px; margin:0 2px; background-color:rgba(255,255,255,0.5); border-radius:50%; display:inline-block;}
+div.sldots {position:absolute; bottom:6px; left:50%; transform:translate(-50%,0%); -webkit-transform:translate(-50%,0%);}
+div.active,div.sldot:hover {background-color:rgba(255,255,255,0.8);}
+div.slide img {width:100%; object-fit:cover; height:180px;}
+a.prev,a.next {cursor:pointer; position:absolute; top:50%; padding:16px 8px; font-weight:bold; font-size:18px; color:#faf2e1; border-radius:0 5px 5px 0; user-select:none; transform:translate(0%,-50%); -webkit-transform:translate(0%,-50%);}
+a.next {right:0; border-radius:5px 0 0 5px;}
+a.prev:hover,a.next:hover {background-color:rgba(255,255,255,0.5);}
+@keyframes slide {from {opacity:0.2} to {opacity:1}}
+@-webkit-keyframes slide {from {opacity:0.2} to {opacity:1}}
+
+div.navl {position:fixed; z-index:99993; top:0px; left:50%; width:100%; height:40px; transform:translate(-50%,0%); -webkit-transform:translate(-50%,0%); background:rgba(0,0,0,0);}
+div.find {width:300px; height:28px; border:0; border-radius:3px; background:#ffffff; opacity:0.8; position:absolute; top:6px; left:50%; transform:translate(-50%,0%); -webkit-transform:translate(-50%,0%);}
+div.find input {width:245px; height:28px; line-height:28px; border:0; padding:0 6px; border-radius:3px; outline:none;}
+
+div.navt {margin:12px auto; height:44px; overflow-x:auto; overflow-y:hidden;}
+div.navt ul {margin:0; height:64px; padding:0 6px; overflow-x:auto; overflow-y:hidden; white-space:nowrap;}
+div.navt ul li {display:inline-block; height:24px; padding:0 12px; line-height:16px; text-align:center;}
+div.navt ul li img {height:100%;}
+
+div.navm {margin:6px auto; height:140px; overflow-x:auto; overflow-y:hidden; position:relative;}
+div.navm ul {margin:0; height:160px; padding:0 9px; overflow-x:auto; overflow-y:hidden; white-space:nowrap;}
+div.navm ul li {display:inline-block; height:120px; width:120px; padding:0 6px; line-height:16px; text-align:left;}
+div.navm ul li img {height:100%; border-radius:8px;}
+div.home {font-size:15px; margin:12px 0 0 15px; float:left;}
+
+div.navh {margin:6px auto; height:200px; overflow-x:auto; overflow-y:hidden; position:relative;}
+div.navh ul {margin:0; height:220px; padding:0 9px; overflow-x:auto; overflow-y:hidden; white-space:nowrap;}
+div.navh ul li {display:inline-block; height:180px; width:120px; padding:0 6px; line-height:16px; text-align:left;}
+div.navh ul li img {height:100%; border-radius:4px;}
+
+div.navb {background-color:#faf2e1; height:40px; width:100%; position:fixed; bottom:0; left:0; z-index:99996; box-shadow:0 0 50px rgba(0,0,0,0.5);}
+div.navb ul {padding:0; margin:-12px 0;}
+div.navb ul li {display:inline-block; height:24px; width:20%; line-height:16px; text-align:center; float:left;}
+div.navb ul li img {height:100%; border-top-left-radius:50%; border-top-right-radius:50%; background-color:#faf2e1; box-shadow:0 0 0 3px #faf2e1;}
+
+img {border:0px;}
+img.artl {max-width:460px; width:100%; margin:6px auto; display:block;}
+img.post {width:290px; margin:0 auto; display:block;}
+img.imgm {width:100%; height:100%; object-fit:cover;}
+img.imgn {width:100%; height:100%; object-fit:cover;}
+img.imgw {height:100%;}
+
+.key {background-color:transparent; font-size:15px;}
+
+.nav {width:300px; margin:0 auto; background:rgba(255,255,255,0.8); color:#c06e1b; border-radius:2px;}
+.nav a {display:block; padding:0 10px; cursor:pointer;}
+.nav__menu {line-height:28px; font-size:15px; text-align:center; width:100%; list-style:none; padding:0; margin:0;}
+.nav__menu-item {display:inline-block; position:relative; z-index:1;}
+.nav__menu-item:hover {background:rgba(255,255,255,0.8);}
+.nav__menu-item:hover .nav__submenu {display:block;}
+.nav__submenu {display:none; position:absolute; background:rgba(255,255,255,0.8); box-shadow:0 0 50px rgba(0,0,0,0.5); list-style:none; padding:0; margin:0;}
+.nav__submenu-item:hover {background:rgba(255, 255, 255, 0.8);}
+
+.navv {width:100%; height:30%; opacity:0; position:absolute; top:0;}
+.navv:hover {opacity:0.8;}
+
+video {background-color:#000000; max-height:562.5px;}
+video::cue {color:#ffffff; text-shadow:0px 0px 5px #000000, 0px 0px 5px #000000, 0px 0px 5px #000000; background:rgba(0,0,0,0.01);}
+video::cue(c.s) {font-size:smaller;}
+video::cue(c.l) {font-size:larger;}
+[data-player] {width:100% !important; height:auto !important;}
+[data-player]:after {content:'.'; display:block; position:relative; padding:56.25% 0 0 0; margin:0 0 0 -100%; visibility:hidden; height:0;}
+.video-js {width:100% !important; height:auto !important;}
+.video-js:after {content:'.'; display:block; position:relative; padding:56.25% 0 0 0; margin:0 0 0 -100%; visibility:hidden; height:0;}
+
+div.player-container {position:fixed; bottom:6px; left:50%; height:60px; width:60px; border-radius:50%; overflow:hidden; background-color:#faf2e1; box-shadow:0 0 3px 6px #faf2e1; z-index:99997; transform:translate(-50%,0); -webkit-transform:translate(-50%,0);}
+div.player-cover {height:100%; width:100%; border-radius:50%; background:url(/Ups/网站/网门/唱片.png); background-size:cover;}
+div.playing div.player-cover {opacity:1; display:inline-block; animation:around-the-world 6s linear infinite; -webkit-animation:around-the-world 6s linear infinite;}
+div.player-button {position:absolute; top:50%; left:50%; width:32px; height:32px; background:url(/Ups/网站/网门/播放.png); background-size:cover; border-radius:50%; cursor:pointer; transition:all 1s ease; transform:translate(-50%,-50%); -webkit-transform:translate(-50%,-50%);}
+div.playing div.player-button {background:url(/Ups/网站/网门/暂停.png); background-size:cover;}
+@keyframes around-the-world {from {transform:rotate(0deg);} to {transform:rotate(360deg);}}
+@-webkit-keyframes around-the-world {from {-webkit-transform:rotate(0deg);} to {-webkit-transform:rotate(360deg);}}
+
+@media screen and (max-width:1000px) {
+div.main {width:100%;} div.maim {padding:0;}
+div.slide img {height:auto;}
+div.lisb {margin:5px 0; width:100%; height:100%;}
+div.carm {height:80px;} div.carh {height:120px;}
+div.picm {width:80px; height:80px; border-radius:50%;} div.pich {width:80px; height:120px; border-radius:4px;}
+p.head {margin:0px 0px 3px 0px;} p.carb {height:72px; overflow:hidden;}
+img.artl {width:100%;}
+div.infd {width:28%;}
+div.infs {width:18%;}
+div.infz {width:18%;}
+}
+
+@media screen and (orientation:landscape) and (max-height:480px) {}
+</style>
+<div class="navl">
+  <div class="nav" style="margin:6px auto;">
+  <ul class="nav__menu">
+    <li class="nav__menu-item"><a>栏目</a>
+      <ul class="nav__submenu">
+        <li class="nav__submenu-item"><a href="show.aspx?name=ogHome">全部</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og头条">头条</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og评论~time">评论</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og博客~time">博客</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og问答~time">问答</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og博主~time">作者</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og精选~mark">精选</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管~time">油管</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og推特~time">推特</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og维基~time">维基</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og课堂~time">课堂</a></li>
+      </ul>
+    </li>
+    <li class="nav__menu-item"><a>精选</a>
+      <ul class="nav__submenu">
+        <li class="nav__submenu-item"><a href="show.aspx?name=og新闻">新闻</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og话坛">话坛</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og纪录">纪录</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og影片">影片</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og剧集">剧集</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og动漫">动漫</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og综艺">综艺</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og声音">声音</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og图书">图书</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og辞条">辞条</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og直播">直播</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og软件">软件</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og网站">网站</a></li>
+      </ul>
+    </li>
+    <li class="nav__menu-item"><a>油管</a>
+      <ul class="nav__submenu">
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管时事">时事</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管评论">评论</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管时尚">时尚</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管烹饪">烹饪</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管居家">居家</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管旅行">旅行</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管科技">科技</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管探索">探索</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管娱乐">娱乐</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=og油管学习">学习</a></li>
+      </ul>
+    </li>
+    <li class="nav__menu-item"><a>功能</a>
+      <ul class="nav__submenu">
+        <li class="nav__submenu-item"><a href="show.aspx?name=ogBack.aspx">反馈</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=ogQuit.aspx">三退</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=c816733">安卓</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=ogUser.aspx">个人</a></li>
+        <li class="nav__submenu-item"><a href="show.aspx?name=ooDown">下载</a></li>
+        <li class="nav__submenu-item"><a href="javascript:void(0);" onclick="javascript:document.getElementById('ooSize').innerHTML='<style>body {font-size:15px;} p.artl {font-size:22px; margin:18px 0; line-height:36px;}</style>';">大字</a></li>
+        <li class="nav__submenu-item"><a href="javascript:void(0);" onclick="javascript:document.getElementById('ooSize').innerHTML='';">小字</a></li>
+      </ul>
+    </li>
+    <li class="nav__menu-item"><a href="show.aspx?name=ooFind.aspx">搜索</a></li>
+  </ul>
+  </div>
+</div>
+
+<div class="slides">
+  <div class="slide"><a href="show.aspx?name=c922850"> <img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaKnWaJ.n9bGO.nWl/!ox!s9!qK!ox!Js!qq/!ox!s9!qK!oq!qx!Jr/!o1!sr!J9!oE!J1!Jo!oM!rk!rE!oM!rJ!JE!oE!sK!ra!ox!qJ!r1!ox!sJ!JS!or!rq!sS!oq!sC!sq!oq!sC!Ja.v.jpg"></a></div>
+  <div class="slide"><a href="show.aspx?name=c1020601"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaxDm2S.Dul4e.Dmd/!XI!Au!Nx!XI!SA!NN/!XI!Au!Nx!XN!NI!SH/!XV!NV!A2!Xa!N7!N2!X7!AS!AS!Xa!S7!SI!XH!Aa!NA.c.jpg"></a></div>
+  <div class="slide"><a href="show.aspx?name=c816516"> <img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628easkhon.kUtTI.khK/!3A!fU!gs!3A!nf!gg/!3A!fU!gs!3g!gA!nw/!3u!fA!gU!3a!gg!n3.Y.jpg"></a></div>
+  <div class="slide"><a href="show.aspx?name=c816694"> <img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eatNSE3.NAPRd.NSb/!uK!QA!4t!uK!3Q!44/!uK!QA!4t!u4!4K!32/!uI!3y!3K!u4!44!2e!ue!4e!QE!u4!4K!QQ!u2!3K!3z!u2!3C!QQ.6.jpg"></a></div>
+  <a class="prev" onclick="plusSlides(-1)">&#10094;</a>
+  <a class="next" onclick="plusSlides(1)">&#10095;</a>
+  <div class="sldots">
+    <div class="sldot" onclick="showSlides(1)"></div>
+    <div class="sldot" onclick="showSlides(2)"></div>
+    <div class="sldot" onclick="showSlides(3)"></div>
+    <div class="sldot" onclick="showSlides(4)"></div>
+  </div>
+</div>
+
+<div class="navt main" style="position:relative;">
+  <ul id="odNavt">
+    <li><a href="show.aspx?name=ogHome"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaQzDuN.zFmCx.zDt/!js!cF!iQ!js!Nc!ii/!js!cF!iQ!ji!is!NX/!j9!X9!NX!ji!X7!NX.png"><br><font class="black">全部</font></a></li>
+    <li><a href="show.aspx?name=og头条"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaGOYn5.OgfPj.OYF/!k4!Tg!lG!k4!5T!ll/!k4!Tg!lG!kl!l4!5h/!kN!5s!Ts!kJ!lg!5G.png"><br><font class="black">头条</font></a></li>
+    <li><a href="show.aspx?name=og精选~mark"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eayu25E.ulTQz.u2i/!O1!Pl!Ay!O1!EP!AA/!O1!Pl!Ay!OA!A1!EY/!OL!YO!EY!OY!Yl!A5.png"><br><font class="black">精选</font></a></li>
+    <li><a href="show.aspx?name=og新闻"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eajYfWv.Yn97X.Yfu/!h3!qn!5j!h3!vq!55/!h3!qn!5j!h5!53!vt/!hB!5B!qW!h5!53!qq.png"><br><font class="black">新闻</font></a></li>
+    <li><a href="show.aspx?name=og话坛"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaBUod9.Utrv1.UoH/!xP!Wt!fB!xP!9W!ff/!xP!Wt!fB!xf!fP!9e/!xe!9Y!ft!xl!ft!fW.png"><br><font class="black">话坛</font></a></li>
+    <li><a href="show.aspx?name=og纪录"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaZgn9q.gfWVK.gnm/!UQ!vf!TZ!UQ!qv!TT/!UQ!vf!TZ!UT!TQ!qo/!UQ!vq!qq!UA!vf!TA.png"><br><font class="black">纪录</font></a></li>
+    <li><a href="show.aspx?name=og影片"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaaQxyt.QwenC.QxM/!P2!ow!ha!P2!to!hh/!P2!ow!ha!Ph!h2!t7/!PH!ow!oa!P2!7h!72.png"><br><font class="black">影片</font></a></li>
+    <li><a href="show.aspx?name=og剧集"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea38Fmc.8Dupw.8Fo/!ZJ!ND!03!ZJ!cN!00/!ZJ!ND!03!Z0!0J!cK/!ZW!K0!cJ!Z0!0N!KP.png"><br><font class="black">剧集</font></a></li>
+    <li><a href="show.aspx?name=og动漫"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eadSPVw.SE7U0.SPp/!2O!xE!3d!2O!wx!33/!2O!xE!3d!23!3O!wT/!2M!Tw!wT!28!xG!wx.png"><br><font class="black">动漫</font></a></li>
+    <li><a href="show.aspx?name=og综艺"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ealJBMX.JI1F5.JB7/!ad!KI!jl!ad!XK!jj/!ad!KI!jl!aj!jd!XC/!ad!KK!KR!aC!Cj!KX.png"><br><font class="black">综艺</font></a></li>
+    <li><a href="show.aspx?name=og声音"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaQzDuN.zFmCx.zDt/!js!cF!iQ!js!Nc!ii/!js!cF!iQ!ji!is!NX/!j9!N7!cu!ji!ir!c7.png"><br><font class="black">声音</font></a></li>
+    <li><a href="show.aspx?name=og图书"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaaQxyt.QwenC.QxM/!P2!ow!ha!P2!to!hh/!P2!ow!ha!Ph!h2!t7/!PH!ho!oP!P0!oh!ti.png"><br><font class="black">图书</font></a></li>
+    <li><a href="show.aspx?name=og辞条"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaSGjKF.GZX0P.Gjw/!sW!DZ!8S!sW!FD!88/!sW!DZ!8S!s8!8W!FI/!sI!Ds!8s!sl!8Z!FS.png"><br><font class="black">辞条</font></a></li>
+    <li><a href="show.aspx?name=og直播"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eauvsBZ.vJIz2.vsE/!Wo!jJ!Lu!Wo!Zj!LL/!Wo!jJ!Lu!WL!Lo!Zb/!Wo!Lj!jO!WH!LQ!ZJ.png"><br><font class="black">直播</font></a></li>
+    <li><a href="show.aspx?name=og软件"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaNVGZ8.VLjdS.VG3/!vn!zL!eN!vn!8z!ee/!vn!zL!eN!ve!en!8s/!vs!zL!8x!vu!zz!zm.png"><br><font class="black">软件</font></a></li>
+    <li><a href="show.aspx?name=og网站"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea0P7Gy.PVLoc.P76/!TY!eV!w0!TY!ye!ww/!TY!eV!w0!Tw!wY!yq/!TY!eV!w0!TY!ye!ww.png"><br><font class="black">网站</font></a></li>
+    <li><a href="show.aspx?name=og特辑"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eawFulA.Fm26y.Fur/!KB!Sm!cw!KB!AS!cc/!KB!Sm!cw!Kc!cB!AO/!KB!Oc!Sc!KO!SK!cw.png"><br><font class="black">特辑</font></a></li>
+    <li><a href="show.aspx?name=og油管时事"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaTIMkO.I1Rmq.IMG/!pi!H1!KT!pi!OH!KK/!pi!H1!KT!pK!Ki!O6/!pn!Ki!Hn!pf!HO!6H.png"><br><font class="black">时事</font></a></li>
+    <li><a href="show.aspx?name=og油管评论"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea5B1RH.BMkuv.B1L/!C0!OM!X5!C0!HO!XX/!C0!OM!X5!CX!X0!H4/!C4!Hj!4n!C4!HC!OH.png"><br><font class="black">评论</font></a></li>
+    <li><a href="show.aspx?name=og油管时尚"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eadSPVw.SE7U0.SPp/!2O!xE!3d!2O!wx!33/!2O!xE!3d!23!3O!wT/!28!3O!x8!2M!xV!3w.png"><br><font class="black">时尚</font></a></li>
+    <li><a href="show.aspx?name=og油管烹饪"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaALZXD.LjKiE.LZx/!J9!Fj!zA!J9!DF!zz/!J9!Fj!zA!Jz!z9!DB/!J9!B5!Fz!Jz!Do!DD.png"><br><font class="black">烹饪</font></a></li>
+    <li><a href="show.aspx?name=og油管居家"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eatNSE3.NAPRd.NSb/!uK!QA!4t!uK!3Q!44/!uK!QA!4t!u4!4K!32/!uI!Qt!2I!uI!3u!Qe.png"><br><font class="black">居家</font></a></li>
+    <li><a href="show.aspx?name=og油管旅行"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eahiNA4.icSMt.iNW/!FZ!6c!Ch!FZ!46!CC/!FZ!6c!Ch!FC!CZ!4u/!Fx!CZ!us!Fu!4h!uE.png"><br><font class="black">旅行</font></a></li>
+    <li><a href="show.aspx?name=og油管科技"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea0P7Gy.PVLoc.P76/!TY!eV!w0!TY!ye!ww/!TY!eV!w0!Tw!wY!yq/!TY!yY!w0!TF!qy!qG.png"><br><font class="black">科技</font></a></li>
+    <li><a href="show.aspx?name=og油管探索"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaCxezd.xy8W4.xeR/!7T!ry!tC!7T!dr!tt/!7T!ry!tC!7t!tT!dL/!7N!L7!dO!7T!rc!dO.png"><br><font class="black">探索</font></a></li>
+    <li><a href="show.aspx?name=og油管娱乐"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eayu25E.ulTQz.u2i/!O1!Pl!Ay!O1!EP!AA/!O1!Pl!Ay!OA!A1!EY/!Op!EY!Py!OG!PA!A5.png"><br><font class="black">娱乐</font></a></li>
+    <li><a href="show.aspx?name=og油管学习"><img src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaPjXOu.jKHc7.jXy/!Ib!mK!FP!Ib!um!FF/!Ib!mK!FP!IF!Fb!uM/!Id!uK!u5!IT!mF!uO.png"><br><font class="black">学习</font></a></li>
+  </ul>
+  <a class="prev" onclick="document.getElementById('odNavt').scrollLeft-=300;">&#10094;</a>
+  <a class="next" onclick="document.getElementById('odNavt').scrollLeft+=300;">&#10095;</a>
+</div>
+
+<!--div class="main"><div class="artn" style="padding:0 18px 6px 18px;"><a href="show.aspx?name=c1125173" target="_blank">疫情互通</a> | <a href="show.aspx?name=c816733" target="_blank">环门035</a> |  | 通道一登入后「我的信息」中可以上传头像、简介</div></div-->
+
+<style type="text/css"> 
+@media screen and (max-width:1000px) {
+  div.navh {height:140px;} div.navh ul {height:160px;} div.navh ul li {height:120px; width:80px;}
+  div.navm {height:100px;} div.navm ul {height:120px;} div.navm ul li {height:80px; width:80px;}
+}
+</style>
+<script src="https://cdn.jsdelivr.net/jquery/1.12.4/jquery.min.js"></script>
+<script>
+    var ooUser="";
+    var ooPass="";
+
+    $(window).scroll(function() {if ($(document).scrollTop()>150) {$('div.navl').css('background','#faf2e1');} else {$('div.navl').css('background','rgba(0,0,0,0)');}});
+
+    var slideIndex = 1;
+    function plusSlides(n) {showSlides(slideIndex += n);}
+    function showSlides(n) {
+      var i;
+      var slides = document.getElementsByClassName("slide");
+      var dots = document.getElementsByClassName("sldot");
+      slideIndex = n;
+      if (n > slides.length) {slideIndex = 1}    
+      if (n < 1) {slideIndex = slides.length}
+      for (i = 0; i < dots.length; i++) {dots[i].className = dots[i].className.replace(" active", "");}
+      dots[slideIndex-1].className += " active";
+      for (i = 0; i < slides.length; i++) {slides[i].style.display = "none";}
+      slides[slideIndex-1].style.display = "block";
+    }
+    showSlides(slideIndex);
+
+  function Load(search) {
+    alert("该功能需要安卓版、电脑版\r\nhttps://x.co/ogate");
+  }
+
+  function Cast(search) {
+  }
+
+  function Save(search) {
+    window.open(search);
+  }
+</script><div class='main'>
+  <div style="margin:16px 0 0 0">
+    <ins class="adsbygoogle" style="display:inline-block; width:100%; height:160px" data-ad-client="ca-pub-9887006928691465" data-ad-slot="4887033834"></ins>
+  </div>
+  <div class='l' id='on新闻'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>新闻</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og新闻~time_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on新闻~time_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time"><font class='grey'>时间</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~mark">推荐</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on新闻~time_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='mxggwjwdvzcia'>
+        <li><a href="show.aspx?name=c815000" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaLHgfT.HYnEZ.HgD/!R6!25!5J!Rs!2i!TY/!R6!5R!UR!Rc!25!5Y48a.jpg"/></a><br>VOA，美国…</li>
+        <li><a href="show.aspx?name=c817120" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaocAPQ.cSEkr.cAa/!my!6y!3P!m6!6X!33/_/!m6!6l!3p!my!38!Qs!mX!3S!6X!my!6y!3P!m6!6X!33.jpg"/></a><br>阿波罗新闻</li>
+        <li><a href="show.aspx?name=c1157533" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eagaC6M.ap4Kn.aCq/!0c!Ms!Ip!0L!Ip!I1/_/!0z!cs!Mp!0L!ch!IQ.Y.jpg"/></a><br>班农，Ban…</li>
+        <li><a href="show.aspx?name=c863267" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaVKOgl.KHYSG.KO8/!1q!mq!2g!1m!mC!22/_/!1m!lq!mm!1q!2k!lD!1i!kq!2d!1i!kC!22!1q!2s!ld.7.jpg"/></a><br>香港冲击波，…</li>
+        <li><a href="show.aspx?name=c816424" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eac7Ljz.7GZrA.7LQ/!qf!y8!8m!qu!yk!zG/!qf!8q!Jq!qU!y8!8GSBH.jpg"/></a><br>美国RFA …</li>
+        <li><a href="show.aspx?name=c972635" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea7XHY2.XOgAL.XHz/!Mv!uv!lY!Mu!up!ll/_/!Mp!uF!lJ!Mv!lv!ul.jpg"/></a><br>石涛：News</li>
+        <li><a href="show.aspx?name=c923863" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea8l5q7.lTvwF.l5c/!gR!PV!VZ!gj!Pp!7T/!gR!Vg!ng!g4!PV!VTkiB.jpg"/></a><br>时事大家谈</li>
+        <li><a href="show.aspx?name=c1131385" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaQzDuN.zFmCx.zDt/!jE!iE!cu!ji!is!cc/_/!jE!iE!cu!j9!XE!Nu!js!iE!Nc!jE!X7!X9!jX!cr!cF!jX!cX!NN.3.jpg"/></a><br>新冠疫情追踪</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('mxggwjwdvzcia').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('mxggwjwdvzcia').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class='l' id='on影视'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>影视</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og影视~time_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on影视~time_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time"><font class='grey'>时间</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~mark">推荐</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on影视~time_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='mphamkwygbjcc'>
+        <li><a href="show.aspx?name=c816714" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaQzDuN.zFmCx.zDt/!js!cc!c2!jX!Xi!cN/!js!cc!XE!jX!Nr!NF!jP!cN!cN!js!iP!ir/_.jpg"/></a><br>细语人生</li>
+        <li><a href="show.aspx?name=c1015836" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eamqJIj.qsB8l.qJP/!9t!ZZ!ZM!9a!aG!Zj/_/!9x!am!jx!9x!Zj!Ztm!9V!ZM!aZm.u.jpg"/></a><br>健康1+1</li>
+        <li><a href="show.aspx?name=c1087959" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaemlTP.m2538.ml0/!HG!SG!ET!HS!SM!EE/_/!HM!SN!EZ!HG!EG!SE.jpg"/></a><br>涛哥侃封神</li>
+        <li><a href="show.aspx?name=c1169190" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaIhtrW.hodqM.htO/!wE!9W!WW!w2!9o!n2/!w2!y2!99!wy!nn!yw!wp!9y!9W!wC!ym!W6!wg!9i!nW!w2!yo!yw!w2!9r!np!wy!WI!nE!wE!nW!yp!wE!ni!yI!wC!yr!no/_.V.jpg"/></a><br>养虎为患：华…</li>
+        <li><a href="show.aspx?name=c1135941" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaaQxyt.QwenC.QxM/!P2!oo!oz!P7!7h!ot/_/!PH!tP!7a!Ph!hw!hh.jpg"/></a><br>宁静：大舞台</li>
+        <li><a href="show.aspx?name=c1008435" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaQzDuN.zFmCx.zDt/!js!cN!NN!j9!cF!i9/_/wWhR!jr!c2!iN!ji!ic!cE!jX!cs!iF!js!NE!cc!js!Ns!iQ!j9!NF!NE.jpg"/></a><br>零距离科学</li>
+        <li><a href="show.aspx?name=c1101320" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ealJBMX.JI1F5.JB7/!aC!XG!jI!ae!jI!jK/_/!ad!jj!KI!aY!jI!Ka.2.jpg"/></a><br>白松书场</li>
+        <li><a href="show.aspx?name=c816799" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eahiNA4.icSMt.iNW/!FZ!66!6E!Fu!uC!64/!FZ!6F!uF!FC!4y!Ca!Fs!4w!4C!Fs!4A!uq/_.jpg"/></a><br>美食天堂</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('mphamkwygbjcc').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('mphamkwygbjcc').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class='l' id='on声音'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>声音</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og声音~time_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on声音~time_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time"><font class='grey'>时间</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~mark">推荐</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on声音~time_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='mqkbrndxonvdc'>
+        <li><a href="show.aspx?name=c1051890" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eakricC.r0NIh.rin/!8v!Cw!pc!8a!a9!pw/_/!8Q!aQ!pc!8a!aL!pp!8L!aA!Fp!8L!FT!pa.R.jpg"/></a><br>每日新闻时段</li>
+        <li><a href="show.aspx?name=c1068480" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea96Qwh.63xga.6QI/!Su!U3!k9!Su!hU!kk/!Sk!UU!kP!SP!hS!hd.jpg"/></a><br>法轮大法日专辑</li>
+        <li><a href="show.aspx?name=c1020753" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea4e8D0.ezFb3.e8U/!LZ!0t!dz!Ln!dz!di/_/!Lq!ZL!Zi!Lq!ii!iA!LS!iA!di.6.jpg"/></a><br>王维洛访谈</li>
+        <li><a href="show.aspx?name=c1018548" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaMtdib.tr0JR.tdY/!yV!aa!aN!yz!zW!ab/!y4!zz!WM!yV!Wb!z6!yW!Wn!aQ!y6!aW!Wi!y4!zQ!aQ!y4!zQ!aQ/_.1.jpg"/></a><br>我的音乐想想</li>
+        <li><a href="show.aspx?name=c1052678" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eawFulA.Fm26y.Fur/!Kb!AG!Sl!Kc!c0!SG/_/!KB!Ab!cK!Kb!SB!cK!KO!OS!Sw!Kc!cS!OV!KV!S5!Al!Kb!Ab!OB!K0!S5!cA!KV!SO!OA!Kb!O0!AV!KV!S5!Al!Kb!Ab!OB!Kb!Sl!AB!KO!OO!c5!KB!A7!Sc.jpg"/></a><br>帝尧的故事</li>
+        <li><a href="show.aspx?name=c1068474" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaocAPQ.cSEkr.cAa/!mB!Q8!3P!m6!6p!38/_/!mX!Q6!3Q!me!3l!QS!my!6l!lm!my!lB!QX!mB!6o!Ql!mB!ll!lQ.t.jpg"/></a><br>空中明慧周刊</li>
+        <li><a href="show.aspx?name=c1008647" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaKnWaJ.n9bGO.nWl/!oE!Jk!sa!oq!qT!sk/_/!oE!JE!s9!oq!Jk!ro!oM!sa!s1!o1!sr!r9!oM!sK!rS!o1!sJ!sJ.jpg"/></a><br>好风水不求人</li>
+        <li><a href="show.aspx?name=c816650" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eatNSE3.NAPRd.NSb/!uI!3z!QE!u4!4C!Qz/_/!u2!2E!2t!uI!2V!4K!uy!Q3!3V!u2!2V!Qe!u4!3e!2e.o.jpg"/></a><br>老北京茶馆</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('mqkbrndxonvdc').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('mqkbrndxonvdc').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class='l' id='on图书'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>图书</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og图书~time_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on图书~time_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time"><font class='grey'>时间</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~mark">推荐</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on图书~time_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='mjbfuxtaiadpy'>
+        <li><a href="show.aspx?name=c951875" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eahiNA4.icSMt.iNW/!Fs!C6!6F!Fw!6C!4x/_/!Fs!C6!CF!Fs!6c!Cq!Fw!6E!4A!FZ!66!Ca.jpg"/></a><br>回归传统</li>
+        <li><a href="show.aspx?name=c1098689" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaMtdib.tr0JR.tdY/!yT!Wa!ay!y6!aW!b4/!yz!bn!WV!yW!zi!zW/_.1.jpg"/></a><br>诗选</li>
+        <li><a href="show.aspx?name=c834361" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaRd0Np.dicBU.d0f/!zq!bC!Cz!zQ!Cb!p3/_/GNb!zG!Cp!pp!zQ!Cp!DC.jpg"/></a><br>709纪事</li>
+        <li><a href="show.aspx?name=c1168584" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaCxezd.xy8W4.xeR/!7g!tr!r7!7c!rt!dN/!7L!rg!dc!7L!dA!rL!7L!dA!rL!7T!td!Lc!7g!Lg!rC!7c!rd!dT!7g!Lg!td/_.q.jpg"/></a><br>赤裸裸的共产…</li>
+        <li><a href="show.aspx?name=c816833" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaBUod9.Utrv1.UoH/!xl!fW!Wx!xC!Wf!9p/_/!xP!ff!Wx!xl!Wf!WC!xl!el!WB!xC!W9!9P!xl!el!f9.jpg"/></a><br>百年共产党</li>
+        <li><a href="show.aspx?name=c1164504" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ealJBMX.JI1F5.JB7/!ae!jK!Ka!ag!Kj!XY/!ae!Ce!XC!ad!jM!Cn!ae!Xa!jd!aY!je!jj!aC!Cd!XX!ad!jg!Kl!aY!CX!Xe!ae!jl!CX/_.0.jpg"/></a><br>2020年度…</li>
+        <li><a href="show.aspx?name=c1162578" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaqMRhY.MkUlJ.MRj/!6D!Og!g6!69!gO!YW/!6O!YW!OO!6W!gQ!YK!6W!gh!Oq!69!gQ!gg!6D!Qt!OW!6W!QO!gK!6Q!YK!gY/_.S.jpg"/></a><br>香港民主化承…</li>
+        <li><a href="show.aspx?name=c816837" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eac7Ljz.7GZrA.7LQ/!qU!y8!8q!qm!8y!zu/!qm!8y!yG!qJ!zw!Jm!qU!JU!8c!qm!8z!zf!qU!JU!yz/_.jpg"/></a><br>九评共产党</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('mjbfuxtaiadpy').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('mjbfuxtaiadpy').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class='l' id='on辞条'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>辞条</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og辞条~time_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on辞条~time_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time"><font class='grey'>时间</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~mark">推荐</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on辞条~time_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='mavtauyrraqkj'>
+        <li><a href="show.aspx?name=c1004919" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eanC4QR.C63OW.C4J/!cA!kc!Mc!ct!M6!Rn/!cA!MQ!k6!cM!RM!Rx!cZ!Rc!MA!cZ!Mn!MA/_.G.f.jpg"/></a><br>落马官员：每…</li>
+        <li><a href="show.aspx?name=c1075810" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaALZXD.LjKiE.LZx/!JB!FJ!zJ!J2!zj!DA/!JB!Fy!DF!Jo!DJ!F5!Jl!FB!BJ!JB!zX!Do!J2!zo!zA/_.S.jpg"/></a><br>迫害与营救</li>
+        <li><a href="show.aspx?name=c1093294" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea7XHY2.XOgAL.XHz/!M0!ul!lM!Mq!lu!2v/_/!M0!lM!Rl!M0!lR!RR!Mp!ll!lq!Mv!uO!RJ.jpg"/></a><br>律师维权</li>
+        <li><a href="show.aspx?name=c1045860" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eapwy8r.wez96.wyk/!VG!dV!oV!Vc!oe!rp/!VY!GY!or!Vc!oN!dU!VN!dU!rp!Vc!Gp!rU/_.C.jpg"/></a><br>党政信息揭底</li>
+        <li><a href="show.aspx?name=c1114056" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eagaC6M.ap4Kn.aCq/!0z!1p!Ig!0z!M1!II/!0I!11!Ic!0c!M0!MU.jpg"/></a><br>社会支持</li>
+        <li><a href="show.aspx?name=c1167931" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaVKOgl.KHYSG.KO8/!1C!2H!mV!1C!l2!mm/!1m!22!mk!1k!l1!lv.jpg"/></a><br>闫峰山，Ya…</li>
+        <li><a href="show.aspx?name=c1167930" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628easkhon.kUtTI.khK/!3A!fU!gs!3A!nf!gg/!3g!ff!gw!3w!n3!nb.jpg"/></a><br>郑奎，Zhe…</li>
+        <li><a href="show.aspx?name=c1167002" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaXf9bs.fWaLH.f92/!tw!JW!vX!tw!sJ!vv/!tv!JJ!vd!td!st!sM.jpg"/></a><br>倪凯，Ni，…</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('mavtauyrraqkj').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('mavtauyrraqkj').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class='l' id='on精选'>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>精选</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og精选~mark_1_1">更多</a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=on精选~mark_1_1">刷新</a></li>
+        <li class='nav__menu-item'><a>线路</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark_1_1&line=9">9</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark_1_1&line=a">A</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark_1_1&line=d">D</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>排序</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~unit">综合</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~time">时间</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark"><font class='grey'>推荐</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~page">浏览</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~hold">赞成</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~kick">反对</a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~like">收藏</a></li>
+          </ul>
+        </li>
+        <li class='nav__menu-item'><a>页数　　</a>
+          <ul class='nav__submenu'>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark_1_01"><font class='grey'>01</font></a></li>
+            <li class='nav__submenu-item'><a href="show.aspx?name=on精选~mark_1_02">02</a></li>
+          </ul>
+        </li>
+      </ul>
+    </div>
+    <div style='clear:both;'></div>
+    <div class="navh">
+      <ul id='molydphykeqia'>
+        <li><a href="show.aspx?name=c1166275" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eakricC.r0NIh.rin/!8v!p0!pk!8L!Fa!FL/!8L!pC!CT!8F!F8!pT!8F!FC!pk/_.R.jpg"/></a><br>红莲花，Re…</li>
+        <li><a href="show.aspx?name=c1108773" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaxDm2S.Dul4e.Dmd/!Xa!Au!Ax!XI!HN!HI/!Xa!Au!NW!XN!H2!N7/_.w.jpg"/></a><br>归途，Ori…</li>
+        <li><a href="show.aspx?name=c995018" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eajYfWv.Yn97X.Yfu/!h3!qv!vv!hS!qn!5S/_/!hI!qq!vI!hI!qv!qv!h5!5b!t3!hB!tM!tv!h3!5v!tI!hS!qW!qt!hI!qn!5M!hS!qj!5S.M.jpg"/></a><br>令人震惊的尸…</li>
+        <li><a href="show.aspx?name=c1037985" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaU0cS6.0NA1o.0c9/!Dj!46!66!DJ!4N!pJ/!Dx!4m!mS!Dx!4m!66!DJ!6j!pS!DJ!6j!pS!Dj!p6!mx!Dw!pJ!pU!Dm!4J!mD/_.h.jpg"/></a><br>一个姐姐的救…</li>
+        <li><a href="show.aspx?name=c1040665" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eagaC6M.ap4Kn.aCq/!0z!1M!MM!0L!1p!IL/!0L!cL!Mp!0L!I1!I1!0L!MU!Mz!0L!1g!M6!0h!Ip!c6!0s!1Q!IM!0L!cL!Mp!0h!IQ!cc!0z!IM!cU!0I!11!Ig!0L!MU!IQ/_.Y.jpg"/></a><br>六四大屠杀：…</li>
+        <li><a href="show.aspx?name=c816712" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea7XHY2.XOgAL.XHz/!Mv!uv!lY!Mu!up!ll/!MJ!RY!Rf!M0!2q!2u!M0!2M!Ru!Mu!up!2R!MR!Rp!22!Mp!Rq!u2!MJ!RY!RO!MR!lF!lO!Mv!uF!20!Mv!R2!20!M0!u7!R2/_.jpg"/></a><br>「天安门自焚…</li>
+        <li><a href="show.aspx?name=c816787" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaZgn9q.gfWVK.gnm/!UI!TI!v9!UT!TQ!vv/!UT!T1!oZ!Uo!q2!oZ!UA!qI!oN!UA!vZ!vZ/_.jpg"/></a><br>铁证如山</li>
+        <li><a href="show.aspx?name=c816837" target="_blank"><img class="imgn" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628ea38Fmc.8Dupw.8Fo/!ZW!0N!NZ!ZE!N0!cP/!ZE!N0!0D!ZK!cd!KE!ZW!KW!N3!ZE!Nc!cJ!ZW!KW!0c/_.jpg"/></a><br>九评共产党</li>
+      </ul>
+      <a class="prev" onclick="document.getElementById('molydphykeqia').scrollLeft-=300;">&#10094;</a>
+      <a class="next" onclick="document.getElementById('molydphykeqia').scrollLeft+=300;">&#10095;</a>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>头条</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og头条~time_1_2">时间</a></li>
+      </ul>
+    </div><div style="clear:both;"></div>
+  <div id="c1170038" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170038" target="_blank">全球最大主权基金面临纪录的赎回规模</a> &nbsp;<font class="count">2020-05-13 01:51</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 5</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170038&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170038" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170038&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170038" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170038&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170038" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170037" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170037" target="_blank">新兴市场风暴 何时被引爆视乎美国人？</a> &nbsp;<font class="count">2020-05-13 01:48</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 5</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170037&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170037" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170037&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170037" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170037&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170037" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170036" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170036" target="_blank">传台湾情报机关扩编 首个机动飞弹中队明年成军</a> &nbsp;<font class="count">2020-05-13 01:40</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 6</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170036&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170036" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170036&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170036" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170036&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170036" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170025" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170025" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaUA.aiNiB.P0T/611Di1/53q06N1/vSvS/SJ/a5PqD6c_T6aN-UpvzUSm.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170025" target="_blank">朱兆基：中国即使拥千枚核弹头 实力仍远不如美国</a> &nbsp;<font class="count">2020-05-13 01:40</font></p><p class="carb">5月8日，《环球时报》总编胡锡进在微博上突然发出“中国需短时间内把核弹头增至千枚”的呼声，再次震惊了中国国内舆论，如果英文媒体跟进，也必然会震惊美国国会。 胡的思路很清晰：美国政客公开与中国为敌，中美冲突在劫难逃，而且美国越来越不理性。对其...</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 10</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170025&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170025" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170025&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170025" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170025&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170025" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170022" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170022" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaTR.pgIhJBRwpm.hIw/OmmpBm/xgyIO1m/ekTK/TT/TnkKeKk9T6kKTiz6-TzkbTek.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170022" target="_blank">通缩隐忧加剧 4月大陆PPI降幅4年最大</a> &nbsp;<font class="count">2020-05-13 01:38</font></p><p class="carb">大陆4月份工业生产价格指数（PPI）降幅创下四年来最大，显示通缩压力持续加剧，疫情导致大陆工业内外需下滑，制造业乃至整体经济并没有出现反弹。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 7</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170022&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170022" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170022&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170022" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170022&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170022" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170035" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170035" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eacMc.z87R175zxQ.X7M/1FR7zGwZRq/kjkj/jUcl/kjkjjUcljclUlfujy.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170035" target="_blank">奥巴马批covid-19是灾难 特朗普批H1N1更糟 共和党参院大佬斥奥巴马闭嘴</a> &nbsp;<font class="count">2020-05-13 01:30</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 6</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170035&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170035" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170035&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170035" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170035&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170035" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170034" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170034" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaZ0Z.qvgcigkqlm.ag0/iscgqf2WcU/N9N9/9AZ1/N9N99AZ19Z19Z9oN9.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170034" target="_blank">澳门当局取消天安门图片展览 30年来首见</a> &nbsp;<font class="count">2020-05-13 01:29</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 4</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170034&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170034" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170034&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170034" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170034&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170034" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170033" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170033" target="_blank">加入财长行列声援马斯克！川普呛加州：立刻让工厂重开</a> &nbsp;<font class="count">2020-05-13 01:13</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170033&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170033" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170033&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170033" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170033&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170033" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170032" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170032" target="_blank">沙国减产激励油价续扬！川普：美能源企业前景正获改善</a> &nbsp;<font class="count">2020-05-13 01:12</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170032&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170032" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170032&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170032" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170032&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170032" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170031" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170031" target="_blank">美国4月CPI剧降 凸显肺炎疫情导致需求震撼</a> &nbsp;<font class="count">2020-05-13 01:11</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170031&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170031" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170031&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170031" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170031&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170031" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170021" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170021" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaId.wahiRUdFwq.ihF/WqqwUq/DauhWoq/mrmr/r2/iimg22C9ryiowpgw2EnprEnnWIo2iiCn-I2r3Imr.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170021" target="_blank">中船重工原董事长胡问鸣落马</a> &nbsp;<font class="count">2020-05-13 01:06</font></p><p class="carb">原中国船舶重工集团（中船重工）有限公司党组书记、董事长胡问鸣“涉嫌严重违纪违法”，目前正接受中央纪委国家监委纪律审查和监察调查。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 8</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170021&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170021" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170021&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170021" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170021&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170021" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170030" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170030" target="_blank">疫情冲击 丰田预测本年度营业利益衰退近八成</a> &nbsp;<font class="count">2020-05-13 01:04</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170030&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170030" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170030&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170030" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170030&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170030" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170026" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170026" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaTR.jB1BD.hIw/OmmpBm/xgyIO1m/ekTK/Tk/HeTf1TiipOinneK169KHf1kZeH6zZH1p-TKebTk6.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170026" target="_blank">【睿眼看世界】在台湾不能提中华民国，台湾的大学怕什么？</a> &nbsp;<font class="count">2020-05-13 01:03</font></p><p class="carb">在台湾不能提中华民国，台湾的大学怕什么？韩国出口—46%，轿车出口—80%，还没到谷底 本视频只代表作者的观点和陈述。 （责任编辑：李明信）</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170026&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170026" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170026&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170026" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170026&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170026" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170029" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170029" target="_blank">美肉品厂员工染疫致国内缺货 竟对陆增加出口</a> &nbsp;<font class="count">2020-05-13 01:02</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170029&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170029" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170029&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170029" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170029&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170029" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170023" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170023" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaRc2f.Bdl9idWod4z.d0f/5N5N-Nq/elop9Wzc8p9_5N5N-Nq-R5_5-RqDbxN5qD5b53.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170023" target="_blank">网友直击：武汉三民小区因疫情封闭  逾百特警把守警戒（视频）</a> &nbsp;<font class="count">2020-05-13 01:01</font></p><p class="carb">5月12日，湖北省武汉市东西湖区长青街三民小区因爆发严重疫情遭封闭，所有小区的居民禁止出行，并派出逾百特警把守警戒。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 14</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170023&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170023" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170023&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170023" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170023&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170023" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170028" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170028" target="_blank">投行：4月苹果iPhone销售量年比锐减77%</a> &nbsp;<font class="count">2020-05-13 01:00</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170028&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170028" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170028&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170028" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170028&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170028" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170027" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170027" target="_blank">沙特经济崩盘冲击区域 政治效应山雨欲来</a> &nbsp;<font class="count">2020-05-13 01:00</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 0</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170027&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170027" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170027&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170027" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170027&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170027" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170018" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170018" target="_blank">防中资并购 印度拟修法堵证券投资漏洞</a> &nbsp;<font class="count">2020-05-13 00:52</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 24</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170018&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170018" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170018&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170018" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170018&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170018" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170017" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170017" target="_blank">普京发言人中镖 住院接受治疗</a> &nbsp;<font class="count">2020-05-13 00:49</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 64</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170017&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170017" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170017&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170017" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170017&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170017" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170016" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170016" target="_blank">传中共窃取肺炎疫苗资料 川普：这不是新闻</a> &nbsp;<font class="count">2020-05-13 00:40</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 164</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170016&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170016" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170016&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170016" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170016&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170016" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170009" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170009" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628ea4FHU.beOozetweNL.e8U/YDYD-Dn/n-4Y-4-4-4nZdEDDAAdnZn.jpeg"/></a></div><p class="head"><a href="show.aspx?name=c1170009" target="_blank">斩断与中共经济瓜葛 川普令美联邦退休基金停止投资中企</a> &nbsp;<font class="count">2020-05-13 00:36</font></p><p class="carb">5月11日（周一），为了进一步斩断与中共之间的经济瓜葛，川普总统指示白宫高级官员致信美国劳工部长斯卡利亚（Eugene Scalia），表示白宫不希望联邦退休节俭储蓄投资委员会（FRTIB）将联邦雇员和军方人员的退休储蓄基金投资给中共治下的公司。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 96</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170009&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170009" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170009&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170009" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170009&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170009" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170020" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170020" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eavh.4f1oIMhe42.o1e/g224M2/yf81gR2/zUzU/UW/S4MM6TegZ42-vUccUU3zbz-vFUCvzU.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170020" target="_blank">财务造假曝光后 瑞幸咖啡更换CEO和COO</a> &nbsp;<font class="count">2020-05-13 00:35</font></p><p class="carb">中国连锁咖啡店瑞幸咖啡早前承认财务数据造假，其董事会周二（5月12日）宣布终止首席执行官（CEO）钱治亚以及首席运营官（COO）刘剑的职务。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170020&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170020" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170020&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170020" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170020&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170020" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170007" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170007" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaqU.6nMtB1Uy6l.tMy/Yll61l/enzMYkl/8hqD/qh/q9hQhN88ha9qOQD-qDhpq8h.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170007" target="_blank">马斯克不惜坐牢也要重启工厂 川普发话</a> &nbsp;<font class="count">2020-05-13 00:35</font></p><p class="carb">特斯拉公司（Tesla Inc）首席执行官埃隆·马斯克（Elon Musk）周一（5月11日）表示，该汽车制造商正在恢复其在加利福尼亚州工厂的生产。马斯克为了工厂能够重启可谓为其坐牢而不足惜，而且考虑将工厂迁出加州。此举引来数州对他的落户邀请，美国总统川普也呼吁加州允许这家电动车制造商立即重启。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 218</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170007" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170007" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170007" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170015" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170015" target="_blank">香港警方承认处理旺角抗议事件时对媒体有不当之处</a> &nbsp;<font class="count">2020-05-13 00:30</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 71</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170015&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170015" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170015&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170015" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170015&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170015" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170014" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170014" target="_blank">华裔教授参与中共千人计划 因虚假纳税申报被定罪判刑</a> &nbsp;<font class="count">2020-05-13 00:27</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 70</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170014&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170014" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170014&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170014" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170014&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170014" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170006" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170006" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaw2.KPF5zD2nK6.5Fn/A66KD6/fPWFAm6/9l9l/lb/MKDDXQnArK6-Ow9lV9bl-wblZw9l.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170006" target="_blank">汶川地震12周年 家长在严厉监控下悼冤魂</a> &nbsp;<font class="count">2020-05-13 00:26</font></p><p class="carb">周二（12日）是四川汶川大地震12周年。当年调查学校豆腐渣工程的维权人士谭作人，证实被当局监控，不准留在四川。当年死伤严重的都江堰聚源中学保安严密。家长的悼念活动受到各种限制。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 76</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170006&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170006" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170006&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170006" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170006&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170006" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170013" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170013" target="_blank">中共深化在非洲的军事参与 五角大楼称正提高警惕</a> &nbsp;<font class="count">2020-05-13 00:24</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 32</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170013&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170013" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170013&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170013" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170013&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170013" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170008" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170008" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaId.YUoUT.ihF/WqqwUq/DauhWoq/mrmr/r2/URDF9YWdu_o-2ny-Inm3Iry.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170008" target="_blank">感恩李洪志大师 大陆民众：法轮大法好深入我的生活</a> &nbsp;<font class="count">2020-05-13 00:24</font></p><p class="carb">独立学者戈壁东说，法轮功学员是世界上最善良的人群。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 35</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170008&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170008" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170008&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170008" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170008&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170008" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170012" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170012" target="_blank">中澳关系紧张升级 澳国4大牛肉出口商被中国列入黑名单</a> &nbsp;<font class="count">2020-05-13 00:14</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 50</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170012&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170012" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170012&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170012" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170012&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170012" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170011" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1170011" target="_blank">特朗普称无意重谈美中第一阶段贸易协议 中国再度对美商品削减关税</a> &nbsp;<font class="count">2020-05-13 00:13</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 115</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170011&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170011" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170011&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170011" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170011&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170011" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170003" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170003" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaKb.oInCYfbcoG.Cnc/JGGofG/NIAnJ9G/SaSa/ak/K-Kxq-K-KEaUKSa.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170003" target="_blank">国家能源局西北监管局前局长王天才被调查</a> &nbsp;<font class="count">2020-05-12 23:12</font></p><p class="carb">5月12日，中共国家能源局西北监管局前党组书记、局长王天才被调查。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 240</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170003" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170003" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170003" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170004" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170004" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaVY.1TKnjXYo1S.nKo/lSS1XS/tTrKlHS/dgdg/gi/61XXMPol81S-kqiCiiCvv-nOKT-VdggBCdg-VigBVdg.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170004" target="_blank">【名家专栏】瘟疫大流行下的政治家和专家</a> &nbsp;<font class="count">2020-05-12 23:06</font></p><p class="carb">领导人既要依靠专家来帮助他们制定政策，也要支持他们做出的决策。他们知道，在现在的大瘟疫中，人民希望政客们将其政治议程搁一边，而听从于专家意见。这就是为什么政治领导人在解释其决定时，会有流行病学领域机构的专家们做护翼。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 138</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170004&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170004" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170004&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170004" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170004&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170004" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class="buttoncontainer"><a href="show.aspx?name=og头条~time_1_2"><div class="button">更多</div></a></div>
+    <div class='nav' style='width:auto; margin:0 0 0 8px; float:left;'>
+      <ul class='nav__menu'>
+        <li class='nav__menu-item'><a><font class='grey'>头条</font></a></li>
+        <li class='nav__menu-item'><a href="show.aspx?name=og头条~unit_1_2">综合</a></li>
+      </ul>
+    </div><div style="clear:both;"></div>
+  <div id="c1169989" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169989" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eavheZ.21yKR1XI1f4.1kZ/zUzU-UF/vF3HzHbH9H3Ub.png"/></a></div><p class="head"><a href="show.aspx?name=c1169989" target="_blank">中国现第二波疫情 官方高度保密 民叹：无知者无畏？</a> &nbsp;<font class="count">2020-05-12 22:47</font></p><p class="carb">中国多地都出现疫情加剧的迹象。目前黑龙江省疫情告急处于封省状态，武汉市疫情防控指挥部11日发出《紧急通知》，要在十日内展开全市病毒核酸检测，而吉林省舒兰市10日也已经宣布进入战时状态。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2188</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169989&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169989" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169989&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169989" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169989&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169989" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169976" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169976" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eazbz.V72pa2HVSN.s2b/aLp2V5AqpY/CvCv/v6zC/CvCvv6zCvXjZzzXzZ.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169976" target="_blank">中共设计导弹击沉伊朗军舰 三峡泄洪像海啸高洪水25倍 两会前激斗 习近平突出京</a> &nbsp;<font class="count">2020-05-12 21:04</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2893</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169976&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169976" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169976&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169976" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169976&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169976" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169971" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169971" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaKbcl.GnN59nTYnIo.nWl/SaSa-ak/hqra-IKMUq-SaKSMKSEaxSKxakEaCr1Cxsr9raSskosS111qSaaa.gif"/></a></div><p class="head"><a href="show.aspx?name=c1169971" target="_blank">崔永元再放出狠话  反腐先查纪检监察部门（视频）</a> &nbsp;<font class="count">2020-05-12 21:57</font></p><p class="carb">5月11日，陕西省长赵正永在天津被审判涉嫌受贿7.17亿。就在同一天，崔永元发布视频，质疑整个中共体制中的漏洞，并着重指出，要反腐，先从纪检监察部门查起。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 3068</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169971&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169971" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169971&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169971" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169971&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169971" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1166753" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1166753" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628ea6D.te8e9.uyO/iaaGea/HcYyi8a/gFgF/Ff/OiVzGa8GoiHYe-6f-6rgV6Fj.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1166753" target="_blank">【有冇搞错】中共元老被软禁？</a> &nbsp;<font class="count">2020-05-05 18:44</font></p><p class="carb">《有冇搞错》。5月4日。 最近两天，网络上流传出两封信。一封是邓小平长子邓朴方的，一封是习近平弟弟、习仲勋的小儿子习远平的。 咱们先介绍一下这两个人。邓朴方是邓小平的长子，文革的时候，他是北京大学学生，因为邓小平被打倒，他也被批斗，要求揭发...</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 138511</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1166753&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1166753" class="infz"><font class="count">赞成 2</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1166753&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1166753" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1166753&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1166753" class="infs"><font class="count">收藏 6</font></div></a>
+      <div class="infs"><font class="count">评论 9</font></div>
+    </div>
+  </div>
+  <div id="c1169714" class="lisb"><div class="carm"><p class="head"><a href="show.aspx?name=c1169714" target="_blank">【微博精粹】被全世界最严谨的德国人查到 习主席这回真大条了</a> &nbsp;<font class="count">2020-05-12 10:56</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2239</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169714&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169714" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169714&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169714" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169714&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169714" class="infs"><font class="count">收藏 1</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169987" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169987" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaEO.B2ZgGjOUBN.gZU/mNNBjN/h2oZmXN/tHtH/Hr/pBjjISUmeBN-EtEtavHEva-ErHJEtH.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169987" target="_blank">“别问我 问中国去”川普再呛华裔女记者</a> &nbsp;<font class="count">2020-05-12 22:17</font></p><p class="carb">5月11日，CBS的亚裔记者江维佳向川普（特朗普）提出挑衅性的问题后，川普中止了新闻发布会，他告诉江维佳：“别问我，问中国（中共）去！”</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1409</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169987&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169987" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169987&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169987" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169987&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169987" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169974" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169974" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaZW0m.Vgilfg2OgsU.gnm/N9N9-9A/IB9_2oAoo191foUa1AAZAqB1N2ao91NZ119Q-ZAoTNoTQ1AZZ1.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169974" target="_blank">权力任性？！加拿大夫妇中国探亲被捕 罪名竟是......</a> &nbsp;<font class="count">2020-05-12 21:38</font></p><p class="carb">5月11日，加拿大《环球邮报》在头版报导了一对加拿大华人夫妇前往中国被当局抓捕并判刑的事件。在华为财务总监孟晚舟被加拿大抓捕，中国扣押加拿大公民令加中关系触礁之际，上述事件迅速引发国际关注。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1582</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169974&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169974" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169974&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169974" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169974&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169974" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169726" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169726" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaRc.z4dSorc2zB.Sd2/pBBzrB/l4TdpiB/5N5N/Nq/Zzrr812pfzB-R5RRDqQbQD-3NNyQNN-R-RqNyR5N.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169726" target="_blank">【翻墙必看】失控的中共火箭被美国军方紧盯</a> &nbsp;<font class="count">2020-05-12 22:50</font></p><p class="carb">大纪元每天为读者梳理翻墙必看的文章：
+ 1.中共火箭失控 飞掠洛城和纽约 坠入大西洋
+ 在接下来的几个小时内，一枚失控的中共火箭将成为几十年来跌落的最大型太空垃圾，它不受控制地飞掠洛杉矶和纽约中央公园，最终降落在大西洋上。美国军方一直在紧盯这枚火箭的坠落动态。
+ 2.印度军方证实中印军队在边界爆发冲突
+ 印度军...</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 3614</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169726&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169726" class="infz"><font class="count">赞成 3</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169726&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169726" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169726&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169726" class="infs"><font class="count">收藏 1</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169780" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169780" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628ean37J.OCVB6CIbChc.C4J/GQGQ-Qo/nZAttZnMQnZnQ.jpeg"/></a></div><p class="head"><a href="show.aspx?name=c1169780" target="_blank">两会前反习拥习暗流涌 习近平突现山西云冈石窟</a> &nbsp;<font class="count">2020-05-12 13:37</font></p><p class="carb">中共当局隐瞒疫情正受到国际追责索赔，同时国内经济陷入危局，党内权斗加剧，反习拥习暗流汹涌，国内反中共极权声浪四起。习近平继上月往陕西秦岭被指拜“龙脉”，突然在昨天（11日）到了山西大同云冈石窟。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 4937</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169780&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169780" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169780&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169780" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169780&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169780" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 2</font></div>
+    </div>
+  </div>
+  <div id="c1169729" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169729" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaZW.lYfYE.ag0/qVVUYV/iscgqfV/N9N9/9A/1BAI-ZTNRZ9o.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169729" target="_blank">陈良宇被曝出狱 曾因一事大骂江泽民</a> &nbsp;<font class="count">2020-05-12 11:57</font></p><p class="carb">日前，网路消息称，前上海市委书记陈良宇已出狱，引发外界关注。此前，港媒披露，陈良宇原是江泽民的“死党”，但入狱后与江反目。曾狂怒大骂江泽民说：“如果我儿子保不住命，你两个儿子一个也别想活！”</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 4710</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169729&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169729" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169729&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169729" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169729&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169729" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169955" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169955" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaMuM.bat2mtxbfY.Ntu/mC2tbrn02y/lili/iTMl/liliiTMliViiM66WQ.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169955" target="_blank">北京“戎装常委”换人 前任仅履新4个月</a> &nbsp;<font class="count">2020-05-12 19:00</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1992</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169955&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169955" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169955&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169955" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169955&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169955" class="infs"><font class="count">收藏 1</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169979" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169979" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaPhP.umjtUjJuzy.Yjh/UltjuK8HtI/oOoO/OdPo/oOoOOdPoOdToqPbqb.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169979" target="_blank">著名黑帮头目“胖子梅” 染新冠死于狱中</a> &nbsp;<font class="count">2020-05-12 21:35</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 943</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169979&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169979" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169979&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169979" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169979&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169979" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169831" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169831" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628ean3.Bp6pK.xC7/ROOcpO/VhLCR6O/GQGQ/QZ/ucppNY7RJcO-ZnrGDrQoQ-nMG0nQA.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169831" target="_blank">美国智库：今年大选前 推倒中共防火墙</a> &nbsp;<font class="count">2020-05-12 15:54</font></p><p class="carb">中共的防火墙和互联网信息管控，被认为是北京此次隐瞒疫情并误导世界的关键。日前，美国前白宫战略顾问班农（Steve Bannon）明确表示，推倒中共防火墙的计划，已经列在美国政府日程表。美国智库则说，今年大选之前，可推倒中共的防火墙。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2430</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169831&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169831" class="infz"><font class="count">赞成 3</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169831&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169831" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169831&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169831" class="infs"><font class="count">收藏 5</font></div></a>
+      <div class="infs"><font class="count">评论 5</font></div>
+    </div>
+  </div>
+  <div id="c1169772" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169772" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaR2R.pCdTldep9f.Sd2/l4TdpiWcTz/5N5N/NqR5/5N5NNqR5R5QqRQxDq.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169772" target="_blank">川普赞这个中国人是英雄</a> &nbsp;<font class="count">2020-05-12 12:40</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1962</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169772&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169772" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169772&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169772" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169772&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169772" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169973" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169973" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eayTWi.Qu9NlucDu7O.u2i/a5a5-5j/vuNNOvmTuN-GYYGYLa_yaY5-ypYpaaLpya5j5.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169973" target="_blank">中共官媒万字长文批美疫情“谎言”  结果被揭漏洞百出</a> &nbsp;<font class="count">2020-05-12 21:45</font></p><p class="carb">中共隐瞒疫情导致全球遭受巨大损失，随着国际上追责中共的呼声不断升高，中共官媒日前发表万字长文为中共政府辩护，却被发现其中漏洞百出。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 1287</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169973&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169973" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169973&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169973" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169973&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169973" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169969" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169969" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628ea7g.M5XfZKgtMA.fXt/2AAMKA/o5dX2OA/rY7u/YR/RrYl7ORlYMYvf0MOvp2F7JO2OOFR0OO0-70YI7rY.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169969" target="_blank">北京豁免79种美国商品进口关税</a> &nbsp;<font class="count">2020-05-12 21:26</font></p><p class="carb">北京周二（5月12日）宣布，将对79种美国进口商品免除中美贸易战期间所加征的关税。一周后生效，为期一年。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 856</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169969&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169969" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169969&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169969" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169969&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169969" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169856" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169856" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eafQ.IC4CX.wpV/kHHNCH/7UGpk4H/L3L3/3j/ZkHpH-TkCpUp4QHmNCCc-gVksNH-f1Lif3S.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169856" target="_blank">中共想重谈贸易协议？川普：我没兴趣</a> &nbsp;<font class="count">2020-05-12 17:04</font></p><p class="carb">中共病毒疫情导致美国经济受创。总统川普（特朗普）11日表示，三季度经济会反弹，四季度会变得更好。对于中共试图重启贸易谈判，重新达成一份协议，川普态度坚决的予以回绝，他说，“一丁点兴趣也没有。” 5月11日，白宫的疫情简报会上，川普总统被问及...</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2968</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169856&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169856" class="infz"><font class="count">赞成 2</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169856&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169856" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169856&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169856" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 3</font></div>
+    </div>
+  </div>
+  <div id="c1169620" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169620" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eazq.YL2smlqbYx.s2b/VxxYlx/aLp2V5x/CvCv/v6/UYllgebVNYx-zzf6EfzEzk-z6vOzCv.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169620" target="_blank">美国推倒中共防火墙计划 班农：实质行动中</a> &nbsp;<font class="count">2020-05-12 07:00</font></p><p class="carb">美国前白宫战略顾问班农（Steve Bannon），5月9日在《瘟疫作战室》频道明确表示，推倒中共防火墙的计划，已经列在美国政府日程表。5月8日，美国智库“21世纪创新”的CEO、美国前总统里根的管理和预算办公室总顾问霍洛维兹（Michael Horowitz）表示，美国政府将投入高达30亿美元的政府资金，结合美国各大...</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 7437</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169620&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169620" class="infz"><font class="count">赞成 3</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169620&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169620" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169620&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169620" class="infs"><font class="count">收藏 6</font></div></a>
+      <div class="infs"><font class="count">评论 3</font></div>
+    </div>
+  </div>
+  <div id="c1169401" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169401" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaR2R.pCdTldep9f.Sd2/l4TdpiWcTz/5N5N/NqRR/5N5NNqRRNQRqxqQQQ.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169401" target="_blank">劲爆！班农又发布消息令中共恐惧：川普要拆防火墙</a> &nbsp;<font class="count">2020-05-11 16:10</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 11259</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169401&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169401" class="infz"><font class="count">赞成 7</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169401&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169401" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169401&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169401" class="infs"><font class="count">收藏 8</font></div></a>
+      <div class="infs"><font class="count">评论 24</font></div>
+    </div>
+  </div>
+  <div id="c1169980" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169980" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eaOAO.BIWESWtBv5.4WA/SMEWBaqpEr/PCPC/CVOP/PCPCCVOPCVhJhJiRe.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169980" target="_blank">德英民调：近8成民众认为中共应为疫情爆发负责</a> &nbsp;<font class="count">2020-05-12 21:36</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 496</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169980&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169980" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169980&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169980" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169980&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169980" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169561" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169561" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628eapKp.rdwOXwPrhk.FwK/X0OwreUzOV/H8H8/8YpH/H8H88YpH8N8ppYYSc.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169561" target="_blank">俄生物学家拍到“海天使”在冰下漂浮</a> &nbsp;<font class="count">2020-05-12 04:01</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 4596</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169561&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169561" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169561&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169561" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169561&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169561" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1170003" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170003" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaJo.QWRd1kozQ5.dRz/f55Qk5/8WDRfh5/FtFt/tC/J-JSY-J-Jmt6JFt.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170003" target="_blank">国家能源局西北监管局前局长王天才被调查</a> &nbsp;<font class="count">2020-05-12 23:12</font></p><p class="carb">5月12日，中共国家能源局西北监管局前党组书记、局长王天才被调查。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 240</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170003" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170003" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170003&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170003" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169616" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169616" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaBr.ghth5.0UD/9vvxhv/FbmU9tv/udud/dl/D9QoxvtxY9Fmh-4B-BfuQBde.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169616" target="_blank">【睿眼看世界】中美脱钩成大势 防火墙拆了 中国人会依然沉睡吗？</a> &nbsp;<font class="count">2020-05-12 06:45</font></p><p class="carb">中共手握《百官行述》，“号令”国际政要为其站台；美国再出手，中美脱钩成大势；防火墙拆了，中国人会依然沉睡吗？ 本视频只代表作者的观点和陈述。 （责任编辑：李明信）</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 3575</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169616&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169616" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169616&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169616" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169616&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169616" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 2</font></div>
+    </div>
+  </div>
+  <div id="c1169607" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169607" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hpd8106db01d9719305883f949027e575d668628earJr.xwABsAux4C.LAJ/syBAxP6VBl/I7I7/71rI/I7I771rI71r8FFz8F.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169607" target="_blank">江峰: 试看中共两会祭出何等议案 美国追讨中共上演三部曲</a> &nbsp;<font class="count">2020-05-12 05:14</font></p><p class="carb"></p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 2683</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169607&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169607" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169607&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169607" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169607&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169607" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1170007" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1170007" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eavh.4f1oIMhe42.o1e/g224M2/yf81gR2/zUvF/vU/vWU3UczzUbWvH3F-vFUCvzU.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1170007" target="_blank">马斯克不惜坐牢也要重启工厂 川普发话</a> &nbsp;<font class="count">2020-05-13 00:35</font></p><p class="carb">特斯拉公司（Tesla Inc）首席执行官埃隆·马斯克（Elon Musk）周一（5月11日）表示，该汽车制造商正在恢复其在加利福尼亚州工厂的生产。马斯克为了工厂能够重启可谓为其坐牢而不足惜，而且考虑将工厂迁出加州。此举引来数州对他的落户邀请，美国总统川普也呼吁加州允许这家电动车制造商立即重启。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 218</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1170007" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1170007" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1170007&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1170007" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169972" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169972" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaZW.UsgaOYW0UV.ag0/qVVUYV/iscgqfV/N9ZN/9A/N99o-A-ZT-VaOggcUqnYOPiqKU-9Z-ZA9RZN9.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169972" target="_blank">【重温旧文】李承鹏：写在5.12的爱国帖</a> &nbsp;<font class="count">2020-05-12 21:43</font></p><p class="carb">那年油菜花比往年晚开了整整一个月，人们并没有意识到什么。那时人们还相信专家，专家说花期推迟很正常，青蛙上街很正常。那天我正在书房赶一篇文章，地动时还以为家猫在脚下调皮。直到满书架的书往外飞，才明白是地震。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 626</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169972&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169972" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169972&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169972" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169972&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169972" class="infs"><font class="count">收藏 2</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169970" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169970" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaKb.oInCYfbcoG.Cnc/JGGofG/NIAnJ9G/SaKq/KK/KrKSKSaqEaSrKaa1r1-KEaUKSa.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169970" target="_blank">中国新财富500富人榜出炉 马云升首富</a> &nbsp;<font class="count">2020-05-12 21:32</font></p><p class="carb">5月12日，新财富500富人榜揭晓，阿里巴巴创办人马云的财富达3021.4亿元（人民币），超越腾讯公司董事会主席兼首席执行官马化腾，升为新财富排行榜首富。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 634</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169970&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169970" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169970&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169970" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169970&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169970" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169986" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169986" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eacZ.qF7XEVZMqr.X7M/zrrqVr/1FR7zGr/kjkj/jU/cyjujUklkUUlcjjuyy-cUjTckj.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169986" target="_blank">中国维权人士齐祝李洪志先生生日快乐</a> &nbsp;<font class="count">2020-05-12 22:07</font></p><p class="carb">5·13是世界法轮大法日，今年也是法轮功创始人李洪志先生69岁华诞，多位中国维权人士透过大纪元向李老师祝贺生日快乐，感谢法轮功弘扬“真、善、忍”，找回中国传统文化中璀璨的部分。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 387</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169986&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169986" class="infz"><font class="count">赞成 2</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169986&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169986" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169986&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169986" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 1</font></div>
+    </div>
+  </div>
+  <div id="c1169975" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169975" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eae590.3mWc2mNFmVH.ml0/bTbT-TC/KWFPcNH5OPc_bTbT-TC-eb_e-eCgSbggGTLSgZ.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169975" target="_blank">武汉疫情再次爆发  启动全民核酸检测（视频）</a> &nbsp;<font class="count">2020-05-12 21:07</font></p><p class="carb">因湖北省武汉市多个地区日前爆发严重疫情，5月11日，中共武汉疫情防控指挥部发布红头文件，要求从5月12日开始，在全市范围内启动全民核酸检测，为期十天。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 823</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169975&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169975" class="infz"><font class="count">赞成 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169975&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169975" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169975&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169975" class="infs"><font class="count">收藏 1</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169988" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169988" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaKb.oInCYfbcoG.Cnc/JGGofG/NIAnJ9G/SaSa/aE/yofftjcJloG-KSKKSkkkE1-KEaUKSa.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169988" target="_blank">中共威胁无效 新西兰坚持挺台参加WHA</a> &nbsp;<font class="count">2020-05-12 22:38</font></p><p class="carb">上周，新西兰表示支持台湾参加世界卫生大会（WHA），并因此受到中共“破坏双边关系”的威胁。新西兰外交部长周二（5月12日）表示，新西兰必须捍卫自己的立场，挺台与会是由于其遏制中共病毒（武汉肺炎）取得成功。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 376</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169988&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169988" class="infz"><font class="count">赞成 1</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169988&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169988" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169988&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169988" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 0</font></div>
+    </div>
+  </div>
+  <div id="c1169482" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169482" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaUAT9.105aN0br03D.0c9/vSvS-SJ/85r6abDAF6a_vSvS-SJ-UU_U-UJmpvSevJxpUj.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169482" target="_blank">网友直击：疫情掏空了哈尔滨  活着都难（视频）</a> &nbsp;<font class="count">2020-05-11 21:23</font></p><p class="carb">5月11早晨，哈尔滨早市上人来人往，但很少人购买。一位小贩感慨的说，疫情把哈尔滨都掏空了，没有入敢花钱了，吃一口能活着，就绝不吃第二口。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 8827</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169482&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169482" class="infz"><font class="count">赞成 2</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169482&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169482" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169482&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169482" class="infs"><font class="count">收藏 1</font></div></a>
+      <div class="infs"><font class="count">评论 3</font></div>
+    </div>
+  </div>
+  <div id="c1169552" class="lisb"><div class="carm"><div class="picm"><a href="show.aspx?name=c1169552" target="_blank"><img class="imgm" src="https://atwamlneeial.ios.dofeed.casa/hsd8106db01d9719305883f949027e575d668628eaQm.jAz2e8mYjC.2zY/NCCj8C/gAfzNFC/nuQi/uX/XFcErQQ7QFNQXjNu79rXrPFPrs7uujNj-EuuGPuu-Q9uGQnu.jpg"/></a></div><p class="head"><a href="show.aspx?name=c1169552" target="_blank">夏小强：胡锡进这次为什么叼错了盘？</a> &nbsp;<font class="count">2020-05-12 02:43</font></p><p class="carb">《环球时报》是中共党报《人民日报》旗下的报纸，由于《人民日报》在全球各地派驻人数众多的特派或特约记者，《环球时报》以其资源优势在大陆获得市场。胡锡进在2005年成为该报总编至今，他声称《环球时报》“代表了普通中国老百姓真正的心声”，但是，《环球时报》却被民众称为“愤青大本营”。</p></div>
+    <div class="info">
+      <div class="infd"><font class="count">浏览 4612</font></div>
+      <a href="javascript:void(0);" onclick="javascript:Load('opHoldSet1169552&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opHoldSet1169552" class="infz"><font class="count">赞成 4</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opKickSet1169552&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opKickSet1169552" class="infz"><font class="count">反对 0</font></div></a>
+      <a href="javascript:void(0);" onclick="javascript:Load('opLikeSet1169552&oouser='+encodeURIComponent(ooUser)+'&oopass='+encodeURIComponent(ooPass));"><div id="opLikeSet1169552" class="infs"><font class="count">收藏 0</font></div></a>
+      <div class="infs"><font class="count">评论 2</font></div>
+    </div>
+  </div>
+  <div style="clear:both; height:12px;"></div>
+  <div class="buttoncontainer"><a href="show.aspx?name=og头条~unit_1_2"><div class="button">更多</div></a></div>
+</div><div class="main"><div class="l"><div style="padding:6px 12px 12px 12px;">
+  <p style="text-align:center">
+    安卓版 <a href="https://x.co/ogatea" target="_blank">https://x.co/ogatea</a> |
+    电脑版 <a href="https://x.co/ogatew" target="_blank">https://x.co/ogatew</a> |
+    大陆网址 <a href="https://x.co/ogate" target="_blank">https://x.co/ogate</a> | ^动态网址^
+  </p>
+</div></div></div>
+<link  href="https://cdn.jsdelivr.net/npm/video.js@7.7.5/dist/video-js.min.css" rel="stylesheet">
+<script src="https://cdn.jsdelivr.net/npm/video.js@7.7.5/dist/video.min.js"></script><br/><br/>
+<script>(adsbygoogle = window.adsbygoogle || []).push({});</script>
+</body>
+</html>)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「黃秋生：考慮移民台灣正在辦理英國身份」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64ebc6244d181d32647e49023c0d212ad622abb2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:64ebc6244d181d32647e49023c0d212ad622abb2
 
 下载BT种子 [【中國禁聞】5月11日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bed7c9248d947dc3ade12b10430ed144b64e5361.torrent)
 
@@ -620,10 +1889,6 @@
 下载BT种子 [轰动！刘冰案因情爱？谁发布的微信？穿帮了！习当局断然拒绝世卫。美军重磅武器瞄准北京。各国加速脱钩中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1423c65f97488daafcc98d45d40ef4afc5fa022c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1423c65f97488daafcc98d45d40ef4afc5fa022c
-
-下载BT种子 [【微视频】美国华人组团告中共破解“反华”伪命题.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9dda64f85cba8ce4e2fcd91b19514c02abf54f36.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9dda64f85cba8ce4e2fcd91b19514c02abf54f36
 
 下载BT种子 [《石濤聚焦》「紐約州長迷惑了：84%感染的人是居家者」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a13f4611221b8c19edf5cf93cd79de607ad95bb.torrent)
 
