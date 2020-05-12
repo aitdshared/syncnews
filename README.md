@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kNZbsN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D4qID2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平逆襲「80國聯軍」，擬對澳洲徵關稅；新華社24條無死角甩鍋，川普弱點暴露（20200511第748期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbcca47f8b98ce59ba2074fe14067098979579e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bbcca47f8b98ce59ba2074fe14067098979579e3
 
 下载BT种子 [習近平逆襲「80國聯軍」，擬對澳洲征關稅；新華社24條無死角甩鍋，川普弱點暴露（20200511第748期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77d74324003a56988518093c4998ec29bc185a78.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [蓬佩奧就疫情再批中共支持台灣參與世衛大會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b65627a06deb941bb1593ca1b4e0f41b6e9da33a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b65627a06deb941bb1593ca1b4e0f41b6e9da33a
-
-下载BT种子 [美國起草阿爾特彌斯協議共享月球資源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/94f83b46ebe7557c9299be00a40829b8e3208c8a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:94f83b46ebe7557c9299be00a40829b8e3208c8a
 
 下载BT种子 [海外確診逾371萬英國俄羅斯醞釀解封俄羅斯儘管連日新增破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d931d6dc640899dade6ddc42f2c395b57c6c10f.torrent)
 
