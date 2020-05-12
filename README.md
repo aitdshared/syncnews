@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rPSanl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c1bvHk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月11日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff76521612fc2a16cd3f1fb1764b1308a385dbb3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff76521612fc2a16cd3f1fb1764b1308a385dbb3
+
+下载BT种子 [【禁闻】和中共多方合作法国成疫情重灾区.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a93127bc2efb8d9dd03e687484793ef48253c68.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a93127bc2efb8d9dd03e687484793ef48253c68
+
+下载BT种子 [【禁闻】手机归零交通停止武汉P4实验室去年发生了什么.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73321cef8ef80c774c7dee3549693abd6a21c8f5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:73321cef8ef80c774c7dee3549693abd6a21c8f5
 
 下载BT种子 [美食滑翔而下疫情下瑞典「一桌一人」餐廳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c5f905b78b84c3de5f318c1837626179293072a.torrent)
 
@@ -612,14 +624,6 @@
 下载BT种子 [全球約384萬人確診感染俄印巴西疫情嚴峻英今年經濟萎縮14%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cbcf3add929e188b350481c5e3cd70c0663dead.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5cbcf3add929e188b350481c5e3cd70c0663dead
-
-下载BT种子 [白宮發言人：美中關係令人失望中共的錯誤決定導致美國人面臨生命危險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c3de2e088be776ed019070f6f4f17c7316a6dd2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c3de2e088be776ed019070f6f4f17c7316a6dd2
-
-下载BT种子 [《石濤聚焦》「川普貼身海軍軍官確診白宮今晨確認總統很懊喪」川普把病毒等同“珍珠港袭击“和”911“事件性质「美國從未遭受過如此慘重的打擊」暗示与中共國開戰的可能（0705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6cfdf77da1cbf9247d583979e51a16d88bdb40a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6cfdf77da1cbf9247d583979e51a16d88bdb40a6
 
 下载BT种子 [《石濤.News》「華裔學者劉斌被殺細節公佈陰謀論四起」中共國即刻宣布疫苗動物實驗成果兇手顧浩有共同‘親密夥伴’上市公司主管已入美國籍「劉斌無身份遇害時妻子不在」案情移交聯邦（0705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c40e04b5b00bc5d0af8ebc382a8fd9591c00412.torrent)
 
