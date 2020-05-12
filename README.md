@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HWxtFw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dV1Rm0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [澳洲健身教練奇遇大法找回人生真諦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5af243c495e3fee8b7d5eac53ce7fd4c5d30a01.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5af243c495e3fee8b7d5eac53ce7fd4c5d30a01
+
+下载BT种子 [隱瞞參與千人計劃兩華裔教授被捕定罪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc8fe518bb302463c4eaa1c73ff6e6d81514ca9c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bc8fe518bb302463c4eaa1c73ff6e6d81514ca9c
+
+下载BT种子 [【环球直击】5·13法轮大法日各国政要褒奖祝贺武汉母亲上街喊冤澳洲健身教练奇遇（5月12日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da7bc05fed6304a80e7ce9e35a0875ea8e77f046.torrent)
+
+磁力链接 magnet:?xt=urn:btih:da7bc05fed6304a80e7ce9e35a0875ea8e77f046
+
+下载BT种子 [女兒染疫亡武漢母親上街喊冤被打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ef8d12ad11294d505d864dd754cec43d170b9e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:97ef8d12ad11294d505d864dd754cec43d170b9e
 
 下载BT种子 [全球約有427萬人確診普京發言人確診住院西班牙入境者居家檢疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0cab0ad3aca2179981da5d6180ea91d433a8f047.torrent)
 
@@ -604,10 +620,6 @@
 下载BT种子 [德國汽車影院裏特殊的疫情版婚禮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be0f127e44b00f6df064ddd7ebc41a4b645aaf29.torrent)
 
 磁力链接 magnet:?xt=urn:btih:be0f127e44b00f6df064ddd7ebc41a4b645aaf29
-
-下载BT种子 [美全國祈禱日川普祈禱神帶領美國人民走出這場嚴峻的瘟疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bacbbca7999ad895dee056db8b160a736a4dff27.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bacbbca7999ad895dee056db8b160a736a4dff27
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
