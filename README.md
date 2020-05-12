@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JS6BwB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2cbTTG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「WHO與中共國趙立堅堅決否認：1月21日習近平與譚德塞通話」週日母親節央視亮“習總與母親”照片網友驚呼「如此維尼」更流行「NMSL-你媽死了」習氏病毒女神登上洛杉磯領事館（1105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2235e29e75039cf057638b87e67d8a3a710a240.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c2235e29e75039cf057638b87e67d8a3a710a240
 
 下载BT种子 [《石濤聚焦》「納瓦羅：習氏-中共僅60天摧毀川普3年建立的美國偉大」美方已掌握：『零號病人』11月中『原爆點』武漢P４實驗室WHO掩蓋病毒飛往米蘭紐約惡意收購全球個人防護再高價逼售掩蓋罪惡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31ef74c791c5c28a3fc540f8077235c5ad522710.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [花式滑水高手穿越令人驚嘆的希丹谷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4fbec915ce7dcaa2a7adecf857211e05ad14c46.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a4fbec915ce7dcaa2a7adecf857211e05ad14c46
-
-下载BT种子 [海外確診逾371萬英國俄羅斯醞釀解封俄羅斯儘管連日新增破萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d931d6dc640899dade6ddc42f2c395b57c6c10f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0d931d6dc640899dade6ddc42f2c395b57c6c10f
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
