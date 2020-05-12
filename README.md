@@ -29,6 +29,14 @@
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
 
+下载BT种子 [《石濤聚焦》「法媒：病毒從沒有被消滅過武漢人怕死了！」東西湖小區再被封鎖不知源頭因由武漢人焦慮與警察衝突對政府完全不信任「公共環境全部電子監控相生相剋中共國社會崩潰—天下最易發生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73efed3b41099a80836b55664bff04b8dbece917.torrent)
+
+磁力链接 magnet:?xt=urn:btih:73efed3b41099a80836b55664bff04b8dbece917
+
+下载BT种子 [《石濤聚焦》「大批西方記者被驅出境」揭露新疆集中營黑幕的《紐約時報》記者儲百亮24年大陸報導被迫離境「這次很難再回去了」（1205）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b51fa8a244349095786e02c146114cc2fcc8b918.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b51fa8a244349095786e02c146114cc2fcc8b918
+
 下载BT种子 [【513专题】世界法轮大法日各国政要褒奖祝贺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bcc43133e7e54a920eca11080618b629936477b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7bcc43133e7e54a920eca11080618b629936477b
@@ -616,22 +624,6 @@
 下载BT种子 [习近平指示乔良：武统台湾无限期拖延？中共再拒世卫调查！华春莹替王全璋喊冤？老北京茶馆第303集20200507）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a94e5129da02617234455b6ebfab9f5438ce9ff2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a94e5129da02617234455b6ebfab9f5438ce9ff2
-
-下载BT种子 [【禁闻】中共不妙!川普称疫情危害超过珍珠港和“911”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03259ee24ba0e05c0a27d78bc08744ec20f9c98e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03259ee24ba0e05c0a27d78bc08744ec20f9c98e
-
-下载BT种子 [【禁闻】5月7日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57d5d4161d875630d7357f0ca669927188203945.torrent)
-
-磁力链接 magnet:?xt=urn:btih:57d5d4161d875630d7357f0ca669927188203945
-
-下载BT种子 [【禁闻】5月7日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/100d48bb1925e1e990b6b5787b2c76f65cf60543.torrent)
-
-磁力链接 magnet:?xt=urn:btih:100d48bb1925e1e990b6b5787b2c76f65cf60543
-
-下载BT种子 [是誰偷刪資料？企圖掩蓋什麼秘密？美軍動作奇怪，病毒有特異？對美最嚴重的攻擊，川普暗示什麼？中共是敵人！美欲增亞太戰斧導彈，縮短攻擊中國距離？欲對美開戰？北京做好最壞準備【新聞看點05.07】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c67c24435b7a4f6c2e6aa8d11e190c3320e438f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c67c24435b7a4f6c2e6aa8d11e190c3320e438f
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
