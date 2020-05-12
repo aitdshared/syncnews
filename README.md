@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/c1bvHk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ROOfDf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中国多省疫情复发舒兰进入战时状态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd9ecb2c5dae85cef966dd4f49ecb0067117bf5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cd9ecb2c5dae85cef966dd4f49ecb0067117bf5e
 
 下载BT种子 [【中國禁聞】5月11日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff76521612fc2a16cd3f1fb1764b1308a385dbb3.torrent)
 
@@ -620,14 +624,6 @@
 下载BT种子 [失蹤數月人權律師文東海被中共國保約談.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/685e36cea0bad484fea1f485f103c1f022abe0c1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:685e36cea0bad484fea1f485f103c1f022abe0c1
-
-下载BT种子 [全球約384萬人確診感染俄印巴西疫情嚴峻英今年經濟萎縮14%.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cbcf3add929e188b350481c5e3cd70c0663dead.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5cbcf3add929e188b350481c5e3cd70c0663dead
-
-下载BT种子 [《石濤.News》「華裔學者劉斌被殺細節公佈陰謀論四起」中共國即刻宣布疫苗動物實驗成果兇手顧浩有共同‘親密夥伴’上市公司主管已入美國籍「劉斌無身份遇害時妻子不在」案情移交聯邦（0705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c40e04b5b00bc5d0af8ebc382a8fd9591c00412.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c40e04b5b00bc5d0af8ebc382a8fd9591c00412
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
