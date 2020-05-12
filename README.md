@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JxEJvW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mgq98y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】美國政府白宮發言人舉行簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/02e6b1e253eb24840fd62dddb01cf59ab6a2d5e6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:02e6b1e253eb24840fd62dddb01cf59ab6a2d5e6
 
 下载BT种子 [《石濤聚焦》「白宮幕僚：中共國太壞美國慘了」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d0d3bd5632e0cb86b8eff1e43223755363bd1eb.torrent)
 
