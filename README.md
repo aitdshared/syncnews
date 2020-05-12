@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VMi9MA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OWsoTv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第五十六回子牙設計收九公」土行孫因色賣師祖姜子牙設計圓前緣鄧九公不該用女作誘餌鄧蟬玉難脫紅線牽「子牙妙算世無倫學貫天人泣鬼神」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc52507114bebd065686b104def085ae5a5b0000.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc52507114bebd065686b104def085ae5a5b0000
 
 下载BT种子 [《石濤聚焦》「WHO與中共國趙立堅堅決否認：1月21日習近平與譚德塞通話」習氏病毒女神登上洛杉磯領事館（1105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e0f3854f4e1d1aa326cff421cffc50707a0c254.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [川普：疫情衝擊超珍珠港事件和911美議員提案制裁並追責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2be066c44dae208b736d4ed4db73537895982446.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2be066c44dae208b736d4ed4db73537895982446
-
-下载BT种子 [【瘟疫與中共】中共加入世衛開啟全球擴張.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2d14a7cbc2eaaa954eae4284fb5cee2ec1b7d98.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d2d14a7cbc2eaaa954eae4284fb5cee2ec1b7d98
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
