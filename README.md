@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1CuVZq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/51cZIs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [港公民黨主席賀513大法日盼弘揚真善忍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4de72e978cf75739a7da06afcddd1c0c622d7e56.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4de72e978cf75739a7da06afcddd1c0c622d7e56
+
+下载BT种子 [5·13法輪大法日各國政要褒獎祝賀（二）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/76892dcca480141e5bce4f6e9a2707deccb609bc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:76892dcca480141e5bce4f6e9a2707deccb609bc
+
+下载BT种子 [美17州檢察長：籲國會就疫情問責中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c31b9d5df9a5ae3fb22f173854b44ab178b75c5b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c31b9d5df9a5ae3fb22f173854b44ab178b75c5b
 
 下载BT种子 [《石濤聚焦》「邪不壓正-朱潛龍PK中共國-趙立堅習氏思想」最完美詮釋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddc8429d6930d7b3fa0fdcf938d55422c891678c.torrent)
 
@@ -616,10 +628,6 @@
 下载BT种子 [【禁闻】中共严控武汉逝者家属5人互相联系就抓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/172d20a29ed8b9b41b3f77a3f77ed41159b91956.torrent)
 
 磁力链接 magnet:?xt=urn:btih:172d20a29ed8b9b41b3f77a3f77ed41159b91956
-
-下载BT种子 [刘冰案很神秘！谁发布的微信？穿帮了，习当局断然拒绝世卫。美军重磅武器瞄准北京。各国加速脱钩中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3da65cbb135a5e9381499492ccbf034daf407db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3da65cbb135a5e9381499492ccbf034daf407db
 
 下载BT种子 [美国国务卿暗示将建立排除中共的国际新秩序;战狼认怂,中共正失去维系政权的最后手段(政论天下第162集20200507)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9c00e8f144ad1254128dbefdf401eae81fab422.torrent)
 
