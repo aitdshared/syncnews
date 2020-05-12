@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zXHuvg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jaj8bg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [在台湾不能提中华民国，台湾的大学怕什么？韩国出口—46%，轿车出口—80%，还没到谷底.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b8869290ce72b50fec1aa8e46f7ca814d22b962.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0b8869290ce72b50fec1aa8e46f7ca814d22b962
 
 下载BT种子 [💢攻台灣難贏？中共喊軟話；跨省傳播！舒蘭追蹤290人，東北形勢緊；武漢被評三大罪惡之都，多處再爆群聚感染，十天地毯式排查，三類小區為重；美軍注視長征火箭墜落，最大太空垃圾新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dd0d1cdec41661c79886cb3037a6fd4027e8e3c.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《歐洲觀察者》：中共從事生物間諜活動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc043dbe72f3bd918189bdea4bf332a9b9718982.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dc043dbe72f3bd918189bdea4bf332a9b9718982
-
-下载BT种子 [失蹤數月人權律師文東海被中共國保約談.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/685e36cea0bad484fea1f485f103c1f022abe0c1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:685e36cea0bad484fea1f485f103c1f022abe0c1
 
 下载BT种子 [英外交大臣：國家級的黑客正在攻擊對抗「中共病毒」的國際機構和組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cea7f4181840edbe53ae792f5c8045ec5231beeb.torrent)
 
