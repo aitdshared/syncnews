@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YZDhqH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1SIYqy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共進行經濟報復澳洲：堅持疫情調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89401eef48f446ab8e6329454e17d3e9e8f142f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89401eef48f446ab8e6329454e17d3e9e8f142f7
+
+下载BT种子 [【瘟疫與中共】中共「期待左派當選」美國是否繼續綏靖？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fcdc143f338a4caae7a7ebdab81efc79c97741d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9fcdc143f338a4caae7a7ebdab81efc79c97741d
+
+下载BT种子 [港議員敬佩法輪功賀李洪志先生生日快樂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85a2ca52bec6ed4e235a304ecebb20db02d79db8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:85a2ca52bec6ed4e235a304ecebb20db02d79db8
 
 下载BT种子 [【中國禁聞】5月12日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d94f7fc0fb3daf0064d70a98038b8f92b332b72a.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [【禁闻】中国学术造假39篇论文被国际期刊撤稿.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43c5a419cac46951b37cbb6405f27bdd1d9278d4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:43c5a419cac46951b37cbb6405f27bdd1d9278d4
-
-下载BT种子 [【禁闻】美国德州休士顿市长褒奖法轮大法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25adaaeccc1f9e01ce7c66d4ffa825b0dc2845e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:25adaaeccc1f9e01ce7c66d4ffa825b0dc2845e4
-
-下载BT种子 [【禁闻】因疫情滞留巴基斯坦中共把国人当球踢.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2044b8b579870c701a4529ef13fee42c46094be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e2044b8b579870c701a4529ef13fee42c46094be
-
-下载BT种子 [《石濤.News》「中共病毒🦠攻入白宮：彭斯新聞官凱特確診」其丈夫-總統資深幕僚川普一位貼身侍衛同時確診「川普：凱特一直很棒今早突然這樣了？！」（0805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee4d92ef4739df8963ca70fc4662b98ca34c7fa9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee4d92ef4739df8963ca70fc4662b98ca34c7fa9
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
