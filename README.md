@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aoN6d0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/51SnBY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [㊙️上海公司洩密：武漢多區重現「封城」政策；中共欲竊美國病毒疫苗研究成果；習近平山西拜佛為了什麼？共軍要渤海實彈演習70多天，美軍戰機軍艦齊出；汶川地震12年，特警監視死者家屬新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9796ab749ad009258fe33be7488e9db4a6285a31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9796ab749ad009258fe33be7488e9db4a6285a31
 
 下载BT种子 [【唐靖遠快評】美新版“曼哈頓計劃”推倒中共防火牆？技術與資金之外還有兩大決定因素；川普新冷戰引而不發熱點互動05122020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ae769ac9c597e127fc09577f8a65a571e8a1898.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】港立会爆冲突“李慧琼越权”特斯拉上海工厂停工中共早知病毒人传人（5月8日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0e69e789f153e02b8b62190d96aa5a211ac8387.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a0e69e789f153e02b8b62190d96aa5a211ac8387
-
-下载BT种子 [港立會爆衝突「李慧琼越權」泛民議員被抬出場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa754ffb822dfc9496fd68d92e4d0d5de93f298a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fa754ffb822dfc9496fd68d92e4d0d5de93f298a
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
