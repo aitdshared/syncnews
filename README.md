@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XEy89F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1Sa62f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】川普指示：美联邦雇员退休基金撤出中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fa23676f8dabaf37c5af79a7ab9be59b061d80bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fa23676f8dabaf37c5af79a7ab9be59b061d80bf
 
 下载BT种子 [解放軍欲奪東沙島！川普或有重大決定：100個貿易協議也彌補不了損失；深度解析中共對台、美軍事謀略（文昭談古論今20200513第750期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1095d377f97fa154da7267e24a381a7eae691c4.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [FDA批准羅格斯大學家庭唾液測試.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/895dd0082308fcefee0eeb30696ff8440ed709e6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:895dd0082308fcefee0eeb30696ff8440ed709e6
-
-下载BT种子 [海外確診392萬俄羅斯日本計劃部分解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd30c6dfc7c6c8c4aae4189d0f8062ab4acb3cee.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fd30c6dfc7c6c8c4aae4189d0f8062ab4acb3cee
 
 下载BT种子 [二戰「歐洲勝利日」75週年各國舉行無聚集紀念活動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/978002f3789475ee625267d13cf6361c56208f4b.torrent)
 
