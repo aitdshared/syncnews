@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mlVBKZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/agAnYd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普在行动;30亿美元推倒中共防火墙;脸书的“最高法院”与油管的公然左转(政论天下第164集20200512)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec3313ec2f564a4a57aeefc142f40454c2da4894.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec3313ec2f564a4a57aeefc142f40454c2da4894
+
+下载BT种子 [中國大陸以外感染近425萬俄高染病率仍全面開工亞洲經濟損失慘重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25660edb63f96f37fec2e0ab72ed72c1b35c27ad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:25660edb63f96f37fec2e0ab72ed72c1b35c27ad
+
+下载BT种子 [白宮警告：繼續封閉後果嚴重將會面臨更多更嚴重的社會和健康問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd42651b983ce9df4a95cf94a281614ac91ccbf6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fd42651b983ce9df4a95cf94a281614ac91ccbf6
+
+下载BT种子 [美參院通過法案助台重獲世衛觀察員身份.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15d9f89f5df463717308154fd51557312320f4b7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15d9f89f5df463717308154fd51557312320f4b7
+
+下载BT种子 [瑞典國會議員：必須追查武漢病毒來源.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/814647711ee716bc18b954fb28debf804e017eb0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:814647711ee716bc18b954fb28debf804e017eb0
 
 下载BT种子 [【513专题】受益于法轮大法医者找到生命升华之路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2bb00af4c0dc0f3fc273d1c928f5d557620d03fc.torrent)
 
@@ -604,26 +624,6 @@
 下载BT种子 [【重播】0508白宮發言人舉行簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddcd32d230b13d371573c6c87095f7fedef320d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ddcd32d230b13d371573c6c87095f7fedef320d0
-
-下载BT种子 [《石濤聚焦》「胡錫進強硬回覆川普‘戰爭論’：核彈頭增加至1000枚」獲6萬多人點讚華春瑩稱其“言論自由”「文革時期-毛主席與批鬥劉少奇等人珍貴視頻」真實再現習近平-中國夢與定於一尊的期待（0805.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff393f5d6d7d7f3c7e4d9445a783af49d6ba29db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff393f5d6d7d7f3c7e4d9445a783af49d6ba29db
-
-下载BT种子 [【中國禁聞】5月7日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5917e1ca68da96ff5e0523bde622d110533f2047.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5917e1ca68da96ff5e0523bde622d110533f2047
-
-下载BT种子 [【环球直击】5月8日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78421683b0cee65e55b879ae1f887bf378ceb8d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:78421683b0cee65e55b879ae1f887bf378ceb8d5
-
-下载BT种子 [不忍了，郝海东勇敢讲真话；对比两岸外交部发言人，看台湾女士的魅力；高速路收费大涨，大陆资源不足问题凸显.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21342484858f43ed2c2ee87850f52c0dd49a86a7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21342484858f43ed2c2ee87850f52c0dd49a86a7
-
-下载BT种子 [【新唐人重播】58台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a119bd9dc61441ee65436301a5252874682a928.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a119bd9dc61441ee65436301a5252874682a928
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
