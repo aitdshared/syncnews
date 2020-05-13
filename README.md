@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vaD2tB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C08GGM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【513重播】黃蜂颱風生成週末影響台灣氣象局記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e676b5e2ddbaddafbcf289a814fdb201f84fdecc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e676b5e2ddbaddafbcf289a814fdb201f84fdecc
 
 下载BT种子 [【513專題】受益於法輪大法醫者找到生命昇華之路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d51414ed7382eb50d7ce9fa79d748f241b4864d8.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [習近平兩會或迎「重鎚三連」；還有變數往北看；彭培奧暗示與中共「不兩立」（文昭談古論今20200508第747期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cfc2ad1dd140149ee0d3c795fce350b7deeb155.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5cfc2ad1dd140149ee0d3c795fce350b7deeb155
-
-下载BT种子 [台灣赴武漢專家：中共早知病毒人傳人？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84fa7e30ba3d9b61fa999ea2fbbad18f6bf613df.torrent)
-
-磁力链接 magnet:?xt=urn:btih:84fa7e30ba3d9b61fa999ea2fbbad18f6bf613df
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
