@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hsHzLT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ziN6VY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [震动！航母建设总指挥叛变。共军机密尽在美国掌控之中？习近平策动最大军演，究竟要吓唬谁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1472123d95b1eb9d3033954535eb03df7b4a11bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1472123d95b1eb9d3033954535eb03df7b4a11bf
 
 下载BT种子 [【禁闻】法轮大法日大陆民众谢李大师救命之恩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c0684c0f63f40f8a33d99973729290f4c465dcc8.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美國務院揭中共造水軍网絡擴散假信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3648682f90b30b21b8c9873eaa505f3f4ff1ff72.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3648682f90b30b21b8c9873eaa505f3f4ff1ff72
-
-下载BT种子 [FDA批准羅格斯大學家庭唾液測試.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/895dd0082308fcefee0eeb30696ff8440ed709e6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:895dd0082308fcefee0eeb30696ff8440ed709e6
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
