@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NnxoAW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SlHG9f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb9d3fe5d88392468c0954372077043aac70fbe5
 
 下载BT种子 [【环球直击】5月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1d9c417c59e30156e958396419b863e49d4024b.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】亚太“奶茶联盟”崛起主打中共小粉红玻璃心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34115466324f738adb8577d6ae1db86180730173.torrent)
 
 磁力链接 magnet:?xt=urn:btih:34115466324f738adb8577d6ae1db86180730173
-
-下载BT种子 [党媒暗示：两高官涉政变！习近平对政治老人下手？金正恩口信，证明一件事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05cd3aaa7949b918d2719dcbf5cc2b1316ec898b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:05cd3aaa7949b918d2719dcbf5cc2b1316ec898b
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
