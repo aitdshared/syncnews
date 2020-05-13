@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SlHG9f)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sDPN0R)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「川普最新推文：100個中美貿易協議無法彌補中共國大瘟疫的傷害」無數無辜的人們死去⋯⋯美參議院推出「新冠責任法案」授權川普制裁中共：凍結資產旅行禁令撤銷簽證限縮貸款股市除名《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9508f3e946dd3256eb3cdd45d18055390c7dc867.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9508f3e946dd3256eb3cdd45d18055390c7dc867
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「習近平遭惡搞頭生角變播毒「蝙蝠俠」佔領瑞典街頭」鍾南山極力推薦中成藥「蓮花清瘟膠囊」被瑞典海關禁止：只含「薄荷醇」沒用！（0805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/142ef5dc6bdb01bb56b5cd27c7f226c1ba6075eb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:142ef5dc6bdb01bb56b5cd27c7f226c1ba6075eb
-
-下载BT种子 [【禁闻】亚太“奶茶联盟”崛起主打中共小粉红玻璃心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34115466324f738adb8577d6ae1db86180730173.torrent)
-
-磁力链接 magnet:?xt=urn:btih:34115466324f738adb8577d6ae1db86180730173
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
