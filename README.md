@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lBIYdn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BBHka9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -620,10 +620,6 @@
 下载BT种子 [華為、孟晚舟命運改寫？美國重啟與華為5G標準談判意味著什麼？核心技術拼市場，美國也用拖刀法，直接進入6G戰略時代（江峰漫談20200507第167期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8beafd84c3fc3ee0f6b61f307aa5b6627cf97a28.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8beafd84c3fc3ee0f6b61f307aa5b6627cf97a28
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十三回鄧九公奉敕西征」土行孫貪紅塵欺師滅祖盜得捆仙繩投奔鄧九公子牙忌諱遇女將鄧蟬玉連傷哪吒黃天化「修德每愁糜白骨荒淫反自詠金甌」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecb56b6d333417e8d18bbdb7ee5fd0f35a44ec49.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecb56b6d333417e8d18bbdb7ee5fd0f35a44ec49
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
