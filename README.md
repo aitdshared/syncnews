@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C08GGM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jlw3lI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [金正恩触怒犹太人关系网，朝鲜的美元遇到麻烦了；茅台市值超越三星电子，分析背后的原因；因为长得像习近平，歌唱家被三次封号.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/095cd98324fbe45caa199403e2fa2be2e248b907.torrent)
+
+磁力链接 magnet:?xt=urn:btih:095cd98324fbe45caa199403e2fa2be2e248b907
 
 下载BT种子 [【513重播】黃蜂颱風生成週末影響台灣氣象局記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e676b5e2ddbaddafbcf289a814fdb201f84fdecc.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【蕭茗訪談】訪班農：圍繞武漢病毒所一系列懸疑你見了國內出逃科學家？央視為何選此時攻擊你？（cc字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/319020b728ba0bd598ba0557fcc2b29b192128e3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:319020b728ba0bd598ba0557fcc2b29b192128e3
-
-下载BT种子 [習近平兩會或迎「重鎚三連」；還有變數往北看；彭培奧暗示與中共「不兩立」（文昭談古論今20200508第747期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cfc2ad1dd140149ee0d3c795fce350b7deeb155.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5cfc2ad1dd140149ee0d3c795fce350b7deeb155
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
