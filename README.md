@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GLebum)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5iAoIv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國大陸大法弟子敬祝李洪志師父生日快樂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ebf449e9e0e20bcebe7599c8e564ef6052346b1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9ebf449e9e0e20bcebe7599c8e564ef6052346b1
 
 下载BT种子 [川普拜登「鬥打中共」💥？美國總統大選，事關中共命運！拜登再爆「性醜聞」？！鍾南山公開賣假藥，竟是自家產品🤭！染指3家藥企，背後黑幕重重😱【新聞看點05.12】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a6d2e530bf8e44052ec69dd0a2e8c79e6356dfa.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [歐洲紀念二戰勝利日美日美俄商討疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/609b4b0736f6eec412ad0c19506e18973bd59564.torrent)
 
 磁力链接 magnet:?xt=urn:btih:609b4b0736f6eec412ad0c19506e18973bd59564
-
-下载BT种子 [美司法部撤銷對弗林的指控川普歡迎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24a4a1580bc4b02c3d840acefcf2964e37541c7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:24a4a1580bc4b02c3d840acefcf2964e37541c7f
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
