@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tIU71t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xTNrPk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】5月13日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c431be26533ee5df4210ae61635fc951145ab847.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c431be26533ee5df4210ae61635fc951145ab847
+
+下载BT种子 [《石濤聚焦》「川普今早放狠话：切斷與中共國整個關係我不想跟他（习近平）說話」效仿当年里根切断美苏关系-完全对立可省下5000亿美元（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9171dd17136aa95896b07c9bfd2f1c9594faeff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e9171dd17136aa95896b07c9bfd2f1c9594faeff
 
 下载BT种子 [【新唐人重播】514台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73b86b2c1a8104493ce5fcfeed981193af047749.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [震撼！德国查实：习近平亲自干了那件事！党媒编造普京通话。王沪宁反马克思。胡锡进又咋了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06da8c7f060893e81805b3637cc1bf24513049a5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06da8c7f060893e81805b3637cc1bf24513049a5
-
-下载BT种子 [中共病毒擴散歐盟：延到6月中開放邊界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc4b0eb7f8975ab63c3d821a1413f4387ff721bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc4b0eb7f8975ab63c3d821a1413f4387ff721bf
-
-下载BT种子 [台灣維持零確診第27天擬放2千人看棒球.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/451ead97ae7ad2a01aebef21feb3a526543433e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:451ead97ae7ad2a01aebef21feb3a526543433e2
 
 下载BT种子 [港議員政要賀513大法日感佩真善忍精神.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c77d46bc9ea560d964319b9d9d16d34d9b9d472c.torrent)
 
