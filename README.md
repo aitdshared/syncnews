@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iT3vC1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O5v1YE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [白宮出手美國聯邦退休基金停止投資中企.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/911bc547a6956e52d7c24d4b927843fb81f2cb5c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:911bc547a6956e52d7c24d4b927843fb81f2cb5c
+
+下载BT种子 [武漢一小區爆發疫情全市核酸檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/390c06da0c063597c2210ea0ceb414accaa53127.torrent)
+
+磁力链接 magnet:?xt=urn:btih:390c06da0c063597c2210ea0ceb414accaa53127
+
+下载BT种子 [吉林市封城火車客運停運聚集場所全停業.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dda635f06353a2ae090e43e74378abf50f51170f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dda635f06353a2ae090e43e74378abf50f51170f
 
 下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d96479dfcb1813f46639a9c2b7e81a7539ea94ba.torrent)
 
@@ -612,14 +624,6 @@
 下载BT种子 [【中国禁闻】5月8日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f1f36a0ce93ebf1d6b5e7ba477cdae641995a17.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2f1f36a0ce93ebf1d6b5e7ba477cdae641995a17
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十四回土行孫立功顯耀」土行孫-七情六慾皆不舍紅塵之慾能毀仙-盜得捆仙繩生擒哪吒活捉黃天化淫褻之念楊戩著赤身裸體被其擄土行孫-修行者之大忌戒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e25928754f60ae30b6584b48bbe0db95a53703f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e25928754f60ae30b6584b48bbe0db95a53703f1
-
-下载BT种子 [【禁闻】5月8日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4545432b7b3249f54030d0be3d85c08f47b017b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4545432b7b3249f54030d0be3d85c08f47b017b0
 
 下载BT种子 [【禁闻】“千人计划”转地下运作？大陆全网删除.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd45af237a82493ed24cef726f2791c4d1582cc.torrent)
 
