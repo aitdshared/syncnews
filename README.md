@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IXW3MM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3GYtS5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國智庫：川普政府可能大選前拆中共防火牆班農：已經列在美國政府日程表.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4034b834368e94bf28850e3d0d94bf8b76dc8a99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4034b834368e94bf28850e3d0d94bf8b76dc8a99
 
 下载BT种子 [無懼打壓武漢市民：網上立碑紀念罹難者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38e68fc961a185d7db22c9950bd29a51a90ca156.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】5月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d96e8cfd04c1c470bf531e770476d45d9c888eaa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d96e8cfd04c1c470bf531e770476d45d9c888eaa
-
-下载BT种子 [《石濤聚焦》「台灣刪除‘統一條款’中共國惱怒‘台獨-狂飆’」難道習近平急切期待「中華民國與憲政回歸大陸？」這是一個小學課題-基本邏輯（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7db14f35c2ea27fa68fc4cd1422895ff818a7465.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7db14f35c2ea27fa68fc4cd1422895ff818a7465
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
