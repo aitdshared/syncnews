@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6hmcX3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TWksk0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -616,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4271d2de75b76777de5cbee47f033e1cb1ed176b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4271d2de75b76777de5cbee47f033e1cb1ed176b
-
-下载BT种子 [2020年5月13日「世界法輪大法日」洪傳28週年-華人修煉故事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/364cf74b7d58793b53f057951d31ed2b3aae1217.torrent)
-
-磁力链接 magnet:?xt=urn:btih:364cf74b7d58793b53f057951d31ed2b3aae1217
 
 下载BT种子 [震撼！德国查实：习近平亲自干了那件事！党媒编造普京通话。王沪宁反马克思。胡锡进又咋了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06da8c7f060893e81805b3637cc1bf24513049a5.torrent)
 
