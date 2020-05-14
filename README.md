@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pmQmM7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sNDP3Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d96479dfcb1813f46639a9c2b7e81a7539ea94ba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d96479dfcb1813f46639a9c2b7e81a7539ea94ba
 
 下载BT种子 [【禁闻】5月13日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93b818c47c3cce139a117873f51751e052686454.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】“千人计划”转地下运作？大陆全网删除.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd45af237a82493ed24cef726f2791c4d1582cc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8cd45af237a82493ed24cef726f2791c4d1582cc
-
-下载BT种子 [【禁闻】5月8日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93.torrent)
-
-磁力链接 magnet:?xt=urn:btih:06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
