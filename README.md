@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/upGrp1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2EcRa8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [台灣連續7天零確診南美洲疫情進入高峰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccf08ba872a4332770a4bfe9b9be644408dcb9a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ccf08ba872a4332770a4bfe9b9be644408dcb9a3
+
+下载BT种子 [中共竊疫苗技術美國議員籲川普制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9314dfefbedb622a42601b8b011594e4245dcc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c9314dfefbedb622a42601b8b011594e4245dcc6
+
+下载BT种子 [川普延長13873行政令繼續封殺華為中興等中企.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1a71f6b055561dbeca78081cf3dc7274e9b41ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f1a71f6b055561dbeca78081cf3dc7274e9b41ec
 
 下载BT种子 [美國智庫：川普政府可能大選前拆中共防火牆班農：已經列在美國政府日程表.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4034b834368e94bf28850e3d0d94bf8b76dc8a99.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [石家莊天空變色，10公里外有震撼；特大冰雹，15分鐘積1米深；「病毒長眼」入名校，哈佛染疫背後；軍方捐助哈佛；曾經小粉紅翻牆罵中共；回網友：逃離中共控制只需一點【新聞看點李沐陽05.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af657dfed0ed26fbe8f32567c570c9756d75bce4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:af657dfed0ed26fbe8f32567c570c9756d75bce4
-
-下载BT种子 [胡锡进千枚核弹之心理分析;针对中美贸易第一阶段协议,关税已非川普第一大招(政论天下第163集20200509)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ff6f06576ff5741659798068c0c8d1e0f42d814.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1ff6f06576ff5741659798068c0c8d1e0f42d814
-
-下载BT种子 [专访寇谧将：如何因应中共操纵世卫威胁各国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ad1d0b8252e58b87af4770a2f6be1b48ff2c209.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4ad1d0b8252e58b87af4770a2f6be1b48ff2c209
-
-下载BT种子 [【环球直击】5月9日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d96e8cfd04c1c470bf531e770476d45d9c888eaa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d96e8cfd04c1c470bf531e770476d45d9c888eaa
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
