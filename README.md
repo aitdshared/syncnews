@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DvM3Vi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V1Zp5c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平渤海軍演真實目的是要護龍氣；第一次明確美國假想敵，不小心透露攻台方略；南海東沙群島登陸戰為什麼是假的；中美貿易戰中共主動休兵（江峰漫談20200513第171期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f16d0538d811de4c27cee985319cf995eea71370.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f16d0538d811de4c27cee985319cf995eea71370
 
 下载BT种子 [《濤哥侃封神》『第五十八回子牙西岐逢呂岳』瘟神呂岳率四大門人按時空五行組合而至眾門人相繼被傷子牙無所以楊戩也無方『疫痢瘟癀幾遍災子牙端是有奇才』（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d9e571d2832e2cb20ffc3caa14979b065442e89.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【环球直击】5月9日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbe8092bb8827327cdc94f837518bf5134151728.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fbe8092bb8827327cdc94f837518bf5134151728
-
-下载BT种子 [《石濤聚焦》「德國情報局：習近平1月21日電話WHO譚德塞：不許宣布人傳人延緩宣布大流行」表明從時間點判斷—習近平已成為大災難之禍源「義大利解封當鋪被擠爆人們失去了基本生活」（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4216f64eb29d80ec71ae2dce0c61d4db1dc1bf9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4216f64eb29d80ec71ae2dce0c61d4db1dc1bf9
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
