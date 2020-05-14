@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1GfZgV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AUG2V6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [切斷金融輸血，推倒防火牆，川普是否有決心直擊中共命門？白宮叫停聯邦退休金投資中國，幕後推手是誰？橫河蕭恩熱點互動05132020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c39d5350377ac825c0c819064d5a059eb8be47cc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c39d5350377ac825c0c819064d5a059eb8be47cc
 
 下载BT种子 [習近平渤海軍演真實目的是要護龍氣；第一次明確美國假想敵，不小心透露攻台方略；南海東沙群島登陸戰為什麼是假的；中美貿易戰中共主動休兵（江峰漫談20200513第171期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f16d0538d811de4c27cee985319cf995eea71370.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美國失業數字低於預期股市續漲三週以來第一次「週線收紅」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c225f36228bd12fbc376e5418f02c4cd053ae417.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c225f36228bd12fbc376e5418f02c4cd053ae417
-
-下载BT种子 [【环球直击】5月9日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbe8092bb8827327cdc94f837518bf5134151728.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fbe8092bb8827327cdc94f837518bf5134151728
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
