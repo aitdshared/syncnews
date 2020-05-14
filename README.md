@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mc7Rcw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jgx7FJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國解密】台湾挺身对抗世卫中共想要川普输掉选举香港正在变成监狱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/221d0d99b67125ae00e2be2b5684ebd5035eba7c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:221d0d99b67125ae00e2be2b5684ebd5035eba7c
 
 下载BT种子 [习近平恨上一个人！更恨他背后那个常委。大阵仗军演，对付五千人？赵白眼又火了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fcac822d0d5927450632e266692b252393a7b15.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第五十五回土行孫歸服西岐」土行孫-七情六慾代言者一心要娶鄧蟬玉「愛欲迷人真性自昧」子牙恨之入骨執意殺「背卻天真貪愛欲有違師訓逐疆場」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63d5ad74b79db2e48702b777c19a9c6873e85313.torrent)
 
 磁力链接 magnet:?xt=urn:btih:63d5ad74b79db2e48702b777c19a9c6873e85313
-
-下载BT种子 [一周经济回顾：全新的格局.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0610e8c743bba826d05e392e53d5fbe1e4c3bfa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0610e8c743bba826d05e392e53d5fbe1e4c3bfa
-
-下载BT种子 [习近平要谭德塞办俩事遭曝光！致全球损失4-6周？美国治理党媒掏粪工？小粉红觉醒了？（老北京茶馆第305集20200509）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c88d87c03af98828cf716f6b6b758ba6ff12942.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c88d87c03af98828cf716f6b6b758ba6ff12942
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
