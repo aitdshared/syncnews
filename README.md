@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ntGxk8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KPHafh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》『第五十八回子牙西岐逢呂岳』瘟神呂岳率四大門人按時空五行組合而至眾門人相繼被傷子牙無所以楊戩也無方『疫痢瘟癀幾遍災子牙端是有奇才』（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d9e571d2832e2cb20ffc3caa14979b065442e89.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5d9e571d2832e2cb20ffc3caa14979b065442e89
 
 下载BT种子 [中共防火墙10月推倒！川普：100笔贸易协议也换不回逝去的生命！台湾人公开聚集？（老北京茶馆第307集20200514）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5468e2b1805645bc20fd87c27cfebb074015bf1.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「德國情報局：習近平1月21日電話WHO譚德塞：不許宣布人傳人延緩宣布大流行」表明從時間點判斷—習近平已成為大災難之禍源「義大利解封當鋪被擠爆人們失去了基本生活」（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4216f64eb29d80ec71ae2dce0c61d4db1dc1bf9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a4216f64eb29d80ec71ae2dce0c61d4db1dc1bf9
-
-下载BT种子 [【預告片】養虎為患華爾街的省思#新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8aed22eba53fb8f1433959d8c94bf6b63a5153eb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8aed22eba53fb8f1433959d8c94bf6b63a5153eb
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
