@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lPN2AA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tXA0pG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】5月13日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93b818c47c3cce139a117873f51751e052686454.torrent)
+
+磁力链接 magnet:?xt=urn:btih:93b818c47c3cce139a117873f51751e052686454
 
 下载BT种子 [【禁闻】5月13日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fef08bba4c9591ca2e102ea40f76fb7a15ae7939.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁闻】5月8日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06fcbea3485ea3427a7e9ceefcdf0cabb1f6ed93
-
-下载BT种子 [倒爺自述如何發國難財🚫N95要50元，假額溫器炒到400多❗️呼吸機漲了20多萬😨美又拿出終極懲罰❗️美解體中共？習近平何去何從？🤔台灣入世衛不重要？什麼重要？【新聞看點李沐陽05.08】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/583a42c564121fb795cf315b756d223d4f08ed50.torrent)
-
-磁力链接 magnet:?xt=urn:btih:583a42c564121fb795cf315b756d223d4f08ed50
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
