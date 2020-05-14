@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TWksk0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IXW3MM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [無懼打壓武漢市民：網上立碑紀念罹難者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38e68fc961a185d7db22c9950bd29a51a90ca156.torrent)
+
+磁力链接 magnet:?xt=urn:btih:38e68fc961a185d7db22c9950bd29a51a90ca156
+
+下载BT种子 [吉林市封城出現搶購潮導致物價飛漲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29e9a178b50afdeba6a5df5cf9192dad6c09b800.torrent)
+
+磁力链接 magnet:?xt=urn:btih:29e9a178b50afdeba6a5df5cf9192dad6c09b800
+
+下载BT种子 [美加政要褒獎推文祝賀法輪大法日（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbe40ea6644fb0d711475432f75566214e368324.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fbe40ea6644fb0d711475432f75566214e368324
 
 下载BT种子 [慶祝法輪大法日韓法輪功學員感恩師尊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b737f65fa1653daa3adec0adf0a9626db23c7805.torrent)
 
@@ -612,14 +624,6 @@
 下载BT种子 [《石濤聚焦》「台灣刪除‘統一條款’中共國惱怒‘台獨-狂飆’」難道習近平急切期待「中華民國與憲政回歸大陸？」這是一個小學課題-基本邏輯（0905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7db14f35c2ea27fa68fc4cd1422895ff818a7465.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7db14f35c2ea27fa68fc4cd1422895ff818a7465
-
-下载BT种子 [《石濤聚焦》「」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4271d2de75b76777de5cbee47f033e1cb1ed176b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4271d2de75b76777de5cbee47f033e1cb1ed176b
-
-下载BT种子 [震撼！德国查实：习近平亲自干了那件事！党媒编造普京通话。王沪宁反马克思。胡锡进又咋了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06da8c7f060893e81805b3637cc1bf24513049a5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:06da8c7f060893e81805b3637cc1bf24513049a5
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
