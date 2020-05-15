@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cbj2HS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VgV8xf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普：下周公布对WHO的调查报告」相信涉及WHO管理不当协助中共国掩盖疫情为大流行不可推卸的责任「选情吃紧拜登联手中共国借疫情民怨打击」习近平再逼川普唯一选择：凭证据重拳打击中共国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7c348fbd100f4fe7c840a0f08358f435630593d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b7c348fbd100f4fe7c840a0f08358f435630593d
 
 下载BT种子 [🚑5萬海歸要到武漢隔離！天河機場消息；斯坦福AI女涉多項中共統戰；快遞站揭疫情：四川有異常；瀋陽上千人需隔離；死者母要告周先旺；美推問責法逼中共交真相；台灣32天無本土病例新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6ef63a9b9fdfaefebb93616d06fc4e6f3ed214a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【美國思想領袖】戴安娜·韋斯特：他們不是在捍衛憲法誓言而是在踐踏憲法！共產主義意識形態已滲透到美國情報機構？在調查間諜門醜聞的過程中，發現了有關他們信仰的秘密！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5284ee757db2d0ee132499ebc5a9bc17ea42043c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5284ee757db2d0ee132499ebc5a9bc17ea42043c
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十五回土行孫歸服西岐」懼留孫設計抓徒兒更惱因色累自身掐指一算甚無奈更遣宜生說姻緣土行孫又因貪色得生路前世姻緣本世了無人敢阻足下牽（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d890819197714212386c58168dac09ecd780214.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4d890819197714212386c58168dac09ecd780214
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
