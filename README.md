@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vA0AWA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VXvv8O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【微视频】母亲追责中共武汉小区病毒再起.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00
+
+下载BT种子 [【禁闻】川普：美国可切断与中共的一切关系.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf
 
 下载BT种子 [【513话感恩】绝望时刻看到希望德国医生感恩大法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c4c54a59f6a5493505600a51158e69ffd8efccf.torrent)
 
@@ -605,33 +613,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ff620e5038a19121a73485ba96bde5533d440aec
 
-下载BT种子 [《石濤聚焦》「加拿大總理：中共國口罩不合格退貨不給錢！」CNN：中美關係陷入幾十年之冰點彼此民間的仇恨歷史性頂點（1005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b78eb2638e177046ed7d2a870287c3e43a95fff5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b78eb2638e177046ed7d2a870287c3e43a95fff5
-
 下载BT种子 [《石濤聚焦》「任志強被宣布管制1個月北京現象詭異」任志強的作品書籍一切照舊在書店中招賣「蔡奇被出賣？或中南海互不相讓？」（1005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abe7c852013711e93f62e440167d5cc786d0d197.torrent)
 
 磁力链接 magnet:?xt=urn:btih:abe7c852013711e93f62e440167d5cc786d0d197
-
-下载BT种子 [《石濤.News》「修者自悟：二波瘟疫将起9月回12月頂峰源頭-印度」土木福星变天罚8億人難逃「火金水三災星天罚七灾俱下」君亡大水兵亂臣反大疫「三峽大壩崩潰可能-地震或戰爭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/621347d61fc333bf6c40e8f2f543f7fa27204479.torrent)
-
-磁力链接 magnet:?xt=urn:btih:621347d61fc333bf6c40e8f2f543f7fa27204479
-
-下载BT种子 [【环球直击】5月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/081ac37565a8eac8626deca4e1889a3503847c66.torrent)
-
-磁力链接 magnet:?xt=urn:btih:081ac37565a8eac8626deca4e1889a3503847c66
-
-下载BT种子 [【重播】5.10台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16897197e16486d671f699b1ecdede59d53c6c5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:16897197e16486d671f699b1ecdede59d53c6c5c
-
-下载BT种子 [【严真点评】外交部大实话胡锡进千枚核弹狂言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e359e763e8373d424d52132756da1fdf6bbb227.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5e359e763e8373d424d52132756da1fdf6bbb227
-
-下载BT种子 [面对羞辱，彭佩奥的反应出人意料；三星有大动作，三星电子到底是美企还是韩企？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f452e9ec016ba7c8660b17edbc01a6347f89b26.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f452e9ec016ba7c8660b17edbc01a6347f89b26
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
