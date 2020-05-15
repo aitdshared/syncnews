@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ya5O6M)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/553rcK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】川普總統在歐文斯-米諾公司發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4efad6d4173ac62a9a8c443f188357a00c8ac221.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4efad6d4173ac62a9a8c443f188357a00c8ac221
 
 下载BT种子 [【禁闻】疫情再起东北三省告急武汉社区再封闭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50ce00d429a67d5a26474269fcbf69d9b9bc994f.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [面对羞辱，彭佩奥的反应出人意料；三星有大动作，三星电子到底是美企还是韩企？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f452e9ec016ba7c8660b17edbc01a6347f89b26.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f452e9ec016ba7c8660b17edbc01a6347f89b26
-
-下载BT种子 [【时事小品】下一个骂谁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c167cb3b707d05bc3d9c5b593060953d27bdb509.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c167cb3b707d05bc3d9c5b593060953d27bdb509
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
