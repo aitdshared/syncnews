@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BRS1rw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pz68Si)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大陸以外感染近443萬日本39縣解禁印度8千萬民工受困.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14f679ad861c7bdc8fa4d609a11bdb7fed93ac48.torrent)
+
+磁力链接 magnet:?xt=urn:btih:14f679ad861c7bdc8fa4d609a11bdb7fed93ac48
+
+下载BT种子 [【全球新闻】5月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f08f561120b2a171323a702916f1f0e9fc04866b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f08f561120b2a171323a702916f1f0e9fc04866b
+
+下载BT种子 [弗林案大反轉或揭美最大政治醜聞案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/955e878db3692a52b7546d84cde48d34315c772a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:955e878db3692a52b7546d84cde48d34315c772a
+
+下载BT种子 [吃著爆米花看電影疫情下的迪拜汽車影院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28e1dfcf68d3b86c77902f430d35b1d6960aa548.torrent)
+
+磁力链接 magnet:?xt=urn:btih:28e1dfcf68d3b86c77902f430d35b1d6960aa548
 
 下载BT种子 [【中国禁闻】5月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fe1672b17786eeab19b46fb9efd836dafffed2a.torrent)
 
@@ -600,10 +616,6 @@
 下载BT种子 [【禁闻】5月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac739373b4f1a042592d218a4cdf2a30bc2d9c02.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ac739373b4f1a042592d218a4cdf2a30bc2d9c02
-
-下载BT种子 [【禁闻】世界各地法轮功学员恭祝师尊生日快乐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85a96029835fddd5b1348d8b93dd7bbfcfc1c2f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85a96029835fddd5b1348d8b93dd7bbfcfc1c2f9
 
 下载BT种子 [【禁闻】德情报局：习近平要求谭德塞压下疫情讯息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9da2c024fea82a0b14ee2c2325ff24b86b2632a6.torrent)
 
