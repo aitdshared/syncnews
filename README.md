@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/j3mtC2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SbquAX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【515重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8473df2f54c60ecc54c8f22fc3f101ef862ca443.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8473df2f54c60ecc54c8f22fc3f101ef862ca443
 
 下载BT种子 [【515重播】台灣重要企業遭勒索軟體攻擊事件調查說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/768d3ab5650f0760d07ef861d6763f358cc7b25c.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [吉林舒蘭確診人數持續增加出現跨省傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3f8b8c7368986cc976f2eb1ace5c677229611da.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a3f8b8c7368986cc976f2eb1ace5c677229611da
-
-下载BT种子 [【瘟疫與中共】城市外交：姐妹城背後的中共滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e75d4f4234db1aa43190bc7fde387d4baebe773.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3e75d4f4234db1aa43190bc7fde387d4baebe773
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
