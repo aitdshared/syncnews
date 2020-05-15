@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pt3C6C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cbj2HS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🚑5萬海歸要到武漢隔離！天河機場消息；斯坦福AI女涉多項中共統戰；快遞站揭疫情：四川有異常；瀋陽上千人需隔離；死者母要告周先旺；美推問責法逼中共交真相；台灣32天無本土病例新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6ef63a9b9fdfaefebb93616d06fc4e6f3ed214a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b6ef63a9b9fdfaefebb93616d06fc4e6f3ed214a
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第五十五回土行孫歸服西岐」懼留孫設計抓徒兒更惱因色累自身掐指一算甚無奈更遣宜生說姻緣土行孫又因貪色得生路前世姻緣本世了無人敢阻足下牽（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d890819197714212386c58168dac09ecd780214.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4d890819197714212386c58168dac09ecd780214
-
-下载BT种子 [🔥覆亡關頭！中共或走避西安，選第十八套劇本；川普向中共宣戰、將下重手？胡編揚言增千枚核武；中印邊境衝突11人傷；美媒：武漢所去年10月現險情一度關閉；港台連20多天無本地新增新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ae89839a7615fdf19d09ae972f539bd3451cc98.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ae89839a7615fdf19d09ae972f539bd3451cc98
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
