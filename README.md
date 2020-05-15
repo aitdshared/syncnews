@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pz68Si)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PIajwh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [對中共十分不滿川普或「切斷美中關係」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c155d19a864906da9bd8c2b5d788a2396ac1a81d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c155d19a864906da9bd8c2b5d788a2396ac1a81d
 
 下载BT种子 [大陸以外感染近443萬日本39縣解禁印度8千萬民工受困.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14f679ad861c7bdc8fa4d609a11bdb7fed93ac48.torrent)
 
@@ -612,22 +616,6 @@
 下载BT种子 [【特別報導】養虎為患華爾街的省思.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/607cd8ae9fb23fa5f2fff9b41b90986f92f6f045.torrent)
 
 磁力链接 magnet:?xt=urn:btih:607cd8ae9fb23fa5f2fff9b41b90986f92f6f045
-
-下载BT种子 [【禁闻】5月10日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac739373b4f1a042592d218a4cdf2a30bc2d9c02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ac739373b4f1a042592d218a4cdf2a30bc2d9c02
-
-下载BT种子 [【禁闻】德情报局：习近平要求谭德塞压下疫情讯息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9da2c024fea82a0b14ee2c2325ff24b86b2632a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9da2c024fea82a0b14ee2c2325ff24b86b2632a6
-
-下载BT种子 [动手了！中印边境爆发冲突。习近平什么都不怕？只怕两个人！美欧日悄悄撤离中国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/548d6f08c2a24ede1550f0d3f3fe74e2c445ec2a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:548d6f08c2a24ede1550f0d3f3fe74e2c445ec2a
-
-下载BT种子 [專訪：美國國務院發言人摩根·奧塔格斯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff620e5038a19121a73485ba96bde5533d440aec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff620e5038a19121a73485ba96bde5533d440aec
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
