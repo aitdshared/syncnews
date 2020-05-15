@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VI6bfT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XSDQ0B)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [東北疫情加劇遼寧吉林8000多人隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51c36ad9d4a4d384486bcdd529ea3efed26a09f1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51c36ad9d4a4d384486bcdd529ea3efed26a09f1
+
+下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a255829e6736438d6ee9505dc8d72ae8aadcd118
+
+下载BT种子 [瀋陽再爆疫情昂貴的隔離和檢測費挨批.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a6ed8f27bfa65d7d65bcdca90b51d0d17d386e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a6ed8f27bfa65d7d65bcdca90b51d0d17d386e3
+
+下载BT种子 [中共欲竊疫苗研究機密蓬佩奧聲明譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e3cd9cc85e4213b552d25495e4566963349755c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e3cd9cc85e4213b552d25495e4566963349755c
+
+下载BT种子 [法輪大法日美國國會山特別為此舉行升旗儀式慶祝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/167fefe46082cd32db265a75f10326ea8d89ce19.torrent)
+
+磁力链接 magnet:?xt=urn:btih:167fefe46082cd32db265a75f10326ea8d89ce19
 
 下载BT种子 [《石濤聚焦》「全球確診460萬死亡破30萬普京大帝瞎掰啦-俄羅斯大爆發」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aeb113dd588fb478a466e6b38edfdeedb1335211.torrent)
 
