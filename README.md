@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q1aaN3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/j3mtC2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【515重播】台灣重要企業遭勒索軟體攻擊事件調查說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/768d3ab5650f0760d07ef861d6763f358cc7b25c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:768d3ab5650f0760d07ef861d6763f358cc7b25c
+
+下载BT种子 [【515重播】「台美合作防疫聯盟-智慧親善病房創新設計」記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1cfc10124768e9df3d3085d644a007eda1259e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1cfc10124768e9df3d3085d644a007eda1259e0
 
 下载BT种子 [川普組「鐵三角」演大戲，和中共對決提前到來；貿易戰轉入軍事對壘，南海衝突的致勝點在哪裡？(江峰漫談20200514第172期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c9dbfef5fcff5c0ad750eca6ebc0a6684200cda.torrent)
 
@@ -608,14 +616,6 @@
 下载BT种子 [【瘟疫與中共】城市外交：姐妹城背後的中共滲透.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e75d4f4234db1aa43190bc7fde387d4baebe773.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e75d4f4234db1aa43190bc7fde387d4baebe773
-
-下载BT种子 [俄羅斯連9天確診破萬英法開始放寬限制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0f42e9f413befbfc993423739c477f5ba54d801.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0f42e9f413befbfc993423739c477f5ba54d801
-
-下载BT种子 [《石濤聚焦》「以色列總理納塔尼亞胡：陰轉陽-如二次爆發將【終結人類】」各國政府失效-國家崩潰「吉林舒蘭市爆疫情進「戰爭狀態」11人全是公安不知來源」武漢再現社區感染擴散6人不知原因（1105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12f72b0a1cbad8ea0c25918d1505240953e49a10.torrent)
-
-磁力链接 magnet:?xt=urn:btih:12f72b0a1cbad8ea0c25918d1505240953e49a10
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
