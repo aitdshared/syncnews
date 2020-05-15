@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qjZviX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BwsL46)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普明确“中美脱钩”试水温，拜登团队指责川普对中共软弱，美两党对中共强硬成规定动作，中共承压能力遇挑战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07952b2e9ff742435a199ef50287b2fd5863b808.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07952b2e9ff742435a199ef50287b2fd5863b808
 
 下载BT种子 [川普：可切断整个中美关系！不想和习近平说话！张召忠怼胡锡进？“习近平”遭封号？（老北京茶館第308集20200515）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bc84dbb77848e094df3259d761c3423e8777fbf.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【环球直击】5月11日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03a46c84882a71f6bb00e2490bfdf170232236fe.torrent)
 
 磁力链接 magnet:?xt=urn:btih:03a46c84882a71f6bb00e2490bfdf170232236fe
-
-下载BT种子 [【511重播】總統府說明520就職大典.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcf52298fb0c645ec084d697df8d929ab5dd6f4f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fcf52298fb0c645ec084d697df8d929ab5dd6f4f
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
