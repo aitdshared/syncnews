@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SbquAX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IcPm2f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川習翻臉？美中要全面脫鉤；製鞋龍頭關廠，預示中國五大經濟警訊（2020.5.15）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/301a5487a255768feadcdf1dc15b1179dfc1e07e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:301a5487a255768feadcdf1dc15b1179dfc1e07e
 
 下载BT种子 [【515重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8473df2f54c60ecc54c8f22fc3f101ef862ca443.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [旅港北京人：央視全是騙人的新唐人這兒說真話大陸人最喜歡看你們的電視.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2066653a8340fec6af10e3748079a904e63f0be6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2066653a8340fec6af10e3748079a904e63f0be6
-
-下载BT种子 [高智晟被強制失蹤1000天死不明妻子營救丈夫四處奔走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70d993dde1a8ea2b17a59ba713fd4d565a9c391d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:70d993dde1a8ea2b17a59ba713fd4d565a9c391d
-
-下载BT种子 [吉林舒蘭確診人數持續增加出現跨省傳播.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3f8b8c7368986cc976f2eb1ace5c677229611da.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3f8b8c7368986cc976f2eb1ace5c677229611da
 
 下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
 
