@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lbYWrU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TdubgE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -585,10 +585,6 @@
 
 磁力链接 magnet:?xt=urn:btih:8e3e5650aa4f546820044c1a3a36e87120ea5550
 
-下载BT种子 [中共進行經濟報復澳洲：堅持疫情調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89401eef48f446ab8e6329454e17d3e9e8f142f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:89401eef48f446ab8e6329454e17d3e9e8f142f7
-
 下载BT种子 [【瘟疫與中共】中共「期待左派當選」美國是否繼續綏靖？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fcdc143f338a4caae7a7ebdab81efc79c97741d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9fcdc143f338a4caae7a7ebdab81efc79c97741d
@@ -604,10 +600,6 @@
 下载BT种子 [「傳：明日-虎門大橋在顫抖中—從新開通」5月10日下午245測試視頻爆光：30輛以上重載卡車並排大橋上「視頻：等距平衡均勻—上下顫抖間距協調✅平穩」中共國人最怕死中共最不怕人死《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af93ac434a0b852938d713ed7695eb7001d05925.torrent)
 
 磁力链接 magnet:?xt=urn:btih:af93ac434a0b852938d713ed7695eb7001d05925
-
-下载BT种子 [「川普最新推文：100個中美貿易協議無法彌補中共國大瘟疫的傷害」無數無辜的人們死去⋯⋯美參議院推出「新冠責任法案」授權川普制裁中共：凍結資產旅行禁令撤銷簽證限縮貸款股市除名《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9508f3e946dd3256eb3cdd45d18055390c7dc867.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9508f3e946dd3256eb3cdd45d18055390c7dc867
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
