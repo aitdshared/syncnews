@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h3RCC9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vXbA6Q)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】疫情冲击中国经济中共好日子已结束.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2487b2cf07e1d483463059f23f18c5d02ffc3b31.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2487b2cf07e1d483463059f23f18c5d02ffc3b31
+
+下载BT种子 [【禁闻】CIA报告：中共压制世卫预警同时囤积物资.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/593e5b2dc225cc58974ac25dbc13bbf68fe10cc6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:593e5b2dc225cc58974ac25dbc13bbf68fe10cc6
 
 下载BT种子 [共军鹰派坦承：军演并非针对台湾，防美军突袭中南海！习近平压力下，驻外大使不好当。世贸总干事辞职，谭书记咋办.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f8c70106d5ad665ebbf28de8b762956eba0e390.torrent)
 
@@ -576,14 +584,6 @@
 下载BT种子 [【禁闻】5月13日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fef08bba4c9591ca2e102ea40f76fb7a15ae7939.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fef08bba4c9591ca2e102ea40f76fb7a15ae7939
-
-下载BT种子 [【513话感恩】领悟疾病根源澳洲针灸师感恩法轮大法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71fd22a363fc8a75b9e8c044cb7d77d50476bd3c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71fd22a363fc8a75b9e8c044cb7d77d50476bd3c
-
-下载BT种子 [震动！航母建设总指挥叛变。共军机密尽在美国掌控之中？习近平策动最大军演，究竟要吓唬谁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1472123d95b1eb9d3033954535eb03df7b4a11bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1472123d95b1eb9d3033954535eb03df7b4a11bf
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
