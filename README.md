@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZAEde5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LJQmyM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】5月17日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff3c208f2527b1f95e0b754f0c9292bc1dfb1540.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff3c208f2527b1f95e0b754f0c9292bc1dfb1540
+
+下载BT种子 [【禁闻】5月17日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b28c28a103e1955f1bc7a00bed7a5ea83a86a128.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b28c28a103e1955f1bc7a00bed7a5ea83a86a128
 
 下载BT种子 [【禁闻】西藏国保跨省办方斌案约谈多名重庆公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f29533977c777587bdc7d2dd4fa4b7c7abc2794.torrent)
 
@@ -576,14 +584,6 @@
 下载BT种子 [「突發：FBI證實中共國「駭客」攻擊美疫苗研發機構」美媒：川普政府視為對美國公共衛生的直接攻擊相當於戰爭行為「李飛飛成為推特獨立董事網路喧囂」（1305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40b30ec71b58688b448efef5090c74f5b2a89135.torrent)
 
 磁力链接 magnet:?xt=urn:btih:40b30ec71b58688b448efef5090c74f5b2a89135
-
-下载BT种子 [美48州逐步解封歐盟促各國開放邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58580ea031b806abaf0b6c0d7285aba56c4fc094.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58580ea031b806abaf0b6c0d7285aba56c4fc094
-
-下载BT种子 [武漢一小區爆發疫情全市核酸檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/390c06da0c063597c2210ea0ceb414accaa53127.torrent)
-
-磁力链接 magnet:?xt=urn:btih:390c06da0c063597c2210ea0ceb414accaa53127
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
