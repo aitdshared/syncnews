@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LJQmyM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NOyuaZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】5月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e37955657631564221798c55ab77e7c3e094eab6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e37955657631564221798c55ab77e7c3e094eab6
 
 下载BT种子 [【禁闻】5月17日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff3c208f2527b1f95e0b754f0c9292bc1dfb1540.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [吉林封城，7省又爆新增確診病例！中國7000萬人失業，中國經濟隱憂加劇；美國制裁中共新法案出台；3000萬噸農貨採購；驚!5個瘟疫來自中國!【新聞看點李沐陽05.13】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5db00b1aaae52b5f94b7785e7fa313ec7dd0bc4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d5db00b1aaae52b5f94b7785e7fa313ec7dd0bc4
-
-下载BT种子 [「突發：FBI證實中共國「駭客」攻擊美疫苗研發機構」美媒：川普政府視為對美國公共衛生的直接攻擊相當於戰爭行為「李飛飛成為推特獨立董事網路喧囂」（1305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40b30ec71b58688b448efef5090c74f5b2a89135.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40b30ec71b58688b448efef5090c74f5b2a89135
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
