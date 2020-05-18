@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3lR77t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ACxGQL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -584,10 +584,6 @@
 下载BT种子 [《石濤聚焦》「國土安全部聯手FBI聲明：中共國駭客入侵美國武漢肺炎疫苗研發機構的網站」美媒：直接攻擊美國公共衛生等同戰爭行為川普政府可選戰（1305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106a9de6869c1cd72af6edeeaec084e7e1b41f84.torrent)
 
 磁力链接 magnet:?xt=urn:btih:106a9de6869c1cd72af6edeeaec084e7e1b41f84
-
-下载BT种子 [【禁闻】中共是恶霸美国力挺台湾参与世卫组织.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/984a53765c555b3930ec10e2e4f0d55232c923b3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:984a53765c555b3930ec10e2e4f0d55232c923b3
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
