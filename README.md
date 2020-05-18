@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1W6KuZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DlXkH0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】西藏国保跨省办方斌案约谈多名重庆公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f29533977c777587bdc7d2dd4fa4b7c7abc2794.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2f29533977c777587bdc7d2dd4fa4b7c7abc2794
 
 下载BT种子 [【禁闻】掩盖知多少？中共承认销毁病毒样本.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57ff330ddf9fbb0a723ae949c843d1a51090d0de.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [美48州逐步解封歐盟促各國開放邊境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58580ea031b806abaf0b6c0d7285aba56c4fc094.torrent)
 
 磁力链接 magnet:?xt=urn:btih:58580ea031b806abaf0b6c0d7285aba56c4fc094
-
-下载BT种子 [白宮出手美國聯邦退休基金停止投資中企.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/911bc547a6956e52d7c24d4b927843fb81f2cb5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:911bc547a6956e52d7c24d4b927843fb81f2cb5c
 
 下载BT种子 [武漢一小區爆發疫情全市核酸檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/390c06da0c063597c2210ea0ceb414accaa53127.torrent)
 
