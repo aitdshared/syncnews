@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Om5Snp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3lR77t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [两会前钟南山甩锅：官方隐瞒，我起疑心，警惕第二波！中共大使突亡，澳洲开查中共！（老北京茶館第310集20200517）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b87a739cec128954e8cf32bb4ed128940a39341.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b87a739cec128954e8cf32bb4ed128940a39341
 
 下载BT种子 [【美國思想領袖】美國務院發言人摩根·奧塔格斯：詳解病毒源頭之爭！美國國務院對武漢冠狀病毒起源的立場到底是什麼？這場瘟疫如何成為「民主對抗專制集權」的考驗？中美關係將如何發展？#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1857846d6ce8b10761775b4f20fcdce19cefa493.torrent)
 
