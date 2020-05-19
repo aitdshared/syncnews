@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mhtxLJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RG2URh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】5月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1
 
 下载BT种子 [🔥雲南地震！2天前魚亂跳，有更大地震威脅三峽？美軍機繞海南，經共軍潛艦基地；吉林公安染疫內幕，遼寧11市追密接；世衛大會百國連署追查疫因，台灣缺席，習近平獲邀致辭，撒幣20億新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51cdf9c23417041b6bc9f1527d8a48c2486a28bf.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [【新唐人重播】514台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73b86b2c1a8104493ce5fcfeed981193af047749.torrent)
 
 磁力链接 magnet:?xt=urn:btih:73b86b2c1a8104493ce5fcfeed981193af047749
-
-下载BT种子 [崔永元油管开唱，一首红歌我居然听完了；刚抨击完彭佩奥，中共就给美国商品减税，您看懂了吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/809d0d33ad62e0ee1eab65c0249ccc3e9661cfa8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:809d0d33ad62e0ee1eab65c0249ccc3e9661cfa8
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
