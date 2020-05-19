@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KMdZUR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bVrdHI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「歷史性首次：美國務卿祝賀蔡英文今日5.20就任台灣總統」蔡英文推文回覆道謝彭培奧推文恭賀「台灣總統蔡英文博士」“台美關係欣欣向榮”蔡英文「台美夥伴關係將持續強壯且充滿希望」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c24f9f5b3a9a69480437a80df0c53649a0b18af1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c24f9f5b3a9a69480437a80df0c53649a0b18af1
 
 下载BT种子 [《石濤聚焦》「蔡英文就職宣言爆光：設修憲委員會」共四大部分兩岸基本態度「和平對等民主對話」拒絕一國兩制矮化台灣破壞現狀「維持台海和平穩定」（1905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25a9a581c0ee17e1c85f05a01d1fb3702dd150f4.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [习近平恨上一个人！更恨他背后那个常委。大阵仗军演，对付五千人？赵白眼又火了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fcac822d0d5927450632e266692b252393a7b15.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2fcac822d0d5927450632e266692b252393a7b15
-
-下载BT种子 [【环球直击】5月14日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17751a62ddc2e7703456f356f5300334e3c43687.torrent)
-
-磁力链接 magnet:?xt=urn:btih:17751a62ddc2e7703456f356f5300334e3c43687
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
