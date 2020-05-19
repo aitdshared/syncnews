@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aFgGWt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yCgfrc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [别追问台积电了，美国政府真下决心100%断供华为才是关键，当下韩国芯片企业进退两难.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/099e414c024c701cca76e3933162b46a32ad12cd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:099e414c024c701cca76e3933162b46a32ad12cd
 
 下载BT种子 [【禁闻】失业大军来袭中国经济未来何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f5ac07b0de006a23b7e05363f243fc5143a6edc.torrent)
 
@@ -580,22 +584,6 @@
 下载BT种子 [台灣連續7天零確診南美洲疫情進入高峰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccf08ba872a4332770a4bfe9b9be644408dcb9a3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ccf08ba872a4332770a4bfe9b9be644408dcb9a3
-
-下载BT种子 [川普延長13873行政令繼續封殺華為中興等中企.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1a71f6b055561dbeca78081cf3dc7274e9b41ec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1a71f6b055561dbeca78081cf3dc7274e9b41ec
-
-下载BT种子 [吉林市封城出現搶購潮導致物價飛漲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29e9a178b50afdeba6a5df5cf9192dad6c09b800.torrent)
-
-磁力链接 magnet:?xt=urn:btih:29e9a178b50afdeba6a5df5cf9192dad6c09b800
-
-下载BT种子 [美加政要褒獎推文祝賀法輪大法日（四）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fbe40ea6644fb0d711475432f75566214e368324.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fbe40ea6644fb0d711475432f75566214e368324
-
-下载BT种子 [慶祝法輪大法日韓法輪功學員感恩師尊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b737f65fa1653daa3adec0adf0a9626db23c7805.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b737f65fa1653daa3adec0adf0a9626db23c7805
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
