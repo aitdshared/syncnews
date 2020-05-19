@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JmyDBK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mjsayz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [122國要求調查，習近平硬扛不住了；華為被台積電斷供，只能撐到年底？中美絕交第一波連環打擊超乎意料的快（文昭談古論今20200518第752期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e5a7f7283456338f0c56f6fe622ac540d59058f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e5a7f7283456338f0c56f6fe622ac540d59058f
 
 下载BT种子 [平壤异动，金正恩又悬了？中共隐身人露脸，他负责沉船计划？俄罗斯加入122国，要求彻查。美国发射神秘太空飞机。中印对峙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37a242fd606bfdffdc6e28b57309712c4699154e.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [《濤哥侃封神》『第五十八回子牙西岐逢呂岳』瘟神呂岳率四大門人按時空五行組合而至眾門人相繼被傷子牙無所以楊戩也無方『疫痢瘟癀幾遍災子牙端是有奇才』（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d9e571d2832e2cb20ffc3caa14979b065442e89.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5d9e571d2832e2cb20ffc3caa14979b065442e89
-
-下载BT种子 [中共防火墙10月推倒！川普：100笔贸易协议也换不回逝去的生命！台湾人公开聚集？（老北京茶馆第307集20200514）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5468e2b1805645bc20fd87c27cfebb074015bf1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a5468e2b1805645bc20fd87c27cfebb074015bf1
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
