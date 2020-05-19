@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o878cZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VHybVB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b92e5964a30c6261d8328d2ccc15212d87d32bd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5b92e5964a30c6261d8328d2ccc15212d87d32bd
 
 下载BT种子 [【518重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2000b6ff2f98ef91744a454a6292c9a4791df8dd.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [《石濤聚焦》「華爾街：中共國駭客直接攻擊疫苗研製極易災難性毀壞』FBI正式聲明證實報導『等同對美宣戰』（1305）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c772f24bacd47d785e8a4a98cfe5dec28611f27.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1c772f24bacd47d785e8a4a98cfe5dec28611f27
-
-下载BT种子 [👉習近平有替身？撞臉事件；沈陽軍醫院突被包圍封鎖！吉林市封城；武漢男子公園倒地，多區再關閉，特警看守；李飛飛進推特，助推言論審查？共軍被唱衰：空軍不行；5月13日為何被人慶祝？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/856c8f7e519fb97cd6b6b7b800692ea40a9a6480.torrent)
-
-磁力链接 magnet:?xt=urn:btih:856c8f7e519fb97cd6b6b7b800692ea40a9a6480
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
