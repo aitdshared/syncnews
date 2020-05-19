@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lnF615)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aFgGWt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】失业大军来袭中国经济未来何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f5ac07b0de006a23b7e05363f243fc5143a6edc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f5ac07b0de006a23b7e05363f243fc5143a6edc
+
+下载BT种子 [【中國禁聞】5月17日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cbf19df24e25f8574c56b9b6f1a079125eebb2c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8cbf19df24e25f8574c56b9b6f1a079125eebb2c
+
+下载BT种子 [【禁闻】惧香港青年独立思考？中共称要“刮骨疗毒”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bde91c4b167a314ad3dad612f3d828f417db0cb6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bde91c4b167a314ad3dad612f3d828f417db0cb6
+
+下载BT种子 [【禁闻】欧盟最高外交官：中共企图分化欧洲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99b4559b6e502ae5ac82c23ec0240cbb15940935.torrent)
+
+磁力链接 magnet:?xt=urn:btih:99b4559b6e502ae5ac82c23ec0240cbb15940935
+
+下载BT种子 [【禁闻】肺炎疫情冲击“去中国化同盟”形成.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55ed54b2ffac9ad2e26a4bc5aab8ce2bf39d7ae6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55ed54b2ffac9ad2e26a4bc5aab8ce2bf39d7ae6
 
 下载BT种子 [【禁闻】武汉市民：全民核酸检测是闹剧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aced80693bf24f076353aacebd9a2767710185ad.torrent)
 
@@ -561,21 +581,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ccf08ba872a4332770a4bfe9b9be644408dcb9a3
 
-下载BT种子 [中共竊疫苗技術美國議員籲川普制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9314dfefbedb622a42601b8b011594e4245dcc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c9314dfefbedb622a42601b8b011594e4245dcc6
-
 下载BT种子 [川普延長13873行政令繼續封殺華為中興等中企.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1a71f6b055561dbeca78081cf3dc7274e9b41ec.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f1a71f6b055561dbeca78081cf3dc7274e9b41ec
-
-下载BT种子 [美國智庫：川普政府可能大選前拆中共防火牆班農：已經列在美國政府日程表.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4034b834368e94bf28850e3d0d94bf8b76dc8a99.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4034b834368e94bf28850e3d0d94bf8b76dc8a99
-
-下载BT种子 [無懼打壓武漢市民：網上立碑紀念罹難者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38e68fc961a185d7db22c9950bd29a51a90ca156.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38e68fc961a185d7db22c9950bd29a51a90ca156
 
 下载BT种子 [吉林市封城出現搶購潮導致物價飛漲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29e9a178b50afdeba6a5df5cf9192dad6c09b800.torrent)
 
