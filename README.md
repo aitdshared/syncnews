@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4TQAiv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PgtaHF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平川普下重注究竟在賭什麼？中共偷疫苗反咬一口；川普動真格視同戰爭。眾議院3萬億背後的水很深（江峰漫談20200518第174期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/057df71b8e0dde939d34cd86df1f855879ffea38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:057df71b8e0dde939d34cd86df1f855879ffea38
 
 下载BT种子 [美國又要提「分手」!「孤獨戰士」習近平，遇上譚德塞「變節」非洲47個「兄弟」全倒戈～北京很燒心！中國人與真相距離：兩牆一溝「一把鎖」；台灣朋友懟五毛，大陸小夥懟教授【新聞看點李沐陽05.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e8bad254cd42ec86eba8d6b48a5537231c1142c.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [切斷金融輸血，推倒防火牆，川普是否有決心直擊中共命門？白宮叫停聯邦退休金投資中國，幕後推手是誰？橫河蕭恩熱點互動05132020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c39d5350377ac825c0c819064d5a059eb8be47cc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c39d5350377ac825c0c819064d5a059eb8be47cc
-
-下载BT种子 [習近平渤海軍演真實目的是要護龍氣；第一次明確美國假想敵，不小心透露攻台方略；南海東沙群島登陸戰為什麼是假的；中美貿易戰中共主動休兵（江峰漫談20200513第171期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f16d0538d811de4c27cee985319cf995eea71370.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f16d0538d811de4c27cee985319cf995eea71370
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
