@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XZY1mn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AMDaTC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [多名高官去向神秘！因反习被打入冷宫。习近平抛20亿，意外惹翻无数人。特朗普发最后通牒。国务卿祝贺蔡总统.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f178cf6141af700faec9bc49238a58c7a0f49b4d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f178cf6141af700faec9bc49238a58c7a0f49b4d
 
 下载BT种子 [美出台最嚴厲新規，華為還能撐多久？取決於一決定性因素！台積電美國設廠，邁出「選邊站」關鍵一步Jason趙培熱點互動05182020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbdef62ca4ebe233febf920025b9b738341e17f5.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [【禁闻】疫情再起东北三省告急武汉社区再封闭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50ce00d429a67d5a26474269fcbf69d9b9bc994f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:50ce00d429a67d5a26474269fcbf69d9b9bc994f
-
-下载BT种子 [【中國解密】台湾挺身对抗世卫中共想要川普输掉选举香港正在变成监狱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/221d0d99b67125ae00e2be2b5684ebd5035eba7c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:221d0d99b67125ae00e2be2b5684ebd5035eba7c
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
