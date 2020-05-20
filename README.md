@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qpA3CS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0tn30f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [納斯卡汽車競速大賽終於還是拉開帷幕哈維克駕福特車奪冠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ad1cd61f42b70fd02be4b291d6d0b5711a4cb6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5ad1cd61f42b70fd02be4b291d6d0b5711a4cb6f
+
+下载BT种子 [【全球新闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d824cea1b02deade8ed7a0a4c21b984b0045c80.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7d824cea1b02deade8ed7a0a4c21b984b0045c80
 
 下载BT种子 [【新唐人重播】520台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e47f058e5df67aecd86800a795c4ac18107bfb88.torrent)
 
@@ -576,10 +584,6 @@
 下载BT种子 [川習翻臉？美中要全面脫鉤；製鞋龍頭關廠，預示中國五大經濟警訊（2020.5.15）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/301a5487a255768feadcdf1dc15b1179dfc1e07e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:301a5487a255768feadcdf1dc15b1179dfc1e07e
-
-下载BT种子 [【515重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8473df2f54c60ecc54c8f22fc3f101ef862ca443.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8473df2f54c60ecc54c8f22fc3f101ef862ca443
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
