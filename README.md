@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hB97Cj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WWnZwL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【瘟疫與中共】中共政府如何滲透聯合國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8663fe3f37e2850b44eda760d5a8828a2817a5bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8663fe3f37e2850b44eda760d5a8828a2817a5bf
+
+下载BT种子 [港府延限聚令打壓六四晚會李卓人：改採遍地開花.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b530f18b3a568e42365c0320824472616dba92.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71b530f18b3a568e42365c0320824472616dba92
+
+下载BT种子 [涉財務醜聞瑞幸咖啡被要求退市又復牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce748b016e5381f8aa408b8d3f501414b62da06e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ce748b016e5381f8aa408b8d3f501414b62da06e
+
+下载BT种子 [蔡英文就職連任美國等政要祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e908cdb4afff96f31eb5f15538ff0d65c61862fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e908cdb4afff96f31eb5f15538ff0d65c61862fb
 
 下载BT种子 [蔡英文演說：歷史轉點未提92「歷史已翻頁」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8a25360688c0d53e2aa0a353a27d3f352bb31f4.torrent)
 
@@ -373,10 +389,6 @@
 
 磁力链接 magnet:?xt=urn:btih:94643c1c225d65b28ea54be27a5e89bb794cbdc7
 
-下载BT种子 [中國大陸以外感染人數超450萬經濟衰退各國在解封與防疫間抉擇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/795527adc08706447be8f451c294f8fb5e52db39.torrent)
-
-磁力链接 magnet:?xt=urn:btih:795527adc08706447be8f451c294f8fb5e52db39
-
 下载BT种子 [川普推「極速行動」全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c
@@ -509,10 +521,6 @@
 
 磁力链接 magnet:?xt=urn:btih:265dcdee8fc6c020b0fa228d6303024dab4f9441
 
-下载BT种子 [全球逾30萬人染疫喪生超過13病患傷腎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b24893dbc48282e76700734d248a07488fe85883.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b24893dbc48282e76700734d248a07488fe85883
-
 下载BT种子 [【中国禁闻】5月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/878122efef7b98a7fa1a49fbd2fcb4c28b0a1d1e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:878122efef7b98a7fa1a49fbd2fcb4c28b0a1d1e
@@ -556,14 +564,6 @@
 下载BT种子 [【禁闻】为女喊冤被软禁武汉母亲求天惩瞒疫者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/feb2e4c4dae6d9fefe2489689a98787799bc0999.torrent)
 
 磁力链接 magnet:?xt=urn:btih:feb2e4c4dae6d9fefe2489689a98787799bc0999
-
-下载BT种子 [中共兩會維穩升級大量訪民遭截訪和軟禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0501d89df0f419aa1d401df274c9f4919607c2f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0501d89df0f419aa1d401df274c9f4919607c2f7
-
-下载BT种子 [東北疫情加劇遼寧吉林8000多人隔離.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51c36ad9d4a4d384486bcdd529ea3efed26a09f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51c36ad9d4a4d384486bcdd529ea3efed26a09f1
 
 下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
 
