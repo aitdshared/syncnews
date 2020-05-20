@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CZHPuP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yN8dCu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】陕西男翻墙被罚网友应抓华春莹赵立坚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/461dbff4e0b369028c14cd64d498badfdb86084d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:461dbff4e0b369028c14cd64d498badfdb86084d
+
+下载BT种子 [5月20日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd2b746ac7a3ea3f22b4b2e72d698334abfbe437.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bd2b746ac7a3ea3f22b4b2e72d698334abfbe437
 
 下载BT种子 [【禁闻】武汉大筛查乱象多市民质疑检测意义.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15af5bb8e78e942896992c4d0fce7b3276dbb2e0.torrent)
 
@@ -472,10 +480,6 @@
 下载BT种子 [【美國思想領袖】伊恩·易思安：台灣對亞洲的力量平衡至關重要！中共想征服台灣發動信息戰，又是如何在全球範圍內採取類似策略？中共若垮台，有台灣模式可循，中國有望成為自由民主的國家！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8
-
-下载BT种子 [🎯目標台戰、保北京，中共渤海實彈軍演開始，同日美軍台海巡弋；神準預言家：2020大決戰！港府埋雷：重判、警暴調查出爐卻洗白；中紀委巡35機構保兩會；習出巡秘密有解；金胖又失蹤新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dfa0224c4eea45073cb3667684a4ff466017d33e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dfa0224c4eea45073cb3667684a4ff466017d33e
 
 下载BT种子 [【环球直击】5月16日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87303d0d8874c19c1335190a1e704ea3052e856b.torrent)
 
