@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Sv5C9I)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4zSUxE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -588,10 +588,6 @@
 下载BT种子 [【禁闻】大跃进再现武汉强令10天检测千万人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d546f9413e04741516995fbed35abe0706d9cce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6d546f9413e04741516995fbed35abe0706d9cce
-
-下载BT种子 [【禁闻】5月14日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75908ce78a4ec5d09bb200c4f3e210efce7c6e8f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:75908ce78a4ec5d09bb200c4f3e210efce7c6e8f
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
