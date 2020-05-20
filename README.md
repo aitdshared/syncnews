@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wtjjKO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZcG2Im)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月18日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7eca4347d7b5872d623018aab534cfd0b6e23ed8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7eca4347d7b5872d623018aab534cfd0b6e23ed8
 
 下载BT种子 [【禁闻】德国医学专家：感恩师父找到生命升华之路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1c9f310538a4932072156dce9462a23b06fdebc.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [川普明确“中美脱钩”试水温，拜登团队指责川普对中共软弱，美两党对中共强硬成规定动作，中共承压能力遇挑战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07952b2e9ff742435a199ef50287b2fd5863b808.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07952b2e9ff742435a199ef50287b2fd5863b808
-
-下载BT种子 [川普：可切断整个中美关系！不想和习近平说话！张召忠怼胡锡进？“习近平”遭封号？（老北京茶館第308集20200515）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bc84dbb77848e094df3259d761c3423e8777fbf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7bc84dbb77848e094df3259d761c3423e8777fbf
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
