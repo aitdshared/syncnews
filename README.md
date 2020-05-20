@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jPiAVQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dJ5BS7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月19日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d695d65032df7a2d1234dc884cd919e021ddb8e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d695d65032df7a2d1234dc884cd919e021ddb8e0
 
 下载BT种子 [【瘟疫與中共】中共政府如何滲透聯合國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8663fe3f37e2850b44eda760d5a8828a2817a5bf.torrent)
 
@@ -472,10 +476,6 @@
 下载BT种子 [《濤哥侃封神》『封神演義第五十八回子牙西岐逢呂岳』瘟神呂岳出手傷寒撂倒西岐一郡人三皇出手救子牙人間從此有柴胡「今日聲音又不好應景皆因全是真」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e854e98792e40a07b15eb4db8c68b1bc5d149c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:66e854e98792e40a07b15eb4db8c68b1bc5d149c
-
-下载BT种子 [【禁闻】美国指控中共黑客窃取疫苗研发成果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/076fe4c5e724d376c50f3f1c037200be577e1124.torrent)
-
-磁力链接 magnet:?xt=urn:btih:076fe4c5e724d376c50f3f1c037200be577e1124
 
 下载BT种子 [川普發聲斷交，軍事外交經濟文化全動員；中共嗆聲反制，革命八卦報連續罵大街（江峰漫談20200515第173期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/781563e3ab225fd1108261784c346a42457ec427.torrent)
 
