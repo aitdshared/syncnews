@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IXbRUV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/joe3Xo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】520台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e47f058e5df67aecd86800a795c4ac18107bfb88.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e47f058e5df67aecd86800a795c4ac18107bfb88
 
 下载BT种子 [聊聊蔡英文就职演说观感；分析彭佩奥给蔡英文发贺电的深意；回复大家关于台积电的高质量提问.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d90b3afd3f4b840ff7f426a76059f324fb3a79d.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [【515重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8473df2f54c60ecc54c8f22fc3f101ef862ca443.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8473df2f54c60ecc54c8f22fc3f101ef862ca443
-
-下载BT种子 [【515重播】台灣重要企業遭勒索軟體攻擊事件調查說明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/768d3ab5650f0760d07ef861d6763f358cc7b25c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:768d3ab5650f0760d07ef861d6763f358cc7b25c
 
 下载BT种子 [【515重播】「台美合作防疫聯盟-智慧親善病房創新設計」記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1cfc10124768e9df3d3085d644a007eda1259e0.torrent)
 
