@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qhusXV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cQooFB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a78f58ee70cfe6836c809ad916b9f54b3d5a15.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4a78f58ee70cfe6836c809ad916b9f54b3d5a15
 
 下载BT种子 [多名高官去向神秘！因反习被打入冷宫。习近平抛20亿，惹怒无数人。特朗普发最后通牒。国务卿祝贺蔡总统.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee798974e62761921f5798fb9978884840b8bf2f.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [【禁闻】川普：美国可切断与中共的一切关系.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf
-
-下载BT种子 [【513话感恩】绝望时刻看到希望德国医生感恩大法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c4c54a59f6a5493505600a51158e69ffd8efccf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c4c54a59f6a5493505600a51158e69ffd8efccf
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
