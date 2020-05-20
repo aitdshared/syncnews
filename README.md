@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4HQ08h)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/O2xqn3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」2020台海打擊作戰推演因應蔡英文就職出台「根本不可能原由：習近平不信任何人甩掉王岐山任何人也不信他」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ca0edb6923bb31d67868ad06f69f0f0f6c307ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5ca0edb6923bb31d67868ad06f69f0f0f6c307ef
 
 下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3635abdc522cec7314f306add86ee2be56c57bd2.torrent)
 
@@ -352,10 +356,6 @@
 下载BT种子 [【全球新闻】5月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fac86bd5b992b4588d42dcab939b6e6c6d4d16d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fac86bd5b992b4588d42dcab939b6e6c6d4d16d0
-
-下载BT种子 [歐理會前副主席：欺騙是中共的基因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21b05aa5a139e0686fa9b33701b4e01d3670f825.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21b05aa5a139e0686fa9b33701b4e01d3670f825
 
 下载BT种子 [【禁闻】5月15日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a7d04fe8a2576b4068db58dba3860188ba6e17e.torrent)
 
