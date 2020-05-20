@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cGTkRv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uyYtsU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月20日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e27c2c4bacb9d5a4621cf1f97ef452308bc70557.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e27c2c4bacb9d5a4621cf1f97ef452308bc70557
 
 下载BT种子 [《石濤聚焦》「川普切斷中共國快速啟動金融戰」參議院剛剛通過法案-在美國上市的中共國公司必須證明不被共產黨擁有或控制的！「😂比娶媳婦難度大多啦！」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78d159812c8afa6e2b42d7b0ec15ac7e3889cbc1.torrent)
 
@@ -568,10 +572,6 @@
 下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a255829e6736438d6ee9505dc8d72ae8aadcd118
-
-下载BT种子 [瀋陽再爆疫情昂貴的隔離和檢測費挨批.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a6ed8f27bfa65d7d65bcdca90b51d0d17d386e3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4a6ed8f27bfa65d7d65bcdca90b51d0d17d386e3
 
 下载BT种子 [中共欲竊疫苗研究機密蓬佩奧聲明譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e3cd9cc85e4213b552d25495e4566963349755c.torrent)
 
