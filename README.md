@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Haiu0L)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/miqRse)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約猶太珠寶商感染隔離期間得到救命良方唸九字真言痊癒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b44b00ea98a0bcec738034cc3d6ea11947e8a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d4b44b00ea98a0bcec738034cc3d6ea11947e8a6
 
 下载BT种子 [蔡英文520重大宣示：將組「國家隊」亮劍！習近平「送禮」，台灣遇難得歷史機遇（文昭談古論今20200520第754期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8807d663e8dacebf7a77b44ba211732ec63e4a2.torrent)
 
