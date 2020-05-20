@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FcSDX4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Haiu0L)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蔡英文520重大宣示：將組「國家隊」亮劍！習近平「送禮」，台灣遇難得歷史機遇（文昭談古論今20200520第754期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8807d663e8dacebf7a77b44ba211732ec63e4a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c8807d663e8dacebf7a77b44ba211732ec63e4a2
 
 下载BT种子 [5月20日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fce0455fdb1cdc4eea817158ff0cebfac9b5e7a0.torrent)
 
@@ -436,10 +440,6 @@
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c443db4e2df9f9c94cc3303e929aa1b77b275349
-
-下载BT种子 [台积电在美投资背后的中美博弈，美国可以和中国脱钩，但离不开台湾，华为的处境值得关注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/530350cffccd926e16675c36d54be4cc09308eba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:530350cffccd926e16675c36d54be4cc09308eba
 
 下载BT种子 [「可切斷一切關係」川普真要與中國全面脫鉤？4份情報機關報告或造成川普態度轉變；黨媒以美大選相要挾，恐捅了大婁子唐靖遠謝田熱點互動05152020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b45fb0f697eabe60ec61cfe6ebe20950d8d30e64.torrent)
 
