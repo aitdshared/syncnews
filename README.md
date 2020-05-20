@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IcTgd2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bvrce5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國大陸以外確診488萬西班牙封鎖措施再延長巴西疫情危及經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dceb6acf84ae6aff3d55b35b351225657ec021b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5dceb6acf84ae6aff3d55b35b351225657ec021b
+
+下载BT种子 [中國東三省持續爆發疫情隔離上千萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a80e316d001e960bbfb7f0e721cb9b561e8b13e4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a80e316d001e960bbfb7f0e721cb9b561e8b13e4
 
 下载BT种子 [台灣總統就職美國務卿首次聲明祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72227f9dbbd4569f9723421d49762c1a3a58855d.torrent)
 
@@ -361,10 +369,6 @@
 
 磁力链接 magnet:?xt=urn:btih:795527adc08706447be8f451c294f8fb5e52db39
 
-下载BT种子 [美修改出口禁令華為獲取關鍵技術被切斷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6c654ba72d827a1d5e6637b0b2e028e66d1d6ee.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e6c654ba72d827a1d5e6637b0b2e028e66d1d6ee
-
 下载BT种子 [黃湛深：海洋公園是香港敗壞的縮影.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b76bb115b8872ad9c6aa4917ce56e41af3219f19.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b76bb115b8872ad9c6aa4917ce56e41af3219f19
@@ -380,10 +384,6 @@
 下载BT种子 [台灣連9天零確診34天無本土病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4650d73a1878e3a96d3703128b83ebacbcd4243f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4650d73a1878e3a96d3703128b83ebacbcd4243f
-
-下载BT种子 [台積電投120億美國設廠川普政府讚揚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9a1041bcad8b38a3f14f209c5cc68f64de00259.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e9a1041bcad8b38a3f14f209c5cc68f64de00259
 
 下载BT种子 [川普推極速行動全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fe301c48f0cf502b4c93b4b11e866f62fc974ac.torrent)
 
