@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RqK810)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mx2FpC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】5.20中華民國第15任總統暨副總統就職外賓致詞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96171c450663ac573aca98b14d1fd3b16504cd3a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96171c450663ac573aca98b14d1fd3b16504cd3a
 
 下载BT种子 [520习近平给蔡英文送双份大礼！50万检测结果落锤；20亿维稳费堵嘴？川普3014下通牒！（老北京茶館第312集20200519）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cadb89c4954227200b228240480f636bade6432.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [對中共十分不滿川普或「切斷美中關係」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c155d19a864906da9bd8c2b5d788a2396ac1a81d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c155d19a864906da9bd8c2b5d788a2396ac1a81d
-
-下载BT种子 [大陸以外感染近443萬日本39縣解禁印度8千萬民工受困.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14f679ad861c7bdc8fa4d609a11bdb7fed93ac48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:14f679ad861c7bdc8fa4d609a11bdb7fed93ac48
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
