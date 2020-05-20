@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4zSUxE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3GquYf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [多名高官去向神秘！因反习被打入冷宫。习近平抛20亿，惹怒无数人。特朗普发最后通牒。国务卿祝贺蔡总统.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee798974e62761921f5798fb9978884840b8bf2f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee798974e62761921f5798fb9978884840b8bf2f
 
 下载BT种子 [川普列世卫十四宗罪;世卫大会一致通过调查病毒源头和世卫角色决议;赵立坚上了追责黑名单;断供华为与瑞幸退市,川普还有大招(政论天下第167集20200519)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14f4bb8b1a37defe68ffe38534ce9afaf856c914.torrent)
 
@@ -580,14 +584,6 @@
 下载BT种子 [【513话感恩】绝望时刻看到希望德国医生感恩大法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c4c54a59f6a5493505600a51158e69ffd8efccf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9c4c54a59f6a5493505600a51158e69ffd8efccf
-
-下载BT种子 [【禁闻】5月14日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/094e1be99c45495f68cfbfe31be9e19efb5211df.torrent)
-
-磁力链接 magnet:?xt=urn:btih:094e1be99c45495f68cfbfe31be9e19efb5211df
-
-下载BT种子 [【禁闻】大跃进再现武汉强令10天检测千万人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d546f9413e04741516995fbed35abe0706d9cce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6d546f9413e04741516995fbed35abe0706d9cce
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
