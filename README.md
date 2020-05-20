@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4UnCvW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ONsPHD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [台湾总统就职大典，中国人为何感动落泪？两会登场，习近平刁难李克强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9375296b7c62cef390b3f3ee45aa2fe00de12b62.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9375296b7c62cef390b3f3ee45aa2fe00de12b62
 
 下载BT种子 [《石濤聚焦》「川普飆文暗指習近平‘瘋子巫婆’」“拜託跟這個蠢瓜解釋一下是「中共國的無能」造成這場令人驚駭的【全球大殺戮】”（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bef41ed7af88c7ab5ac040cc7b0dab5a969e049b.torrent)
 
@@ -504,10 +508,6 @@
 下载BT种子 [《石濤聚焦》「武漢1100萬人排查：習近平配合拜登大選打川普」央視專家質疑可能性法「費加羅報」目的：A.習近平-中共能力超越川普-美國B.愚弄中國人第二波疫情快到了習總很偉大（1505）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d87197419a8aa5497d0fefe6c44918a4a690b0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:35d87197419a8aa5497d0fefe6c44918a4a690b0
-
-下载BT种子 [【瘟疫與中共】借疫推幣中共數字貨幣存黑洞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb1294bd6343f8958cc12401135567ebdc2b2a2e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fb1294bd6343f8958cc12401135567ebdc2b2a2e
 
 下载BT种子 [《石濤聚焦》「川普再堅持✊：我就不想與習近平講話」更言：貿易協議無所謂了「似乎力壓尋求習近平對武肺給美國傷害之表態」中共國確實在買東西但對我而言-意義不如從前！（1605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0859fa84b18887d377447f146f9012c4cbe6d2c.torrent)
 
