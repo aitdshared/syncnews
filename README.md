@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cQooFB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Olom6h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「日經：台積電-暫停接受華為新增訂單」華為遭遇不可代替的致命打擊智能手機CPU與5G基塔半導體完全依賴台積電（1805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873358fe59f0defcc0027a0240f741e026ab3ec7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:873358fe59f0defcc0027a0240f741e026ab3ec7
 
 下载BT种子 [【中国禁闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a78f58ee70cfe6836c809ad916b9f54b3d5a15.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [【微视频】母亲追责中共武汉小区病毒再起.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00
-
-下载BT种子 [【禁闻】川普：美国可切断与中共的一切关系.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d2e5eb411b0cc6c9fdcdd32a2220d1c062fe1ddf
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
