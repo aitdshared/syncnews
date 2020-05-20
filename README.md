@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/odACtj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KYWyKz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -348,10 +348,6 @@
 下载BT种子 [武漢在五月不斷出現感染病例市民大排長龍測核酸引發安全質疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8314b939c899b04c0896de00718cb0ec0558071.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e8314b939c899b04c0896de00718cb0ec0558071
-
-下载BT种子 [國際疫情趨緩各國加大抗體檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c83e67a86c681932576669e0eb6ff46a0bcc35f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c83e67a86c681932576669e0eb6ff46a0bcc35f
 
 下载BT种子 [歐理會前副主席：欺騙是中共的基因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21b05aa5a139e0686fa9b33701b4e01d3670f825.torrent)
 
