@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KZ8kBt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4HQ08h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3635abdc522cec7314f306add86ee2be56c57bd2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3635abdc522cec7314f306add86ee2be56c57bd2
 
 下载BT种子 [【新唐人重播】美國國務卿蓬佩奧新聞發佈會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/808ebca62643a3f00cb315c6f7f4e9bfa8ac084e.torrent)
 
@@ -384,10 +388,6 @@
 下载BT种子 [台灣連9天零確診34天無本土病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4650d73a1878e3a96d3703128b83ebacbcd4243f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4650d73a1878e3a96d3703128b83ebacbcd4243f
-
-下载BT种子 [川普推極速行動全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fe301c48f0cf502b4c93b4b11e866f62fc974ac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3fe301c48f0cf502b4c93b4b11e866f62fc974ac
 
 下载BT种子 [川普喊「中美絕交」，北京認慫？深度解析：對中共的「趨利避害」有誤判（文昭談古論今20200515第751期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/770fc2a77b6f7e1318eefb6f15ca47f999ea8615.torrent)
 
