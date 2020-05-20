@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0CjOUQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/L2u616)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】武汉大筛查乱象多市民质疑检测意义.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15af5bb8e78e942896992c4d0fce7b3276dbb2e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15af5bb8e78e942896992c4d0fce7b3276dbb2e0
+
+下载BT种子 [【禁闻】沈阳六七十人确诊苏家屯中级戒备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a760408f73cf8788698a925fb809da28e2314eac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a760408f73cf8788698a925fb809da28e2314eac
 
 下载BT种子 [【重播】美國白宮發言人簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49c730eacc3ec3139a507a8b480cda967647c56c.torrent)
 
