@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X994fH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VshlR0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「上海出現本土病例胡舒立之財新-武漢1100萬人排查最少50萬確診—被刪除」台媒：中共國疫情復燃東北逾億人遭禁足「武漢肺炎病毒從未消失小憩而已病毒與中共共生死」（1805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6425186fc6a33b59cc3b11f0997d6267b750bd1a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6425186fc6a33b59cc3b11f0997d6267b750bd1a
+
+下载BT种子 [《石濤聚焦》「習近平香港霸王硬上弓清剿一切民主」黎智英李柱銘-滿頭白髮出庭立法會民主派議員被逐個扔出立法會「天滅中共已給予港人生路勿愁」親共者埋葬香港之舉實則送自己與中共病毒同往之地獄」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/caa4a4720dfe3840243f4fb9d9f3f9ef72581578.torrent)
+
+磁力链接 magnet:?xt=urn:btih:caa4a4720dfe3840243f4fb9d9f3f9ef72581578
 
 下载BT种子 [《石濤聚焦》「日經：台積電-暫停接受華為新增訂單」華為遭遇不可代替的致命打擊智能手機CPU與5G基塔半導體完全依賴台積電（1805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873358fe59f0defcc0027a0240f741e026ab3ec7.torrent)
 
@@ -576,14 +584,6 @@
 下载BT种子 [吃著爆米花看電影疫情下的迪拜汽車影院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28e1dfcf68d3b86c77902f430d35b1d6960aa548.torrent)
 
 磁力链接 magnet:?xt=urn:btih:28e1dfcf68d3b86c77902f430d35b1d6960aa548
-
-下载BT种子 [【中国禁闻】5月14日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fe1672b17786eeab19b46fb9efd836dafffed2a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9fe1672b17786eeab19b46fb9efd836dafffed2a
-
-下载BT种子 [【微视频】母亲追责中共武汉小区病毒再起.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c1e8b2cb2db07a2b939cebbc8a6f86af98d5cc00
 
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
