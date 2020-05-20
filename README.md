@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xPHEeV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fRWxmr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普飆文暗指習近平‘瘋子巫婆’」“拜託跟這個蠢瓜解釋一下是「中共國的無能」造成這場令人驚駭的【全球大殺戮】”（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bef41ed7af88c7ab5ac040cc7b0dab5a969e049b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bef41ed7af88c7ab5ac040cc7b0dab5a969e049b
+
+下载BT种子 [《石濤聚焦》「川普切斷中共國快速啟動金融戰」參議院剛剛通過法案-在美國上市的中共國公司必須證明不被共產黨擁有或控制的！無法證明者將被除名「怎麼證明呀⋯⋯😂比娶媳婦難度大多啦！」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2febc991bbd7060cbbb1b8594eaa1ca9f98ffdb5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2febc991bbd7060cbbb1b8594eaa1ca9f98ffdb5
 
 下载BT种子 [【环球直击】5月20日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e27c2c4bacb9d5a4621cf1f97ef452308bc70557.torrent)
 
@@ -437,10 +445,6 @@
 
 磁力链接 magnet:?xt=urn:btih:93bf3f44211586ae5babe04d73c6ecb8f77c8e02
 
-下载BT种子 [台灣政要賀大法日「何其有幸同在一世」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7da48e6e0842e2c79175e77bc82e2420ea32f182.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7da48e6e0842e2c79175e77bc82e2420ea32f182
-
 下载BT种子 [《石濤聚焦》「台積電宣布120億美國建廠美即刻封鎖華為全球晶片供應」美國商務部長羅斯為華為「試圖修補漏洞量身打造的行動」直接影響台積電為華為生產的「海思」晶片（1505）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fdfeee0d9852781c25fe2f9e34f5808261c783c3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fdfeee0d9852781c25fe2f9e34f5808261c783c3
@@ -564,10 +568,6 @@
 下载BT种子 [【重播】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b4e45f253191c98ce0b45c2e1f2e0ac106c4042.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3b4e45f253191c98ce0b45c2e1f2e0ac106c4042
-
-下载BT种子 [【禁闻】为女喊冤被软禁武汉母亲求天惩瞒疫者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/feb2e4c4dae6d9fefe2489689a98787799bc0999.torrent)
-
-磁力链接 magnet:?xt=urn:btih:feb2e4c4dae6d9fefe2489689a98787799bc0999
 
 下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
 
