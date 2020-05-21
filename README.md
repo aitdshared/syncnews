@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bud9e0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t6BZST)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [这些我经常给韩国学生出的汉语考题，精通汉语的您不一定能回答上来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85c9645532409e7c685f3bb86728ddd83c3004a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:85c9645532409e7c685f3bb86728ddd83c3004a3
 
 下载BT种子 [蔡英文連任就職，美國力挺前所未有，美中台演繹新格局？川普發最後通牒，世衛何去何從？橫河陳破空熱點互動05202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf2d13f901dbf804ab18f1cf2ee74575c74a4e15.torrent)
 
@@ -552,10 +556,6 @@
 下载BT种子 [内斗激烈！习近平爱将被人干掉。川普撂狠话：与中国切断！美军侦察机抵近海南岛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d02c839bf91996b3f42d60ca82e740ca84af7ac2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d02c839bf91996b3f42d60ca82e740ca84af7ac2
-
-下载BT种子 [川普發聲斷交，軍事外交經濟文化全動員；中共嗆聲反制，革命八卦報連續罵大街（江峰漫談20200515第173期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/781563e3ab225fd1108261784c346a42457ec427.torrent)
-
-磁力链接 magnet:?xt=urn:btih:781563e3ab225fd1108261784c346a42457ec427
 
 下载BT种子 [美国国会为一位华人升旗！习近平重提“不折腾”，央视甩14个词开骂！预言神剧来了！（老北京茶館第309集20200515）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/058df40edc8b3b8eb4e82231020b8e19b4382682.torrent)
 
