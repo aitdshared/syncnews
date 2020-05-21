@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0iaEiT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mtYNTq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -560,10 +560,6 @@
 下载BT种子 [【禁闻】5月15日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a7d04fe8a2576b4068db58dba3860188ba6e17e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5a7d04fe8a2576b4068db58dba3860188ba6e17e
-
-下载BT种子 [【516重播】陳時中示範防疫新生活，走訪鬍鬚張滷肉飯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/94643c1c225d65b28ea54be27a5e89bb794cbdc7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:94643c1c225d65b28ea54be27a5e89bb794cbdc7
 
 下载BT种子 [川普推「極速行動」全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c.torrent)
 
