@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yN8dCu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GrwpUE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】瑞幸咖啡财务造假美纳斯达克下令退市.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e24dacbd2bd9bde02b544e774b24ec653f36e04e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e24dacbd2bd9bde02b544e774b24ec653f36e04e
 
 下载BT种子 [【禁闻】陕西男翻墙被罚网友应抓华春莹赵立坚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/461dbff4e0b369028c14cd64d498badfdb86084d.torrent)
 
@@ -497,10 +501,6 @@
 
 磁力链接 magnet:?xt=urn:btih:f160f76e4b22c0a4540929baac41bf22751c4bce
 
-下载BT种子 [《石濤聚焦》「瑞幸咖啡造假香港財產被凍結涉及2億美元」川普：在美上市中共國公司必須遵守美國會計準則（1605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ee2a5c451f16fcd5128d50ecc2d36d35dd52d1e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ee2a5c451f16fcd5128d50ecc2d36d35dd52d1e
-
 下载BT种子 [内斗激烈！习近平爱将被人干掉。川普撂狠话：与中国切断！美军侦察机抵近海南岛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d02c839bf91996b3f42d60ca82e740ca84af7ac2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d02c839bf91996b3f42d60ca82e740ca84af7ac2
@@ -521,10 +521,6 @@
 
 磁力链接 magnet:?xt=urn:btih:9aaf8b7a68a9946b9f8465f98001b09d08217b18
 
-下载BT种子 [《石濤聚焦》「武漢1100萬人排查：習近平配合拜登大選打川普」央視專家質疑可能性法「費加羅報」目的：A.習近平-中共能力超越川普-美國B.愚弄中國人第二波疫情快到了習總很偉大（1505）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d87197419a8aa5497d0fefe6c44918a4a690b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35d87197419a8aa5497d0fefe6c44918a4a690b0
-
 下载BT种子 [《石濤聚焦》「川普再堅持✊：我就不想與習近平講話」更言：貿易協議無所謂了「似乎力壓尋求習近平對武肺給美國傷害之表態」中共國確實在買東西但對我而言-意義不如從前！（1605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0859fa84b18887d377447f146f9012c4cbe6d2c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0859fa84b18887d377447f146f9012c4cbe6d2c
@@ -540,10 +536,6 @@
 下载BT种子 [大军演，重要将领忽然消失！党内传密话：任志强放了？特朗普对习近平撂重话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e362d8ff03cd811dee055f01cdaacc2ffe6f0a11.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e362d8ff03cd811dee055f01cdaacc2ffe6f0a11
-
-下载BT种子 [【516重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/265dcdee8fc6c020b0fa228d6303024dab4f9441.torrent)
-
-磁力链接 magnet:?xt=urn:btih:265dcdee8fc6c020b0fa228d6303024dab4f9441
 
 下载BT种子 [【中国禁闻】5月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/878122efef7b98a7fa1a49fbd2fcb4c28b0a1d1e.torrent)
 
