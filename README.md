@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ctQnkz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dUUnSA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約殺菌新武器遠紫外線C燈消滅存留通勤系統的中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e26ca8dab27e9d4244180f678bd8ce57e027171.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e26ca8dab27e9d4244180f678bd8ce57e027171
+
+下载BT种子 [全球瘟疫損失9萬億蓬佩奧：中共威脅遠大於此.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a78d411144ae541e3fa21beadedab71398decd14.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a78d411144ae541e3fa21beadedab71398decd14
 
 下载BT种子 [中國大陸以外感染破500萬俄羅斯現疫情拐點德國將出手挽救漢莎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd801dee1f209297c612cda93d821386040a9d07.torrent)
 
@@ -473,10 +481,6 @@
 
 磁力链接 magnet:?xt=urn:btih:4650d73a1878e3a96d3703128b83ebacbcd4243f
 
-下载BT种子 [川普喊「中美絕交」，北京認慫？深度解析：對中共的「趨利避害」有誤判（文昭談古論今20200515第751期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/770fc2a77b6f7e1318eefb6f15ca47f999ea8615.torrent)
-
-磁力链接 magnet:?xt=urn:btih:770fc2a77b6f7e1318eefb6f15ca47f999ea8615
-
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c443db4e2df9f9c94cc3303e929aa1b77b275349
@@ -553,10 +557,6 @@
 
 磁力链接 magnet:?xt=urn:btih:723f391c7e4135171e0da89554f93e8fc70bdb60
 
-下载BT种子 [大逆轉！驚人「奥巴马门」名單曝光，川普連炮轟，美國史上最大政治醜聞！；中國人離真相的距離：兩道牆和一條溝；「回國難，回國貴」，回國再難出國【新聞看點李沐陽05.15】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f018f430a7e9c4255dd771c53ee2ee4515729f5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f018f430a7e9c4255dd771c53ee2ee4515729f5c
-
 下载BT种子 [【中國禁聞】4月14日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e9f36c920f1d05716a37a5905277c6a16d01920.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8e9f36c920f1d05716a37a5905277c6a16d01920
@@ -564,10 +564,6 @@
 下载BT种子 [【中國禁聞】4月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/023b544cf634b74371cfbe1a327c3f3dbd4d0655.torrent)
 
 磁力链接 magnet:?xt=urn:btih:023b544cf634b74371cfbe1a327c3f3dbd4d0655
-
-下载BT种子 [《石濤聚焦》「川普堅持✊：就不想與習近平通話」貿易協議已經沒有意思了「習近平必須對美國遭受疫情的傷害表態」（1605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a080d8d5bb6b7529f6ba1d2a414a727014541d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a080d8d5bb6b7529f6ba1d2a414a727014541d5
 
 下载BT种子 [《石濤聚焦》「meiqlin.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dae88f70f3883d130eb6937553b18b10afc0ac48.torrent)
 
