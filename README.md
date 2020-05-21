@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0LByHw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LvDDn5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》『封神演義第六十回馬元下山助殷洪』馬元兇殘不解意腦後怪手專撕人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcad891d1ddfc064534e8085a8e5387b41843505.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fcad891d1ddfc064534e8085a8e5387b41843505
 
 下载BT种子 [蔡英文就职,蓬佩奥亲自祝贺的深层意义;蔡英文演说的亮点与遗憾;疫情发展趋势喜忧参半(政论天下第168集20200520)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7ba2f2745e3b786a3a07ade47d72cc9ab946fc.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [内斗激烈！习近平爱将被人干掉。川普撂狠话：与中国切断！美军侦察机抵近海南岛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d02c839bf91996b3f42d60ca82e740ca84af7ac2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d02c839bf91996b3f42d60ca82e740ca84af7ac2
-
-下载BT种子 [《濤哥侃封神》『封神演義第五十八回子牙西岐逢呂岳』瘟神呂岳出手傷寒撂倒西岐一郡人三皇出手救子牙人間從此有柴胡「今日聲音又不好應景皆因全是真」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/66e854e98792e40a07b15eb4db8c68b1bc5d149c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:66e854e98792e40a07b15eb4db8c68b1bc5d149c
 
 下载BT种子 [川普發聲斷交，軍事外交經濟文化全動員；中共嗆聲反制，革命八卦報連續罵大街（江峰漫談20200515第173期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/781563e3ab225fd1108261784c346a42457ec427.torrent)
 
