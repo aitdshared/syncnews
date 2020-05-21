@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q70ibT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I6pEzh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月21日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bc2ec0c474d6dee415daa47da41d695445be27a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3bc2ec0c474d6dee415daa47da41d695445be27a
 
 下载BT种子 [【百姓自拍】兩會首日天呈異象天黑如墨炸雷天降.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4088c51fefc386080bfd7636eea9c393e5f8dceb.torrent)
 
@@ -560,10 +564,6 @@
 下载BT种子 [美国国会为一位华人升旗！习近平重提“不折腾”，央视甩14个词开骂！预言神剧来了！（老北京茶館第309集20200515）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/058df40edc8b3b8eb4e82231020b8e19b4382682.torrent)
 
 磁力链接 magnet:?xt=urn:btih:058df40edc8b3b8eb4e82231020b8e19b4382682
-
-下载BT种子 [大军演，重要将领忽然消失！党内传密话：任志强放了？特朗普对习近平撂重话.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e362d8ff03cd811dee055f01cdaacc2ffe6f0a11.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e362d8ff03cd811dee055f01cdaacc2ffe6f0a11
 
 下载BT种子 [【中国禁闻】5月15日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/878122efef7b98a7fa1a49fbd2fcb4c28b0a1d1e.torrent)
 
