@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t6BZST)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q70ibT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【百姓自拍】兩會首日天呈異象天黑如墨炸雷天降.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4088c51fefc386080bfd7636eea9c393e5f8dceb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4088c51fefc386080bfd7636eea9c393e5f8dceb
 
 下载BT种子 [这些我经常给韩国学生出的汉语考题，精通汉语的您不一定能回答上来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85c9645532409e7c685f3bb86728ddd83c3004a3.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [「可切斷一切關係」川普真要與中國全面脫鉤？4份情報機關報告或造成川普態度轉變；黨媒以美大選相要挾，恐捅了大婁子唐靖遠謝田熱點互動05152020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b45fb0f697eabe60ec61cfe6ebe20950d8d30e64.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b45fb0f697eabe60ec61cfe6ebe20950d8d30e64
-
-下载BT种子 [习近平突发旧文，暗示他坚持终身制！重提不折腾有深意？美国太空军亮旗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/93bf3f44211586ae5babe04d73c6ecb8f77c8e02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:93bf3f44211586ae5babe04d73c6ecb8f77c8e02
 
 下载BT种子 [【美國思想領袖】伊恩·易思安：台灣對亞洲的力量平衡至關重要！中共想征服台灣發動信息戰，又是如何在全球範圍內採取類似策略？中共若垮台，有台灣模式可循，中國有望成為自由民主的國家！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8.torrent)
 
