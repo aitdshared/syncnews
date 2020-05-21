@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mtYNTq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7I0z9X)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [生死一線：中共硬上人大版《香港國安23條》，川普強硬回懟；北京異象，真實的「至暗時刻」（文昭談古論今2020521第755期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acc6d4a3d0f0e908806c08f138c2f01ed997e194.torrent)
+
+磁力链接 magnet:?xt=urn:btih:acc6d4a3d0f0e908806c08f138c2f01ed997e194
 
 下载BT种子 [内幕：习近平派人强闯国务院，遭李克强驱赶。王沪宁建秘密小组，意图惊人！美国总统和国务卿发最严正指控。美中即将摊牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ade62d448d0ae976a6b73f4d1698e33cbd534b9b.torrent)
 
@@ -556,10 +560,6 @@
 下载BT种子 [【禁闻】5月15日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05468bdb5e34509f2dc5ed2cd3e8ba00cb622e31.torrent)
 
 磁力链接 magnet:?xt=urn:btih:05468bdb5e34509f2dc5ed2cd3e8ba00cb622e31
-
-下载BT种子 [【禁闻】5月15日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a7d04fe8a2576b4068db58dba3860188ba6e17e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a7d04fe8a2576b4068db58dba3860188ba6e17e
 
 下载BT种子 [川普推「極速行動」全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c.torrent)
 
