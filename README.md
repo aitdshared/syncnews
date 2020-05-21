@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iyB4Rp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WaDj0N)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習近平自知9月香港立法會選舉：必敗」強推“港版國安法”玉石俱焚港人擠爆美日澳台移民網站「勢必“違法”的支聯會黃之鋒等-誓不言退」如惡法成立-反送中百萬遊行者都是「港版709律師」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45ada9b3b250f04a30b3354d0175ec0232dd775a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45ada9b3b250f04a30b3354d0175ec0232dd775a
 
 下载BT种子 [川普批中共外交部發言人譴責中共大規模虛假宣傳指中共高層應對疫情負責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f1a4db24765a3b3e36f3da3825c1342e8e55905.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [【美國思想領袖】伊恩·易思安：台灣對亞洲的力量平衡至關重要！中共想征服台灣發動信息戰，又是如何在全球範圍內採取類似策略？中共若垮台，有台灣模式可循，中國有望成為自由民主的國家！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8
-
-下载BT种子 [【环球直击】5月16日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/87303d0d8874c19c1335190a1e704ea3052e856b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:87303d0d8874c19c1335190a1e704ea3052e856b
 
 下载BT种子 [【重播】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b4e45f253191c98ce0b45c2e1f2e0ac106c4042.torrent)
 
