@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w2CkY6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GD95kJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月20日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae7c37cf5615cf9c0b6855abef5eca997e27aac9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae7c37cf5615cf9c0b6855abef5eca997e27aac9
 
 下载BT种子 [内幕惊人！习近平派人强闯国务院，遭李克强驱赶。王沪宁建秘密小组，意图耸动。美国总统和国务卿发最严正指控！美中即将摊牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8c4fe777103e390a9e9b054df975198b497154.torrent)
 
@@ -569,10 +573,6 @@
 
 磁力链接 magnet:?xt=urn:btih:85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c
 
-下载BT种子 [近40國向中共求償土耳其律師提訴訟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5ee961fef861076d02a7d4ea3da98518d736678.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d5ee961fef861076d02a7d4ea3da98518d736678
-
 下载BT种子 [台灣連9天零確診34天無本土病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4650d73a1878e3a96d3703128b83ebacbcd4243f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4650d73a1878e3a96d3703128b83ebacbcd4243f
@@ -580,10 +580,6 @@
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c443db4e2df9f9c94cc3303e929aa1b77b275349
-
-下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a255829e6736438d6ee9505dc8d72ae8aadcd118
 
 下载BT种子 [中共欲竊疫苗研究機密蓬佩奧聲明譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e3cd9cc85e4213b552d25495e4566963349755c.torrent)
 
