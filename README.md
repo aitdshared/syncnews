@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9xeu9V)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0iaEiT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [内幕：习近平派人强闯国务院，遭李克强驱赶。王沪宁建秘密小组，意图惊人！美国总统和国务卿发最严正指控。美中即将摊牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ade62d448d0ae976a6b73f4d1698e33cbd534b9b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ade62d448d0ae976a6b73f4d1698e33cbd534b9b
 
 下载BT种子 [《石濤聚焦》「川普硬挑趙立堅“你是個愚蠢的傢伙”」拚命試圖轉移中共國給全世界帶來的痛苦和屠殺對歐美假訊息宣傳攻擊是一種恥辱這都來自習近平趙立堅-我憑事實說話（2105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37f1be43d364a5e6f600d98d545af971f58563f.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c443db4e2df9f9c94cc3303e929aa1b77b275349
-
-下载BT种子 [【美國思想領袖】伊恩·易思安：台灣對亞洲的力量平衡至關重要！中共想征服台灣發動信息戰，又是如何在全球範圍內採取類似策略？中共若垮台，有台灣模式可循，中國有望成為自由民主的國家！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3d5b6a003fcc5c2a81a4174494b17f58ce2b82b8
 
 下载BT种子 [隱瞞參與千人計劃美國華裔專家被捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a255829e6736438d6ee9505dc8d72ae8aadcd118.torrent)
 
