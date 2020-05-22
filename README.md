@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MpsgtA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/APZtVQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】川普總統在福特羅森維爾零部件工廠發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a18ba4a1508ded803cdef2b0f0d8eded2fa5ba72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a18ba4a1508ded803cdef2b0f0d8eded2fa5ba72
+
+下载BT种子 [【新唐人重播】522台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a3c35cb4fda2b0d7dcd53fed14563570b931290.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a3c35cb4fda2b0d7dcd53fed14563570b931290
 
 下载BT种子 [芯片巨头关闭中国工厂，扎克伯格批评中国人权，两会北京黑白颠倒，天意民心都在远离中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f1b798c7815965d375d278b291c4e69e6101d1b.torrent)
 
@@ -604,14 +612,6 @@
 下载BT种子 [【禁闻】疫情冲击中国经济中共好日子已结束.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2487b2cf07e1d483463059f23f18c5d02ffc3b31.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2487b2cf07e1d483463059f23f18c5d02ffc3b31
-
-下载BT种子 [【禁闻】CIA报告：中共压制世卫预警同时囤积物资.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/593e5b2dc225cc58974ac25dbc13bbf68fe10cc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:593e5b2dc225cc58974ac25dbc13bbf68fe10cc6
-
-下载BT种子 [共军鹰派坦承：军演并非针对台湾，防美军突袭中南海！习近平压力下，驻外大使不好当。世贸总干事辞职，谭书记咋办.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f8c70106d5ad665ebbf28de8b762956eba0e390.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3f8c70106d5ad665ebbf28de8b762956eba0e390
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
