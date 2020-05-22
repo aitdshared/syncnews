@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9vGhrr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F9bUhX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】回应中共卸责川普用最严厉措辞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c9c58bb7d217aac9fc807aa762356822606633f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c9c58bb7d217aac9fc807aa762356822606633f
+
+下载BT种子 [【禁闻】摒除民主派亲共议员当选内会主席.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e376fa1feb36de259805e632c4d4b5c37c11b90.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4e376fa1feb36de259805e632c4d4b5c37c11b90
 
 下载BT种子 [【禁闻】中共推“港版国安法”香港变一国一制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9f58906c588b05e3a8766ac60023c4e48cfd7a.torrent)
 
@@ -573,17 +581,9 @@
 
 磁力链接 magnet:?xt=urn:btih:30a443c73c75b8a25657b2bb290a2a46782022e2
 
-下载BT种子 [【禁闻】5月15日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05468bdb5e34509f2dc5ed2cd3e8ba00cb622e31.torrent)
-
-磁力链接 magnet:?xt=urn:btih:05468bdb5e34509f2dc5ed2cd3e8ba00cb622e31
-
 下载BT种子 [川普推「極速行動」全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c
-
-下载BT种子 [台灣連9天零確診34天無本土病例.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4650d73a1878e3a96d3703128b83ebacbcd4243f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4650d73a1878e3a96d3703128b83ebacbcd4243f
 
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
