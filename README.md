@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wNDt3v)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DlGHEP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約華裔欺詐兩千萬紓困金面臨最高117年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/732dcee2400bdd439e8f28e12a144b61f2341c29.torrent)
+
+磁力链接 magnet:?xt=urn:btih:732dcee2400bdd439e8f28e12a144b61f2341c29
+
+下载BT种子 [白宮對華戰略報告突出中共價值觀挑戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/294112a7a3b18b3a685a2bba3a00f268469c9bcd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:294112a7a3b18b3a685a2bba3a00f268469c9bcd
+
+下载BT种子 [（字幕）蓬佩奧重磅講話：我們低估了中共的意識形態美國和世界已徹底警醒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/457db2b795ae8f22421ca893d707edf2ad655d6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:457db2b795ae8f22421ca893d707edf2ad655d6b
+
+下载BT种子 [美售台重型魚雷蔡英文就職當天美國新一輪對台軍美台關係正在超越美中關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/894ca05b8ab7dde3182f96d1af3975dbb4178ff6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:894ca05b8ab7dde3182f96d1af3975dbb4178ff6
+
+下载BT种子 [中共突推港版國安法「一國兩制」終結.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68254289514893f3419e9ecd61ef4a4b1a6d711b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:68254289514893f3419e9ecd61ef4a4b1a6d711b
 
 下载BT种子 [中國大陸以外感染破508萬巴西新高過2萬人確診美援俄呼吸機到達.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/642ef50a9eccd19d16bcdcbf3e2e3a5481f3e296.torrent)
 
@@ -568,10 +588,6 @@
 下载BT种子 [【严真点评】外交部大实话：川普对中共深恶痛绝武汉敲锣女反噬方方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce5668eacb1a811aee590bf509ddb8c97dcb40eb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ce5668eacb1a811aee590bf509ddb8c97dcb40eb
-
-下载BT种子 [【517重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e627f8a7433e04b96d77ca7f0749e74ccea870a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3e627f8a7433e04b96d77ca7f0749e74ccea870a
 
 下载BT种子 [《濤哥侃封神》『封神演義第五十九回殷洪下山收四將』呂岳失一臂再遇韋護敗回九龍島赤精子明知殷紅－非了道成仙者卻盡付洞府之寶逼其發誓以堅其意不想『非是申公能反國只因天意絕商門』（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4e24b30a303d1fcedb2ca123ed3706d195b1648.torrent)
 
