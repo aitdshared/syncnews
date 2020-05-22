@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/36c5Bt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ER4qeJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美貿易代表：落實美中貿易協議有進展.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5bdafe9927699cb6fae2f64832deb6529f351e58.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5bdafe9927699cb6fae2f64832deb6529f351e58
+
+下载BT种子 [中共強推港版國安法民陣再召2百萬人遊行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc9599e95edec288c035da622eb471c380856462.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc9599e95edec288c035da622eb471c380856462
+
+下载BT种子 [北京強推國安法多國政要強烈反應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96d7d3721be8436c5b22ad7359c035669887109e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96d7d3721be8436c5b22ad7359c035669887109e
 
 下载BT种子 [《石濤聚焦》「‘香港國安法’=‘宦官硬上弓’權力者虛無的中國夢般快感」港股暴跌1350點金融投資人：摧毀香港國際金融中心為代價房地產隨之崩潰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b657a6a6d0c7d6865b0f733712a38ec0f31a8695.torrent)
 
@@ -600,14 +612,6 @@
 下载BT种子 [【禁闻】西藏国保跨省办方斌案约谈多名重庆公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f29533977c777587bdc7d2dd4fa4b7c7abc2794.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2f29533977c777587bdc7d2dd4fa4b7c7abc2794
-
-下载BT种子 [【禁闻】掩盖知多少？中共承认销毁病毒样本.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57ff330ddf9fbb0a723ae949c843d1a51090d0de.torrent)
-
-磁力链接 magnet:?xt=urn:btih:57ff330ddf9fbb0a723ae949c843d1a51090d0de
-
-下载BT种子 [【环球直击】5月17日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/425fa633340565ca6b6058b7113438ddeac0063b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:425fa633340565ca6b6058b7113438ddeac0063b
 
 下载BT种子 [【禁闻】世卫大会召开在即中共空前孤立.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a11df9ab5fb020e50920094e06abcc2c40e68685.torrent)
 
