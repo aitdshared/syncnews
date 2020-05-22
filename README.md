@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CHfQtt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oB2Lig)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [芯片巨头关闭中国工厂，扎克伯格批评中国人权，两会北京黑白颠倒，天意民心都在远离中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f1b798c7815965d375d278b291c4e69e6101d1b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f1b798c7815965d375d278b291c4e69e6101d1b
 
 下载BT种子 [中共两会密谋香港23条，北京黑天、灵异再现？蔡英文接美重型鱼雷大礼，赵立坚给习近平挖大坑？（老北京茶館第313集20200521）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c9f7da689479e090a36de5ae0f444ba3754dbd6.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [共军鹰派坦承：军演并非针对台湾，防美军突袭中南海！习近平压力下，驻外大使不好当。世贸总干事辞职，谭书记咋办.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f8c70106d5ad665ebbf28de8b762956eba0e390.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3f8c70106d5ad665ebbf28de8b762956eba0e390
-
-下载BT种子 [【环球直击】5月17日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00c95159c847fa7f13279aeb0d2a7ca429f2b57f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:00c95159c847fa7f13279aeb0d2a7ca429f2b57f
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
