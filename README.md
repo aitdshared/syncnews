@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9Oex0B)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ga1Cg5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月21日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3192abfe230fc9b195c9a93a9af1b4599b5a9c99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3192abfe230fc9b195c9a93a9af1b4599b5a9c99
 
 下载BT种子 [《石濤聚焦》「金正恩再度消失金與正頻頻高度露面」金正恩好友NBA明星羅德曼「相當不正常」平壤已經發生了什麼？！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98f5c63c02cb1ccbe35cb389efb7e1b8a6a1be90.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [平壤异动，金正恩又悬了？中共隐身人露脸，他负责沉船计划？俄罗斯加入122国，要求彻查。美国发射神秘太空飞机。中印对峙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37a242fd606bfdffdc6e28b57309712c4699154e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:37a242fd606bfdffdc6e28b57309712c4699154e
-
-下载BT种子 [《濤哥侃封神》「封神演義第五十九回殷洪下山收四將」殷洪毒誓-四肢俱成飛灰逢人開口紂王子絕口不提赤精子申公豹投其所好念社稷望宗廟貪繼嗣「非是申公能反國只因天意絕商門」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b095ed68a76f45af62ed5abdf00ab11cc5053f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b095ed68a76f45af62ed5abdf00ab11cc5053f2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
