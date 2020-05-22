@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F9bUhX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xpA2uk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中国禁闻】5月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92e9c9ef01faa94949bf3004a4d9cbc52c21e9c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:92e9c9ef01faa94949bf3004a4d9cbc52c21e9c7
 
 下载BT种子 [【禁闻】回应中共卸责川普用最严厉措辞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c9c58bb7d217aac9fc807aa762356822606633f.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [花了幾十億💰!武漢1100萬人地毯式排查？病毒😈攻陷舒蘭，市委書記免職。中共黑手滲透聯合國，病毒👁重創有原因【新聞看點李沐陽05.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a443c73c75b8a25657b2bb290a2a46782022e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:30a443c73c75b8a25657b2bb290a2a46782022e2
-
-下载BT种子 [川普推「極速行動」全力投入疫苗研發生產.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85dc74f79dd62a3e01d66b5f4ec9b42de5ec296c
 
 下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
 
