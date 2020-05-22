@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5GJGYY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/64maIL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「金正恩再度消失金與正頻頻高度露面」金正恩好友NBA明星羅德曼「相當不正常」平壤已經發生了什麼？！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98f5c63c02cb1ccbe35cb389efb7e1b8a6a1be90.torrent)
+
+磁力链接 magnet:?xt=urn:btih:98f5c63c02cb1ccbe35cb389efb7e1b8a6a1be90
+
+下载BT种子 [【环球直击】5月22日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca1fbeb90fc8a126d032404ea1ef3802efebdd41.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca1fbeb90fc8a126d032404ea1ef3802efebdd41
+
+下载BT种子 [《石濤聚焦》「李克強報告對台政策：無‘九二共識’無‘和平’統一更無GDP目標」習近平對台策略完敗更輸不起香港也不信任林鄭更怕失去立法會匆忙兩會只為「港版國安法」（2205）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5d4824c9221ec1d337cf4208d5284f99edce6be.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5d4824c9221ec1d337cf4208d5284f99edce6be
 
 下载BT种子 [中共強推香港「國安法」勝過之前的23條激起香港民眾的反抗意志.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68053ea8feba9f807bd1a46d579b3cd2669f139a.torrent)
 
@@ -600,18 +612,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第五十九回殷洪下山收四將」殷洪毒誓-四肢俱成飛灰逢人開口紂王子絕口不提赤精子申公豹投其所好念社稷望宗廟貪繼嗣「非是申公能反國只因天意絕商門」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b095ed68a76f45af62ed5abdf00ab11cc5053f2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4b095ed68a76f45af62ed5abdf00ab11cc5053f2
-
-下载BT种子 [【环球直击】5月18日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b92e5964a30c6261d8328d2ccc15212d87d32bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b92e5964a30c6261d8328d2ccc15212d87d32bd
-
-下载BT种子 [【518重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2000b6ff2f98ef91744a454a6292c9a4791df8dd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2000b6ff2f98ef91744a454a6292c9a4791df8dd
-
-下载BT种子 [《环球时报》居然侮辱胡锡进，新华社高级黑党媒，中美脱钩或从传媒界开始，台湾又成受益者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3b9b5086d386de11a2be7ae3fe7744fb057a712.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3b9b5086d386de11a2be7ae3fe7744fb057a712
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
