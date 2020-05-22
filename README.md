@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nvamx0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CwI6Vb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普推文直怼习近平;蓬佩奥说中共比新冠病毒更可怕;白宫报告堪比里根演说;美中关系全面对抗的三个标志(政论天下第169集20200521)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bac353bcefcf665d3f33fceaf4ee171e9f477859.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bac353bcefcf665d3f33fceaf4ee171e9f477859
+
+下载BT种子 [【全球新闻】5月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b73a475cf26aa2fccfc61de372283f071b595a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0b73a475cf26aa2fccfc61de372283f071b595a
 
 下载BT种子 [引爆💥!「割韭菜」割到美國人？美國忍無可忍，出售台灣「重型魚雷」!!瑞幸氣勢磅礴賣咖啡，作假賬蒸發百億美元。。開兩會，老天怒，黑天暴雨霹靂火，看來「2020小康夢」碎【新聞看點李沐陽05.21】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ac798d226f8b81dda7d4d168ef8781f2235a608.torrent)
 
@@ -589,17 +597,9 @@
 
 磁力链接 magnet:?xt=urn:btih:f7c29ff56a80e96f5ef5945ef8a65953eb15a5f3
 
-下载BT种子 [【时事小品】五毛应聘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7868415a8f4966063130ed211a7a229f081abfe6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7868415a8f4966063130ed211a7a229f081abfe6
-
 下载BT种子 [【严真点评】外交部大实话：川普对中共深恶痛绝武汉敲锣女反噬方方.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce5668eacb1a811aee590bf509ddb8c97dcb40eb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ce5668eacb1a811aee590bf509ddb8c97dcb40eb
-
-下载BT种子 [一周经济回顾（2020年5月17日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27488b1b7547014f609c92c144426632bf8d9967.torrent)
-
-磁力链接 magnet:?xt=urn:btih:27488b1b7547014f609c92c144426632bf8d9967
 
 下载BT种子 [花了幾十億💰!武漢1100萬人地毯式排查？病毒😈攻陷舒蘭，市委書記免職。中共黑手滲透聯合國，病毒👁重創有原因【新聞看點李沐陽05.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a443c73c75b8a25657b2bb290a2a46782022e2.torrent)
 
