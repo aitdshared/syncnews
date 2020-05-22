@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TLvbS4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DChDhY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第六十一回太極圖殷洪絕命」慈航設計滅殷洪赤精子難割師徒情太極圖盡收欺師者修者禁戒理當知「弟子悔盟師莫救蒼天留意地難私」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b18a7e8f4210d58f1a4dbbaf9678e386f4f4c8cd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b18a7e8f4210d58f1a4dbbaf9678e386f4f4c8cd
 
 下载BT种子 [《石濤聚焦》「“香港國安法”川普-美國將強烈反應」港股開盤大跌過3%美國務院-摧毀‘中英聯合聲明’參議院法案-制裁相關中共國官員「5.21-含五行與三魂七魄習近平-中共滅也！」（2105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc642f00e2eac3383d95e8741e282827b1a7facc.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「CNN專訪：鍾南山奉旨出賣地方掩蓋習總‘1月20日地方政府（武漢與湖北）隱瞞人傳人’」又變相出賣習總「全球擴散源自習近平旨意」第二次爆發越來越近-武漢-湖北吉林市黑龍江.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7c29ff56a80e96f5ef5945ef8a65953eb15a5f3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f7c29ff56a80e96f5ef5945ef8a65953eb15a5f3
-
-下载BT种子 [花了幾十億💰!武漢1100萬人地毯式排查？病毒😈攻陷舒蘭，市委書記免職。中共黑手滲透聯合國，病毒👁重創有原因【新聞看點李沐陽05.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a443c73c75b8a25657b2bb290a2a46782022e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:30a443c73c75b8a25657b2bb290a2a46782022e2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
