@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DlGHEP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hUmZB2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】阻断中共圈钱路美参院法案紧盯中概股.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fce9b2855d04eda63e7b50da2b9a01096df70c3e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fce9b2855d04eda63e7b50da2b9a01096df70c3e
 
 下载BT种子 [紐約華裔欺詐兩千萬紓困金面臨最高117年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/732dcee2400bdd439e8f28e12a144b61f2341c29.torrent)
 
@@ -593,10 +597,6 @@
 
 磁力链接 magnet:?xt=urn:btih:d4e24b30a303d1fcedb2ca123ed3706d195b1648
 
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/809c8f2edfa46705e8d2d7b52a12d410e79ca2dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:809c8f2edfa46705e8d2d7b52a12d410e79ca2dc
-
 下载BT种子 [一周经济回顾（2020年5月17日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27488b1b7547014f609c92c144426632bf8d9967.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27488b1b7547014f609c92c144426632bf8d9967
@@ -604,10 +604,6 @@
 下载BT种子 [花了幾十億💰!武漢1100萬人地毯式排查？病毒😈攻陷舒蘭，市委書記免職。中共黑手滲透聯合國，病毒👁重創有原因【新聞看點李沐陽05.16】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30a443c73c75b8a25657b2bb290a2a46782022e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:30a443c73c75b8a25657b2bb290a2a46782022e2
-
-下载BT种子 [《狗狗史酷比》上映呆萌狗拯救全球大災難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c443db4e2df9f9c94cc3303e929aa1b77b275349.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c443db4e2df9f9c94cc3303e929aa1b77b275349
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
