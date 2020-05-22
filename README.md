@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S6z0AR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rcOtgF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [👉北京白晝變黑夜！陰風閃電怪雨冰雹，與兩會同時開幕；人大常委要定香港國安法，9月前完成，港人立爆示威；新冷戰揭幕！白宮推美中對抗策略；美售台先進魚雷；哈爾濱一醫院超90人確診新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae236b9c4570e1bceb0043453dca932ec49e340b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae236b9c4570e1bceb0043453dca932ec49e340b
 
 下载BT种子 [兩會首日曝強推23條，一國兩制送終，中共為什麼不怕《香港人權法》了？蓬佩奧三重拳打中共三嘴砲，美中關係入寒冬（江峰漫談20200521第176期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e58aa9a25fd3eeac4044e2014784198a54842b84.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [《石濤聚焦》「戰狼外交策劃與執行者中共國駐以色列大使杜偉今晨發現死在床上」妻兒不在身旁細節尚未披露自然死亡是個說法57歲法學碩士長年策劃外交政策（1705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40e141bf68f17f7387e90d92750753a175219c42.torrent)
 
 磁力链接 magnet:?xt=urn:btih:40e141bf68f17f7387e90d92750753a175219c42
-
-下载BT种子 [《石濤聚焦》「CNN專訪：鍾南山奉旨出賣地方掩蓋習總‘1月20日地方政府（武漢與湖北）隱瞞人傳人’」又變相出賣習總「全球擴散源自習近平旨意」第二次爆發越來越近-武漢-湖北吉林市黑龍江.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7c29ff56a80e96f5ef5945ef8a65953eb15a5f3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7c29ff56a80e96f5ef5945ef8a65953eb15a5f3
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
