@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f0aRaD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3TFEyY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港國安法若通過，美中決戰登場？一國兩制崩潰，台灣提高警戒？（2020.5.23）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4625fbd38c59d679e70c2f4925663440527b66c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4625fbd38c59d679e70c2f4925663440527b66c2
 
 下载BT种子 [強推國安法，中共重手毀香港；美國會重審中美關係嗎？鷹派為何對白宮新版對華戰略報告失望？唐靖遠吳建民熱點互動05222020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4825d34ff1777b4e3d5edd79411a9e1049dac0ae.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《石濤聚焦》「日經：台積電-暫停接受華為新增訂單」華為遭遇不可代替的致命打擊智能手機CPU與5G基塔半導體完全依賴台積電（1805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/873358fe59f0defcc0027a0240f741e026ab3ec7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:873358fe59f0defcc0027a0240f741e026ab3ec7
-
-下载BT种子 [【中国禁闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a78f58ee70cfe6836c809ad916b9f54b3d5a15.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4a78f58ee70cfe6836c809ad916b9f54b3d5a15
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
