@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/np4MkN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/15Lg0z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「“港版國安法”習近平走完“天滅中共”最後一步」天滅中共三部曲-人地天：川普貿易戰-勝利後無願意香港反送中-勝利後被「港版國安法」武漢肺炎病毒-習近平全球最牛叉領袖——瘟神定回來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/319735040c15d073598afb25e451dc96466ce535.torrent)
+
+磁力链接 magnet:?xt=urn:btih:319735040c15d073598afb25e451dc96466ce535
 
 下载BT种子 [【禁闻】蓬佩奥：疫情让全世界认清中共政权.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f47b1f83923277f29e57a7960a008b00543b62d8.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [世卫116成员国要求调查！美新规阻华为，台积电拒华为订单？美驻华使馆：让捣鬼变困难（老北京茶館第311集20200518）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9c913c22bf80b226c81b4596b8caba07d501351.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b9c913c22bf80b226c81b4596b8caba07d501351
-
-下载BT种子 [【中国禁闻】5月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1
-
-下载BT种子 [美國又要提「分手」!「孤獨戰士」習近平，遇上譚德塞「變節」非洲47個「兄弟」全倒戈～北京很燒心！中國人與真相距離：兩牆一溝「一把鎖」；台灣朋友懟五毛，大陸小夥懟教授【新聞看點李沐陽05.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e8bad254cd42ec86eba8d6b48a5537231c1142c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e8bad254cd42ec86eba8d6b48a5537231c1142c
 
 下载BT种子 [122國要求調查，習近平硬扛不住了；華為被台積電斷供，只能撐到年底？中美絕交第一波連環打擊超乎意料的快（文昭談古論今20200518第752期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e5a7f7283456338f0c56f6fe622ac540d59058f.torrent)
 
