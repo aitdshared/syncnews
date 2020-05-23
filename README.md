@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mMKudZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f0aRaD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,42 +608,6 @@
 下载BT种子 [【中国禁闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a78f58ee70cfe6836c809ad916b9f54b3d5a15.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4a78f58ee70cfe6836c809ad916b9f54b3d5a15
-
-下载BT种子 [多名高官去向神秘！因反习被打入冷宫。习近平抛20亿，惹怒无数人。特朗普发最后通牒。国务卿祝贺蔡总统.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee798974e62761921f5798fb9978884840b8bf2f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee798974e62761921f5798fb9978884840b8bf2f
-
-下载BT种子 [川普列世卫十四宗罪;世卫大会一致通过调查病毒源头和世卫角色决议;赵立坚上了追责黑名单;断供华为与瑞幸退市,川普还有大招(政论天下第167集20200519)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14f4bb8b1a37defe68ffe38534ce9afaf856c914.torrent)
-
-磁力链接 magnet:?xt=urn:btih:14f4bb8b1a37defe68ffe38534ce9afaf856c914
-
-下载BT种子 [川普簽行政令去除監管190億救助農民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da4e7aa3e4c736c82cf635e77f3f9234b4d8da2e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da4e7aa3e4c736c82cf635e77f3f9234b4d8da2e
-
-下载BT种子 [川普給世衛下最後通牒，瑞幸咖啡接退市通知；習近平、任正非、瑞幸的殊途同歸；中美角力WHO，誰會下台（文昭談古論今20200519第753期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bda97fe5595fc45ac1295a3e7faf8ea2272890eb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bda97fe5595fc45ac1295a3e7faf8ea2272890eb
-
-下载BT种子 [【禁闻】5月19日疫情爆料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe87265b47a3081363c4163b78875fa79b0c650f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fe87265b47a3081363c4163b78875fa79b0c650f
-
-下载BT种子 [川普對世衛發最後通牒，瑞幸咖啡接退市通知；習近平、任正非、瑞幸的殊途同歸；中美角力WHO，誰會下台（文昭談古論今20200519第753期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21358c4bf611f6e9059bb1e72ef93fc06c7af113.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21358c4bf611f6e9059bb1e72ef93fc06c7af113
-
-下载BT种子 [多名高官去向神秘！因反习被打入冷宫。习近平抛20亿，意外惹翻无数人。特朗普发最后通牒。国务卿祝贺蔡总统.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f178cf6141af700faec9bc49238a58c7a0f49b4d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f178cf6141af700faec9bc49238a58c7a0f49b4d
-
-下载BT种子 [美出台最嚴厲新規，華為還能撐多久？取決於一決定性因素！台積電美國設廠，邁出「選邊站」關鍵一步Jason趙培熱點互動05182020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cbdef62ca4ebe233febf920025b9b738341e17f5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cbdef62ca4ebe233febf920025b9b738341e17f5
-
-下载BT种子 [《石濤聚焦》「歷史性首次：美國務卿祝賀蔡英文今日5.20就任台灣總統」蔡英文推文回覆道謝彭培奧推文恭賀「台灣總統蔡英文博士」“台美關係欣欣向榮”蔡英文「台美夥伴關係將持續強壯且充滿希望」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c24f9f5b3a9a69480437a80df0c53649a0b18af1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c24f9f5b3a9a69480437a80df0c53649a0b18af1
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
