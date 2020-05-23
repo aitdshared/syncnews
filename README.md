@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yT8alj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DsO9Fp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [看懂两会：李克强读稿应付，汪洋回避主题。习王合谋：逼港人移民！美国公布全新战略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0624b145ca765d3f475db6151024617e8e0205cc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0624b145ca765d3f475db6151024617e8e0205cc
 
 下载BT种子 [【中國禁聞】5月21日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3192abfe230fc9b195c9a93a9af1b4599b5a9c99.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [122國要求調查，習近平硬扛不住了；華為被台積電斷供，只能撐到年底？中美絕交第一波連環打擊超乎意料的快（文昭談古論今20200518第752期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e5a7f7283456338f0c56f6fe622ac540d59058f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3e5a7f7283456338f0c56f6fe622ac540d59058f
-
-下载BT种子 [平壤异动，金正恩又悬了？中共隐身人露脸，他负责沉船计划？俄罗斯加入122国，要求彻查。美国发射神秘太空飞机。中印对峙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37a242fd606bfdffdc6e28b57309712c4699154e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:37a242fd606bfdffdc6e28b57309712c4699154e
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
