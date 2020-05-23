@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7t0qtt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I8q46K)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第六十二回張山李錦伐西岐」大鵬金翅羽翼仙借酒展翼淹岐周子牙驚嚇忙拜求燃燈設計收金鵬「只因大劫人多難致使西岐殺戮腥」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9c8fd395de33a89c9f89f84d0da7bff6ef2cdcd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f9c8fd395de33a89c9f89f84d0da7bff6ef2cdcd
 
 下载BT种子 [🆘暴雨水淹廣州！大量港人或將被抓：國安法風波襲港，內容曝光！香港人立法會、中聯辦群起抗議；一國兩制將終，移民成熱搜，股市暴跌；美火速推制裁；中共官僚鯨吞國庫內幕；吉林防疫升級新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/407ec2e3ee31133688ebd02f56eb7c18b6234f26.torrent)
 
