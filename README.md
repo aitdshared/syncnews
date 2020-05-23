@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f2z225)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LJUmrY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [強推國安法，中共重手毀香港；美國會重審中美關係嗎？鷹派為何對白宮新版對華戰略報告失望？唐靖遠吳建民熱點互動05222020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4825d34ff1777b4e3d5edd79411a9e1049dac0ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4825d34ff1777b4e3d5edd79411a9e1049dac0ae
 
 下载BT种子 [面对“国安法”，香港人一招便可反制中共；中共政协委员真名要求习近平下台，质变不远了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abd576757bd5e04de00ebbc24ba90ac38f013649.torrent)
 
