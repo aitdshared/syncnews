@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xBOSGX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XUaKe9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】川普總統在白宮舉行新聞發布會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8d3f2d2b94d8ed245745b48df51a9111e9670a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a8d3f2d2b94d8ed245745b48df51a9111e9670a2
+
+下载BT种子 [【全球新闻】5月22日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34d8c3ad50bbb76172056f41eb7a2c83842c282e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:34d8c3ad50bbb76172056f41eb7a2c83842c282e
+
+下载BT种子 [中國大陸以外感染近520萬巴西成新疫情中心俄羅斯又一高官或染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aaf4fbbb39b5a1428e6f9006b11f24b1f5451a14.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aaf4fbbb39b5a1428e6f9006b11f24b1f5451a14
+
+下载BT种子 [香港民主黨李柱銘等人透過視頻向華府發聲警告港版國安法惡果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46e0290dca5c7bd2bbb8528c8ea79207525824db.torrent)
+
+磁力链接 magnet:?xt=urn:btih:46e0290dca5c7bd2bbb8528c8ea79207525824db
+
+下载BT种子 [瘟疫有針對？美囯黨派分區染疫死亡差別大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba2a2ef8f414dec41793b8d14eaf0ffa4dd75c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ba2a2ef8f414dec41793b8d14eaf0ffa4dd75c4
 
 下载BT种子 [林鄭月娥當市長？「香港已經完蛋了」😢港人籲5.24大遊行，5.27全港大三罷；廣州「超級誇張」暴雨🌊，沖走汽車🚙，牆壁噴水；吉林疫控再升級，病毒😈潛伏期更長，康復更難【新聞看點李沐陽05.22】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e7007ca3eb76e4169f690270b46ffd8895336708.torrent)
 
@@ -584,10 +604,6 @@
 下载BT种子 [别追问台积电了，美国政府真下决心100%断供华为才是关键，当下韩国芯片企业进退两难.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/099e414c024c701cca76e3933162b46a32ad12cd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:099e414c024c701cca76e3933162b46a32ad12cd
-
-下载BT种子 [【禁闻】失业大军来袭中国经济未来何去何从？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f5ac07b0de006a23b7e05363f243fc5143a6edc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f5ac07b0de006a23b7e05363f243fc5143a6edc
 
 下载BT种子 [【中國禁聞】5月17日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cbf19df24e25f8574c56b9b6f1a079125eebb2c.torrent)
 
