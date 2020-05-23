@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XUaKe9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mZw0Ir)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港是否会发生第二次“六四”;国安法通过在即,香港“一国两制”彻底死亡;美国国务院发表措辞空前强硬的声明(政论天下第170集20200522)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1322fa2af124fb2cf626d521f31ff3e45b9e0c49.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1322fa2af124fb2cf626d521f31ff3e45b9e0c49
 
 下载BT种子 [【重播】川普總統在白宮舉行新聞發布會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8d3f2d2b94d8ed245745b48df51a9111e9670a2.torrent)
 
@@ -604,26 +608,6 @@
 下载BT种子 [别追问台积电了，美国政府真下决心100%断供华为才是关键，当下韩国芯片企业进退两难.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/099e414c024c701cca76e3933162b46a32ad12cd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:099e414c024c701cca76e3933162b46a32ad12cd
-
-下载BT种子 [【中國禁聞】5月17日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cbf19df24e25f8574c56b9b6f1a079125eebb2c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8cbf19df24e25f8574c56b9b6f1a079125eebb2c
-
-下载BT种子 [【禁闻】惧香港青年独立思考？中共称要“刮骨疗毒”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bde91c4b167a314ad3dad612f3d828f417db0cb6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bde91c4b167a314ad3dad612f3d828f417db0cb6
-
-下载BT种子 [【禁闻】欧盟最高外交官：中共企图分化欧洲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99b4559b6e502ae5ac82c23ec0240cbb15940935.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99b4559b6e502ae5ac82c23ec0240cbb15940935
-
-下载BT种子 [【禁闻】肺炎疫情冲击“去中国化同盟”形成.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55ed54b2ffac9ad2e26a4bc5aab8ce2bf39d7ae6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:55ed54b2ffac9ad2e26a4bc5aab8ce2bf39d7ae6
-
-下载BT种子 [【禁闻】武汉市民：全民核酸检测是闹剧.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aced80693bf24f076353aacebd9a2767710185ad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aced80693bf24f076353aacebd9a2767710185ad
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
