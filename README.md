@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vv9P3P)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VswnTK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [英國計劃切斷華為對5G網絡的參與.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/723faf17f0caf6cfce7456f447819f0c43cdc347.torrent)
+
+磁力链接 magnet:?xt=urn:btih:723faf17f0caf6cfce7456f447819f0c43cdc347
+
+下载BT种子 [川普：美國要成為世界第一大醫藥製造商.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba8a44a48dc5a8ae61aa41f886a0cfafe156914.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ba8a44a48dc5a8ae61aa41f886a0cfafe156914
+
+下载BT种子 [一國一制倒計時國際緊盯「香港末日」掀反抗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5a4320afe9d8250d0544c675a1e50fb9ba041a8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5a4320afe9d8250d0544c675a1e50fb9ba041a8
+
+下载BT种子 [紐約州一億美元支援小企業檢測點超750處.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/400705a7cd3573e87c44380266a9ae1b7b95908a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:400705a7cd3573e87c44380266a9ae1b7b95908a
+
+下载BT种子 [港版國安法引憂林飛帆：組撐港國際隊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0db9d36e446fd27818db33ee18dc85b280c16109.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0db9d36e446fd27818db33ee18dc85b280c16109
 
 下载BT种子 [220名武漢維權公民向兩會代表發請願信.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b220cfd3a4c68c853cfbb54ca854f2c3e3ecae3.torrent)
 
@@ -596,10 +616,6 @@
 下载BT种子 [💥東北強制隔離上千萬人，陸媒估武漢50萬感染遭刪文；北京戰時狀態，兩會防疫超嚴！香港立法會民主派被集體驅趕，六四紀念或遇阻；川普要世衛30天改革否則退出；蔡英文連任美罕見祝賀新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b41097ff293973c53763aabb43d81b48f7735207.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b41097ff293973c53763aabb43d81b48f7735207
-
-下载BT种子 [美空軍兵臨海南島任正非破飛機迎戰；川普世衛公開信下戰書俄羅斯終於加入戰團（江峰漫談20200519第175期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43bd8c972a4af6c1588f738d7902549453b3f266.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43bd8c972a4af6c1588f738d7902549453b3f266
 
 下载BT种子 [《石濤聚焦》「上海出現本土病例胡舒立之財新-武漢1100萬人排查最少50萬確診—被刪除」台媒：中共國疫情復燃東北逾億人遭禁足「武漢肺炎病毒從未消失小憩而已病毒與中共共生死」（1805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6425186fc6a33b59cc3b11f0997d6267b750bd1a.torrent)
 
