@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wv31tA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LprY0Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「紐時：習近平危機四伏港版國安法-政治豪賭」港版國安法無任何利益唯一符合其「中華民族偉大復興」之虛幻夢想全面對抗西方-圖絕地逃生（2205）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b423f6025f82cc938928a163667c03f471045867.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b423f6025f82cc938928a163667c03f471045867
 
 下载BT种子 [《石濤聚焦》「鄭裕玲30年前預言「港版國安法」感嘆叫絕」鄭裕玲梁家輝主演「老頭子不高興領子弟兵進香港」讓你們-基本法毀了！一國兩制毀了！港幣跌了！樓市跌了！跌⋯跌⋯跌！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf36b1a5c0cf513e0f0bdc17bfcd741b05e1cde1.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【禁闻】致命一击台积电停接华为新订单.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77f3803c93628dd247e34b7636d238d62aca64a2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77f3803c93628dd247e34b7636d238d62aca64a2
-
-下载BT种子 [【新唐人重播】5.20中華民國第15任總統暨副總統就職外賓致詞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96171c450663ac573aca98b14d1fd3b16504cd3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:96171c450663ac573aca98b14d1fd3b16504cd3a
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
