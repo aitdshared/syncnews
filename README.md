@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/15Lg0z)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oR9nq4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「“港版國安法”習近平走完“天滅中共”最後一步」天滅中共三部曲-人地天：川普貿易戰-勝利後被病毒香港反送中-勝利後被「港版國安法」武漢肺炎病毒-習近平自稱全球最牛—瘟神定回來滅它.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/376a691d6b97dadf6fed8b289d1d95fdbef9573b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:376a691d6b97dadf6fed8b289d1d95fdbef9573b
 
 下载BT种子 [《石濤.News》「“港版國安法”習近平走完“天滅中共”最後一步」天滅中共三部曲-人地天：川普貿易戰-勝利後無願意香港反送中-勝利後被「港版國安法」武漢肺炎病毒-習近平全球最牛叉領袖——瘟神定回來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/319735040c15d073598afb25e451dc96466ce535.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [中國大陸以外約491萬人確診英國累計4萬多死亡巴西新增病例暴漲達25.4萬人感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26a523831d5920a54263046a0228f80bbdc0e3db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:26a523831d5920a54263046a0228f80bbdc0e3db
-
-下载BT种子 [世卫116成员国要求调查！美新规阻华为，台积电拒华为订单？美驻华使馆：让捣鬼变困难（老北京茶館第311集20200518）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9c913c22bf80b226c81b4596b8caba07d501351.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b9c913c22bf80b226c81b4596b8caba07d501351
-
-下载BT种子 [122國要求調查，習近平硬扛不住了；華為被台積電斷供，只能撐到年底？中美絕交第一波連環打擊超乎意料的快（文昭談古論今20200518第752期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e5a7f7283456338f0c56f6fe622ac540d59058f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3e5a7f7283456338f0c56f6fe622ac540d59058f
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
