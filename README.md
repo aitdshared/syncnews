@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aDDSSa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jnx29L)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】蓬佩奥：疫情让全世界认清中共政权.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f47b1f83923277f29e57a7960a008b00543b62d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f47b1f83923277f29e57a7960a008b00543b62d8
+
+下载BT种子 [【禁闻】白宫战略报告认清中共遏制扩张.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0dbe9d33f577a58100176af9793e07301c71717f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0dbe9d33f577a58100176af9793e07301c71717f
+
+下载BT种子 [【禁闻】人大推港版国安法民主派誓言不退缩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/266d57722e3576cb06ee363e1e19b1f875454c8a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:266d57722e3576cb06ee363e1e19b1f875454c8a
+
+下载BT种子 [【禁闻】港版国安法重挫港股掀新一轮撤资潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23eb44b25746d42634ffb8a47cc0da131603fe9f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:23eb44b25746d42634ffb8a47cc0da131603fe9f
 
 下载BT种子 [看懂两会：李克强读稿应付，汪洋回避主题。习王合谋：逼港人移民！美国公布全新战略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0624b145ca765d3f475db6151024617e8e0205cc.torrent)
 
@@ -596,14 +612,6 @@
 下载BT种子 [【中国禁闻】5月18日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a8c4bca950ad588b6f339cc38eeba1e97dcfc9b1
-
-下载BT种子 [🔥雲南地震！2天前魚亂跳，有更大地震威脅三峽？美軍機繞海南，經共軍潛艦基地；吉林公安染疫內幕，遼寧11市追密接；世衛大會百國連署追查疫因，台灣缺席，習近平獲邀致辭，撒幣20億新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51cdf9c23417041b6bc9f1527d8a48c2486a28bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51cdf9c23417041b6bc9f1527d8a48c2486a28bf
-
-下载BT种子 [習近平川普下重注究竟在賭什麼？中共偷疫苗反咬一口；川普動真格視同戰爭。眾議院3萬億背後的水很深（江峰漫談20200518第174期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/057df71b8e0dde939d34cd86df1f855879ffea38.torrent)
-
-磁力链接 magnet:?xt=urn:btih:057df71b8e0dde939d34cd86df1f855879ffea38
 
 下载BT种子 [美國又要提「分手」!「孤獨戰士」習近平，遇上譚德塞「變節」非洲47個「兄弟」全倒戈～北京很燒心！中國人與真相距離：兩牆一溝「一把鎖」；台灣朋友懟五毛，大陸小夥懟教授【新聞看點李沐陽05.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e8bad254cd42ec86eba8d6b48a5537231c1142c.torrent)
 
