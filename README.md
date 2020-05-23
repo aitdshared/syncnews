@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mZw0Ir)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Cv97dk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】中共肺炎并发症旅美女作家於梨华病逝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89ed8030dda2fa4ed3427f16f502b3433e79ff33.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89ed8030dda2fa4ed3427f16f502b3433e79ff33
 
 下载BT种子 [香港是否会发生第二次“六四”;国安法通过在即,香港“一国两制”彻底死亡;美国国务院发表措辞空前强硬的声明(政论天下第170集20200522)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1322fa2af124fb2cf626d521f31ff3e45b9e0c49.torrent)
 
@@ -600,14 +604,6 @@
 下载BT种子 [《石濤聚焦》「歷史性首次：美國務卿祝賀蔡英文今日5.20就任台灣總統」蔡英文推文回覆道謝彭培奧推文恭賀「台灣總統蔡英文博士」“台美關係欣欣向榮”蔡英文「台美夥伴關係將持續強壯且充滿希望」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c24f9f5b3a9a69480437a80df0c53649a0b18af1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c24f9f5b3a9a69480437a80df0c53649a0b18af1
-
-下载BT种子 [《石濤聚焦》「蔡英文就職宣言爆光：設修憲委員會」共四大部分兩岸基本態度「和平對等民主對話」拒絕一國兩制矮化台灣破壞現狀「維持台海和平穩定」（1905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25a9a581c0ee17e1c85f05a01d1fb3702dd150f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:25a9a581c0ee17e1c85f05a01d1fb3702dd150f4
-
-下载BT种子 [别追问台积电了，美国政府真下决心100%断供华为才是关键，当下韩国芯片企业进退两难.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/099e414c024c701cca76e3933162b46a32ad12cd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:099e414c024c701cca76e3933162b46a32ad12cd
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
