@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u3edyo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u4kKe2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港國安法原來直奔它來的；习近平兩會軍隊代表團講話時，中印邊境戰雲密佈，可能開戰的兩個重要因素.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96c7297caf32db4949813dbfe8077c6df84fb2fe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96c7297caf32db4949813dbfe8077c6df84fb2fe
 
 下载BT种子 [香港開戰了？「527終極大集氣」包圍立法會，「黃店」響應大三罷；中共鐵心推惡法，港警緊張加築防線；美國重啟法案提供HK戰爭物資？大陸小企業貸款無望，中國「失業大軍」近八千萬人【新聞看點05.26】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7828918bb3dec78e17b7cc0a01ba5e58726101bd.torrent)
 
