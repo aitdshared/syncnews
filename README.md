@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cuDSdd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ROrpry)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習近平豪賭“港版國安法”—悲劇啦！」投票前日與中共同生的賭王-死了！賭徒咋還能咋兒？與習總不解之緣的孟晚舟—烏龍了！「當年川習會-習以承諾欺川普-孟被抓今習近平以國法騙港人-孟再被抓」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/337c96a1c815cb2572f271df41bf7dd9007889f6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:337c96a1c815cb2572f271df41bf7dd9007889f6
 
 下载BT种子 [#香港失自治【中國禁聞】5月27日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/513867211ed54f7d6f963ecad1196a433fc9cd67.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [【百姓自拍】兩會首日天呈異象天黑如墨炸雷天降.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4088c51fefc386080bfd7636eea9c393e5f8dceb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4088c51fefc386080bfd7636eea9c393e5f8dceb
-
-下载BT种子 [这些我经常给韩国学生出的汉语考题，精通汉语的您不一定能回答上来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85c9645532409e7c685f3bb86728ddd83c3004a3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85c9645532409e7c685f3bb86728ddd83c3004a3
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
