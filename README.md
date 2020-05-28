@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xk7nh6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HPfXGh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [无路可走，北京热捧“地摊儿经济”，失业困境现真容；人民币再跌500点，到底怎么了？美国修改习近平称呼，细节中隐藏大手笔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56327c709e4e5a202e36d0d36de3bb674c2da2a8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:56327c709e4e5a202e36d0d36de3bb674c2da2a8
 
 下载BT种子 [习近平的一天：香港不再自治！孟晚舟双重罪成立！港人展现宁为玉碎、不为瓦全（老北京茶館第317集20200527）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50525141d6ba50b394120b20b79255b38e383c19.torrent)
 
