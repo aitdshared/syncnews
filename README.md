@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PGM4Ya)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iG4dLq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】5月27日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f4ad0f6fd9edc12606bad63f007a58040a97a64.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f4ad0f6fd9edc12606bad63f007a58040a97a64
 
 下载BT种子 [《石濤.News》「美英加澳聯合聲明譴責‘港版國安法’」英國隨即調整BNO留居英國的限制嚴厲指責破壞「中英聯合聲明」的誠信與責任「大瘟疫將大規模再現中共國全世界將無任何國家出手幫助」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e979b02960d03c3ad751feed2f008fea3736e48c.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [蔡英文連任就職，美國力挺前所未有，美中台演繹新格局？川普發最後通牒，世衛何去何從？橫河陳破空熱點互動05202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf2d13f901dbf804ab18f1cf2ee74575c74a4e15.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cf2d13f901dbf804ab18f1cf2ee74575c74a4e15
-
-下载BT种子 [【美國思想領袖】國會議員吉姆·班克斯：美國將與中共經濟脫鉤，重建美國國內經濟！中共隱瞞病毒疫情導致全球大流行，對此該負多大責任？中共為何要將疫情大流行歸咎於美國？#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ac5bcf0d40223c92ee7110c46b009dc7ed9c685.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5ac5bcf0d40223c92ee7110c46b009dc7ed9c685
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
