@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d9jfmy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YXrfjr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [人權觀察研究員：國安法危害港人公民權力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd62cbd4a808966c5b5de6cca885bb555fe5144d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fd62cbd4a808966c5b5de6cca885bb555fe5144d
+
+下载BT种子 [中共通過國安法港民主派：影響所有人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82cbb84930683bd919aad209691ae03b5de6fc7f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:82cbb84930683bd919aad209691ae03b5de6fc7f
+
+下载BT种子 [緊急宣言解除日本社會并無喜悅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874cdc13fbcd0df72d64f131b7763758cd3b1660.torrent)
+
+磁力链接 magnet:?xt=urn:btih:874cdc13fbcd0df72d64f131b7763758cd3b1660
 
 下载BT种子 [「雙惡法」激民憤港藝文界憂創作自由何韻詩：對所有人都是個巨大威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b34e904ee09aac39f7332a01f5bf6dd2e3da0ba2.torrent)
 
@@ -596,18 +608,6 @@
 下载BT种子 [【中国禁闻】5月20日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64e53ed1f6874b4ce10e969576e140eb817e928e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:64e53ed1f6874b4ce10e969576e140eb817e928e
-
-下载BT种子 [「武統」就開打!💥中共渤海軍演虛張聲勢，盧比奧亮底線，蓬佩奧賀蔡英文「總統」；吉林舒蘭進入戰時狀態😱，得病的當官的多，公安局長染病，市委書記下台！【新聞看點李沐陽05.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89ef091c4e2e2cc37dc27ccc16070c4d74651746.torrent)
-
-磁力链接 magnet:?xt=urn:btih:89ef091c4e2e2cc37dc27ccc16070c4d74651746
-
-下载BT种子 [《濤哥侃封神》『封神演義第六十回馬元下山助殷洪』馬元兇殘不解意腦後怪手專撕人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fcad891d1ddfc064534e8085a8e5387b41843505.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fcad891d1ddfc064534e8085a8e5387b41843505
-
-下载BT种子 [蔡英文就职,蓬佩奥亲自祝贺的深层意义;蔡英文演说的亮点与遗憾;疫情发展趋势喜忧参半(政论天下第168集20200520)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7ba2f2745e3b786a3a07ade47d72cc9ab946fc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b7ba2f2745e3b786a3a07ade47d72cc9ab946fc
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
