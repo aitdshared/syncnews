@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U5pPfB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m147tY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「最新更新—加國法官裁決：孟晚舟美加「雙重犯罪」」中共國菁英者之愚蠢經典：孟晚舟勝意甚濃與第三位丈夫提前拍攝-勝利✌️照加國總理「習近平不懂司法獨立這是加拿大🇨🇦的驕傲」（2705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52be2679fb520d96773189e1858f22f540fb2299.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52be2679fb520d96773189e1858f22f540fb2299
 
 下载BT种子 [《濤哥侃封神》「封神演義第六十五回殷郊岐山受犁鋤」為隨殷郊犁鋤願驚動佛門與瑤池四仙聯手方擒之因應青蓮現東南從此中原有佛家「只為殷郊逢此厄才往西方走一遭」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/193c9f38b9574b76a36a02cba9d304ae3f01f0e8.torrent)
 
