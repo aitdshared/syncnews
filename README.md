@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WuC1kK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TbxAjT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平大惊！申纪兰泄露国安法秘密；华春莹搬石头砸美，石头被抢走！牡丹江封小区！（老北京茶館第316集20200526）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a34489ba3273a11533a938ec68aa6a61b5b5c714.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a34489ba3273a11533a938ec68aa6a61b5b5c714
 
 下载BT种子 [【禁闻】中共巨债难收一带一路穷国要求减免.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14e4bf5f68081babecf1795ed0e2dfa25dd6aab6.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [台灣總統就職美國務卿首次聲明祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72227f9dbbd4569f9723421d49762c1a3a58855d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:72227f9dbbd4569f9723421d49762c1a3a58855d
-
-下载BT种子 [納斯卡汽車競速大賽終於還是拉開帷幕哈維克駕福特車奪冠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ad1cd61f42b70fd02be4b291d6d0b5711a4cb6f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5ad1cd61f42b70fd02be4b291d6d0b5711a4cb6f
-
-下载BT种子 [【全球新闻】5月19日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d824cea1b02deade8ed7a0a4c21b984b0045c80.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7d824cea1b02deade8ed7a0a4c21b984b0045c80
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
