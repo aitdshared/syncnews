@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5hL6wY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6VvYUF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】美国务卿蓬佩奥：香港不再拥有高度自治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/972cac3bd0817bf9cf08bd833990d06669c37437.torrent)
+
+磁力链接 magnet:?xt=urn:btih:972cac3bd0817bf9cf08bd833990d06669c37437
+
+下载BT种子 [【禁闻】制裁中共？川普将宣布对中强烈回应.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f39a75939a63521cc81a71acd0cc56068d47731.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f39a75939a63521cc81a71acd0cc56068d47731
+
+下载BT种子 [【中国禁闻】5月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a06b1821b836b8875cc2101e03f651754a2f9fc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a06b1821b836b8875cc2101e03f651754a2f9fc
+
+下载BT种子 [【禁闻】再甩锅高福改口称海鲜市场动物没病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/173ed6b09cfe179c00e1a64340a7cdd0e37e7076.torrent)
+
+磁力链接 magnet:?xt=urn:btih:173ed6b09cfe179c00e1a64340a7cdd0e37e7076
 
 下载BT种子 [香港告急！胡总编恳请美国出兵？习亲信透露：都是习近平个人所为.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e7a92b46c939578fa419055152b80441e1b2264.torrent)
 
