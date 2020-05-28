@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pGMJ9O)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YGhX7x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】5月27日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19e5deffcede2c12b4f39c4153516a08ec927166.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19e5deffcede2c12b4f39c4153516a08ec927166
+
+下载BT种子 [【中國禁聞】5月26日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcdc66027292c894fdaf7a089779d60383b95699.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dcdc66027292c894fdaf7a089779d60383b95699
+
+下载BT种子 [【禁闻】无惧中共威胁巴西热议“台湾万岁”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13193df96f20ca33652f190b8cd13d40f420e4a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:13193df96f20ca33652f190b8cd13d40f420e4a7
+
+下载BT种子 [5月27日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/489605f7a3cf6c6e302fad4b2fc357bd463bdc1b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:489605f7a3cf6c6e302fad4b2fc357bd463bdc1b
 
 下载BT种子 [【禁闻】美国务卿蓬佩奥：香港不再拥有高度自治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/972cac3bd0817bf9cf08bd833990d06669c37437.torrent)
 
