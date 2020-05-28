@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E1tOtP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xk7nh6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,62 +608,6 @@
 下载BT种子 [美國政府宣佈：擴大針對華為出口管制禁令檢視各種規避行為.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4b4074da433093f04296110327f2eb790d5d72f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c4b4074da433093f04296110327f2eb790d5d72f
-
-下载BT种子 [【禁闻】瑞幸咖啡财务造假美纳斯达克下令退市.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e24dacbd2bd9bde02b544e774b24ec653f36e04e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e24dacbd2bd9bde02b544e774b24ec653f36e04e
-
-下载BT种子 [【禁闻】陕西男翻墙被罚网友应抓华春莹赵立坚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/461dbff4e0b369028c14cd64d498badfdb86084d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:461dbff4e0b369028c14cd64d498badfdb86084d
-
-下载BT种子 [台湾总统就职大典，中国人为何感动落泪？两会登场，习近平刁难李克强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9375296b7c62cef390b3f3ee45aa2fe00de12b62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9375296b7c62cef390b3f3ee45aa2fe00de12b62
-
-下载BT种子 [《石濤聚焦》「川普飆文暗指習近平‘瘋子巫婆’」“拜託跟這個蠢瓜解釋一下是「中共國的無能」造成這場令人驚駭的【全球大殺戮】”（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bef41ed7af88c7ab5ac040cc7b0dab5a969e049b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bef41ed7af88c7ab5ac040cc7b0dab5a969e049b
-
-下载BT种子 [《石濤聚焦》「川普切斷中共國快速啟動金融戰」參議院剛剛通過法案-在美國上市的中共國公司必須證明不被共產黨擁有或控制的！無法證明者將被除名「怎麼證明呀⋯⋯😂比娶媳婦難度大多啦！」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2febc991bbd7060cbbb1b8594eaa1ca9f98ffdb5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2febc991bbd7060cbbb1b8594eaa1ca9f98ffdb5
-
-下载BT种子 [【环球直击】5月20日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e27c2c4bacb9d5a4621cf1f97ef452308bc70557.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e27c2c4bacb9d5a4621cf1f97ef452308bc70557
-
-下载BT种子 [《石濤聚焦》「川普切斷中共國快速啟動金融戰」參議院剛剛通過法案-在美國上市的中共國公司必須證明不被共產黨擁有或控制的！「😂比娶媳婦難度大多啦！」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78d159812c8afa6e2b42d7b0ec15ac7e3889cbc1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:78d159812c8afa6e2b42d7b0ec15ac7e3889cbc1
-
-下载BT种子 [【中國禁聞】5月19日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d695d65032df7a2d1234dc884cd919e021ddb8e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d695d65032df7a2d1234dc884cd919e021ddb8e0
-
-下载BT种子 [【瘟疫與中共】中共政府如何滲透聯合國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8663fe3f37e2850b44eda760d5a8828a2817a5bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8663fe3f37e2850b44eda760d5a8828a2817a5bf
-
-下载BT种子 [港府延限聚令打壓六四晚會李卓人：改採遍地開花.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71b530f18b3a568e42365c0320824472616dba92.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71b530f18b3a568e42365c0320824472616dba92
-
-下载BT种子 [涉財務醜聞瑞幸咖啡被要求退市又復牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce748b016e5381f8aa408b8d3f501414b62da06e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ce748b016e5381f8aa408b8d3f501414b62da06e
-
-下载BT种子 [蔡英文就職連任美國等政要祝賀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e908cdb4afff96f31eb5f15538ff0d65c61862fb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e908cdb4afff96f31eb5f15538ff0d65c61862fb
-
-下载BT种子 [蔡英文演說：歷史轉點未提92「歷史已翻頁」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8a25360688c0d53e2aa0a353a27d3f352bb31f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a8a25360688c0d53e2aa0a353a27d3f352bb31f4
-
-下载BT种子 [兩會即將登場中共維穩升級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d6644d17716df4c2f0816d71f1a1f04f7dd9f5a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6d6644d17716df4c2f0816d71f1a1f04f7dd9f5a
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
