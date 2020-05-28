@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/80jBds)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OwnkSO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,38 +608,6 @@
 下载BT种子 [【禁闻】陕西男翻墙被罚网友应抓华春莹赵立坚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/461dbff4e0b369028c14cd64d498badfdb86084d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:461dbff4e0b369028c14cd64d498badfdb86084d
-
-下载BT种子 [5月20日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd2b746ac7a3ea3f22b4b2e72d698334abfbe437.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bd2b746ac7a3ea3f22b4b2e72d698334abfbe437
-
-下载BT种子 [【禁闻】武汉大筛查乱象多市民质疑检测意义.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15af5bb8e78e942896992c4d0fce7b3276dbb2e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:15af5bb8e78e942896992c4d0fce7b3276dbb2e0
-
-下载BT种子 [【禁闻】沈阳六七十人确诊苏家屯中级戒备.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a760408f73cf8788698a925fb809da28e2314eac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a760408f73cf8788698a925fb809da28e2314eac
-
-下载BT种子 [【重播】美國白宮發言人簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49c730eacc3ec3139a507a8b480cda967647c56c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:49c730eacc3ec3139a507a8b480cda967647c56c
-
-下载BT种子 [【中國解密】中共軍演恐嚇意味濃梁家傑：近期港民又開始上街唱歌和高呼口號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1bff4c6adc37d8d7d5222b14c2611dfb49f823d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b1bff4c6adc37d8d7d5222b14c2611dfb49f823d
-
-下载BT种子 [紐約猶太珠寶商感染隔離期間得到救命良方唸九字真言痊癒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b44b00ea98a0bcec738034cc3d6ea11947e8a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d4b44b00ea98a0bcec738034cc3d6ea11947e8a6
-
-下载BT种子 [蔡英文520重大宣示：將組「國家隊」亮劍！習近平「送禮」，台灣遇難得歷史機遇（文昭談古論今20200520第754期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8807d663e8dacebf7a77b44ba211732ec63e4a2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c8807d663e8dacebf7a77b44ba211732ec63e4a2
-
-下载BT种子 [5月20日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fce0455fdb1cdc4eea817158ff0cebfac9b5e7a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fce0455fdb1cdc4eea817158ff0cebfac9b5e7a0
 
 下载BT种子 [台湾总统就职大典，中国人为何感动落泪？两会登场，习近平刁难李克强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9375296b7c62cef390b3f3ee45aa2fe00de12b62.torrent)
 
