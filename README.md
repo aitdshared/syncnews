@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZjReOo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uubBxd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「中共大使杜偉死因再稱異著名“塔羅牌”預言病毒地震彌賽亞」李嘉誠投標以色列淡水廠美國極力反對投標前杜偉死亡中共欲查卻止（2605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f61ea981f49aa5e9293c49e1f22405dfa7f4442.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f61ea981f49aa5e9293c49e1f22405dfa7f4442
 
 下载BT种子 [无路可走，北京热捧“地摊儿经济”，失业困境现真容；人民币再跌500点，到底怎么了？美国修改习近平称呼，细节中隐藏大手笔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56327c709e4e5a202e36d0d36de3bb674c2da2a8.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [全球瘟疫損失9萬億蓬佩奧：中共威脅遠大於此.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a78d411144ae541e3fa21beadedab71398decd14.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a78d411144ae541e3fa21beadedab71398decd14
-
-下载BT种子 [中國大陸以外感染破500萬俄羅斯現疫情拐點德國將出手挽救漢莎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd801dee1f209297c612cda93d821386040a9d07.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dd801dee1f209297c612cda93d821386040a9d07
 
 下载BT种子 [美國政府宣佈：擴大針對華為出口管制禁令檢視各種規避行為.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4b4074da433093f04296110327f2eb790d5d72f.torrent)
 
