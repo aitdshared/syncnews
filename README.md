@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X2nbBM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BSav1F)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [💢武漢新增218無症，瘟疫未去大陸又現H9N2流感；港人527反惡法，傳親共議員擬招500人假扮黑衣打砸！台灣願協助香港移民；北京四川一日三次地震，黃河罕見水清；中印武力對峙新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0e4011944d719df4e842c8c215594551c033286.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0e4011944d719df4e842c8c215594551c033286
 
 下载BT种子 [香港國安法原來直奔它來的；习近平兩會軍隊代表團講話時，中印邊境戰雲密佈，可能開戰的兩個重要因素.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96c7297caf32db4949813dbfe8077c6df84fb2fe.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【新唐人重播】520台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e47f058e5df67aecd86800a795c4ac18107bfb88.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e47f058e5df67aecd86800a795c4ac18107bfb88
-
-下载BT种子 [💥東北隔離上千萬人！陸媒估武漢50萬感染遭刪文；北京戰時狀態，兩會檢疫超嚴！香港立法會民主派被集體驅趕，六四紀念或遇阻；川普要世衛30天改革否則退出；蔡英文連任美國罕見祝賀新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f76bf3393706b8c5986841bd74cae1e8aa1b20ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f76bf3393706b8c5986841bd74cae1e8aa1b20ae
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
