@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uubBxd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IN1S2e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】情報諮詢公司總裁凱西·弗萊明：華為起家與非對稱混合戰！中共沒有與任何人共存的願望！中共到底使用了什麼非傳統的策略發動了對美國的戰爭？#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c032643f2e7ea507d5d082c13fba0ed52d545a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c032643f2e7ea507d5d082c13fba0ed52d545a9
 
 下载BT种子 [《石濤.News》「中共大使杜偉死因再稱異著名“塔羅牌”預言病毒地震彌賽亞」李嘉誠投標以色列淡水廠美國極力反對投標前杜偉死亡中共欲查卻止（2605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f61ea981f49aa5e9293c49e1f22405dfa7f4442.torrent)
 
@@ -601,17 +605,9 @@
 
 磁力链接 magnet:?xt=urn:btih:8f5386fbf31c1d02de4e3758094abc381312caea
 
-下载BT种子 [紐約殺菌新武器遠紫外線C燈消滅存留通勤系統的中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e26ca8dab27e9d4244180f678bd8ce57e027171.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e26ca8dab27e9d4244180f678bd8ce57e027171
-
 下载BT种子 [全球瘟疫損失9萬億蓬佩奧：中共威脅遠大於此.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a78d411144ae541e3fa21beadedab71398decd14.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a78d411144ae541e3fa21beadedab71398decd14
-
-下载BT种子 [美國政府宣佈：擴大針對華為出口管制禁令檢視各種規避行為.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c4b4074da433093f04296110327f2eb790d5d72f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c4b4074da433093f04296110327f2eb790d5d72f
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
