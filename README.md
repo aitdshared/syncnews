@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C8EqEN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MM6NBd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [迪士尼樂園計劃重開英國4萬人追蹤病毒中國大陸以外感染升至568萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef18cf3c306114c071196a50f7f3e947ad977bba.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef18cf3c306114c071196a50f7f3e947ad977bba
+
+下载BT种子 [杭州欲將健康碼常態化遭批侵犯隱私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/602cdbf8a1bfff6ad4f4674bba56b08f05627cd2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:602cdbf8a1bfff6ad4f4674bba56b08f05627cd2
+
+下载BT种子 [美國著名社交平臺涉言論審查扼殺言論自由川普：將很快推出重要政策針對這一問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/443d84d0f442d1c68941437748e2be631cc1de37.torrent)
+
+磁力链接 magnet:?xt=urn:btih:443d84d0f442d1c68941437748e2be631cc1de37
 
 下载BT种子 [【全球新闻】5月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee8b98e1dc23c384aa7649938482ac024833a890.torrent)
 
@@ -604,18 +616,6 @@
 下载BT种子 [兩會即將登場中共維穩升級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d6644d17716df4c2f0816d71f1a1f04f7dd9f5a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6d6644d17716df4c2f0816d71f1a1f04f7dd9f5a
-
-下载BT种子 [川普：美中貿易協議的意義已經不再重要中共爲何沒在國內控制住疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4f349d90837a7df8cff44b7b5e0f721575116dd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b4f349d90837a7df8cff44b7b5e0f721575116dd
-
-下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」2020台海打擊作戰推演因應蔡英文就職出台「根本不可能原由：習近平不信任何人甩掉王岐山任何人也不信他」（2005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ca0edb6923bb31d67868ad06f69f0f0f6c307ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5ca0edb6923bb31d67868ad06f69f0f0f6c307ef
-
-下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3635abdc522cec7314f306add86ee2be56c57bd2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3635abdc522cec7314f306add86ee2be56c57bd2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
