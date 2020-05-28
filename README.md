@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OmiKRa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TovFSm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】5月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee8b98e1dc23c384aa7649938482ac024833a890.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee8b98e1dc23c384aa7649938482ac024833a890
+
+下载BT种子 [【528重播】眾志回應美國宣布香港不再享有自治地位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43635b589dcd788bb0ca9b954ae1c755942db145.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43635b589dcd788bb0ca9b954ae1c755942db145
+
+下载BT种子 [東京頂級百貨公司重開食品區琳琅滿目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2db53b5a62fc11e0a868a7e5998b488134ea0eb9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2db53b5a62fc11e0a868a7e5998b488134ea0eb9
 
 下载BT种子 [【快訊】中共官員注意⚠️美國新制裁針對個人：凍結資產，「親屬」在列！孟晚舟將要引渡；香港失特殊地位，年輕人和中共鬥命長；貴州無理由採集血樣，細思極恐；搞笑的「超級傳播者」【新聞看點李沐陽05.27】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8145f65d006ebffbc08773cb354ca254ecd4787f.torrent)
 
@@ -604,10 +616,6 @@
 下载BT种子 [《石濤.News》「蔡英文成立‘修憲委員會’共軍短片‘24小時打下台灣’」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3635abdc522cec7314f306add86ee2be56c57bd2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3635abdc522cec7314f306add86ee2be56c57bd2
-
-下载BT种子 [【新唐人重播】美國國務卿蓬佩奧新聞發佈會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/808ebca62643a3f00cb315c6f7f4e9bfa8ac084e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:808ebca62643a3f00cb315c6f7f4e9bfa8ac084e
 
 下载BT种子 [【环球直击】5月20日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/113b09dd78664aaab97dbbdd73cd623dbe665aef.torrent)
 
