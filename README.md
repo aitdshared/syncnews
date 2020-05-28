@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OwnkSO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SRofrC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [💔悲壯527！656港人被圍捕，警察多區撒網，手足歸隊捨命戰，只為世界看見香港；國安法下無自治，美國幾近取消香港自貿區；社媒言論審查，川普警告關閉；孟晚舟翻船；李文亮曾遭酷刑新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13b371bc98166a335ad865e5384b5afb18d9f13a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:13b371bc98166a335ad865e5384b5afb18d9f13a
 
 下载BT种子 [《石濤聚焦》「最新更新—加國法官裁決：孟晚舟美加「雙重犯罪」」中共國菁英者之愚蠢經典：孟晚舟勝意甚濃與第三位丈夫提前拍攝-勝利✌️照加國總理「習近平不懂司法獨立這是加拿大🇨🇦的驕傲」（2705）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52be2679fb520d96773189e1858f22f540fb2299.torrent)
 
