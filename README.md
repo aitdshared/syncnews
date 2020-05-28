@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8vFvfx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Up6lD1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平意圖控制香港失算，國安法反逼香港公投獨立？英國對在港30萬公民會坐視不理？（江峰漫談20200525第178期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211c36b4f7ec9592e12c2c52c8a0717c4270824c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:211c36b4f7ec9592e12c2c52c8a0717c4270824c
 
 下载BT种子 [中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集20200526)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67fba69441317bb3b9f170455d5f5d09b88157f5.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [中國大陸以外確診488萬西班牙封鎖措施再延長巴西疫情危及經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dceb6acf84ae6aff3d55b35b351225657ec021b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5dceb6acf84ae6aff3d55b35b351225657ec021b
-
-下载BT种子 [中國東三省持續爆發疫情隔離上千萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a80e316d001e960bbfb7f0e721cb9b561e8b13e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a80e316d001e960bbfb7f0e721cb9b561e8b13e4
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
