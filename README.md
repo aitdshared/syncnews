@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eadU5A)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qwMX6i)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「日本召見中共國大使可能拒絕習近平以國賓身份訪日」本是確立習近平國際社會地位中極為重要的一環「很可能終身也無可能了」（2805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6115ef5094c2a28380f955ff5ca3c17108f08fed.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6115ef5094c2a28380f955ff5ca3c17108f08fed
 
 下载BT种子 [《石濤聚焦》「港版國安法1張反對6張棄權更奇1張鬼票」國內微博紛紛指責香港的田北辰-反對票其更有趣申辯「很抱歉我投了贊成票」（2805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aed1e6e222b520a16ed40608c6a626b703d3a23.torrent)
 
