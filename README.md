@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3y4Ukh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f4DK59)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [禁中共用學生竊密美國政府國會新動作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8feb4d8888a041e67622b6d4f4be32640f38729.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8feb4d8888a041e67622b6d4f4be32640f38729
+
+下载BT种子 [弗洛伊德案引發抗議川普促司法部深入調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8315d2d5cbf8828991382263e84388011574d945.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8315d2d5cbf8828991382263e84388011574d945
+
+下载BT种子 [長期審查保守言論川普將監管社交媒體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/445cc566a5a7a0be3476031d877a926c8bd72d13.torrent)
+
+磁力链接 magnet:?xt=urn:btih:445cc566a5a7a0be3476031d877a926c8bd72d13
+
+下载BT种子 [俄羅斯動物園疫情期迎來動物新生潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc6431d960d65ddd82fcc9e3e81b5fc2ef360c5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc6431d960d65ddd82fcc9e3e81b5fc2ef360c5e
+
+下载BT种子 [川普簽發行政令限制推特臉書等社交媒體利用「網絡平臺」來表達政治偏見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db824e926597a568cc4505b59f8fd476f996f600.torrent)
+
+磁力链接 magnet:?xt=urn:btih:db824e926597a568cc4505b59f8fd476f996f600
 
 下载BT种子 [【禁闻】美拟驱逐数千名中共军校背景在美留学生.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/970819a084300581f874d26b8d3f484d20b58749.torrent)
 
