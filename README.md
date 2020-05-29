@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XVvyef)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1OUvmc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -608,30 +608,6 @@
 下载BT种子 [【禁闻】蔡英文总统就职演说大陆民众称赞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da149c047b301334be23435e228b158ac0a705b0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:da149c047b301334be23435e228b158ac0a705b0
-
-下载BT种子 [【中國禁聞】5月20日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae7c37cf5615cf9c0b6855abef5eca997e27aac9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ae7c37cf5615cf9c0b6855abef5eca997e27aac9
-
-下载BT种子 [内幕惊人！习近平派人强闯国务院，遭李克强驱赶。王沪宁建秘密小组，意图耸动。美国总统和国务卿发最严正指控！美中即将摊牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8c4fe777103e390a9e9b054df975198b497154.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb8c4fe777103e390a9e9b054df975198b497154
-
-下载BT种子 [生死一線：中共硬上人大版《香港國安23條》，川普強硬回懟；北京異象，真實的「至暗時刻」（文昭談古論今2020521第755期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acc6d4a3d0f0e908806c08f138c2f01ed997e194.torrent)
-
-磁力链接 magnet:?xt=urn:btih:acc6d4a3d0f0e908806c08f138c2f01ed997e194
-
-下载BT种子 [内幕：习近平派人强闯国务院，遭李克强驱赶。王沪宁建秘密小组，意图惊人！美国总统和国务卿发最严正指控。美中即将摊牌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ade62d448d0ae976a6b73f4d1698e33cbd534b9b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ade62d448d0ae976a6b73f4d1698e33cbd534b9b
-
-下载BT种子 [《石濤聚焦》「川普硬挑趙立堅“你是個愚蠢的傢伙”」拚命試圖轉移中共國給全世界帶來的痛苦和屠殺對歐美假訊息宣傳攻擊是一種恥辱這都來自習近平趙立堅-我憑事實說話（2105）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37f1be43d364a5e6f600d98d545af971f58563f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f37f1be43d364a5e6f600d98d545af971f58563f
-
-下载BT种子 [【环球直击】5月21日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5402f86d6e61e4e02f7760994ed5652105636131.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5402f86d6e61e4e02f7760994ed5652105636131
 
 下载BT种子 [《石濤聚焦》「習近平自知9月香港立法會選舉：必敗」強推“港版國安法”玉石俱焚港人擠爆美日澳台移民網站「勢必“違法”的支聯會黃之鋒等-誓不言退」如惡法成立-反送中百萬遊行者都是「港版709律師」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45ada9b3b250f04a30b3354d0175ec0232dd775a.torrent)
 
