@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/khuH00)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dq8PL4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】5月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fecd1387b059575328ef43592dd7f96f0342e24.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0fecd1387b059575328ef43592dd7f96f0342e24
+
+下载BT种子 [【529重播】台立法院長游錫堃宣讀朝野共同聲明！救援港人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efb2686d3205a16894a4cdd51877b66b7f99ee2a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:efb2686d3205a16894a4cdd51877b66b7f99ee2a
+
+下载BT种子 [【重播】中華民國總統蔡英文挺香港參訪銅鑼灣書店.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98d78d72100e61858fea53bfc385256dd04028de.torrent)
+
+磁力链接 magnet:?xt=urn:btih:98d78d72100e61858fea53bfc385256dd04028de
+
+下载BT种子 [【529重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2854267b48223b8b7a24b3ee625ef5dd75350537.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2854267b48223b8b7a24b3ee625ef5dd75350537
 
 下载BT种子 [川普何時用終極殺招----港幣美元脫鉤，人民幣瞬間變“軍票”；香港關係法、人權法之外，川普還有多少反制國安法選項（江峰漫談20200527第180期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31d32a03cef6fbd39c991ba27d99c6f59d91c795.torrent)
 
@@ -584,14 +600,6 @@
 下载BT种子 [【全球新闻】5月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b73a475cf26aa2fccfc61de372283f071b595a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0b73a475cf26aa2fccfc61de372283f071b595a
-
-下载BT种子 [引爆💥!「割韭菜」割到美國人？美國忍無可忍，出售台灣「重型魚雷」!!瑞幸氣勢磅礴賣咖啡，作假賬蒸發百億美元。。開兩會，老天怒，黑天暴雨霹靂火，看來「2020小康夢」碎【新聞看點李沐陽05.21】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ac798d226f8b81dda7d4d168ef8781f2235a608.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ac798d226f8b81dda7d4d168ef8781f2235a608
-
-下载BT种子 [【禁闻】阻断中共圈钱路美参院法案紧盯中概股.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fce9b2855d04eda63e7b50da2b9a01096df70c3e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fce9b2855d04eda63e7b50da2b9a01096df70c3e
 
 下载BT种子 [紐約華裔欺詐兩千萬紓困金面臨最高117年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/732dcee2400bdd439e8f28e12a144b61f2341c29.torrent)
 
