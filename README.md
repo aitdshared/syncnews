@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dq8PL4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dp9O8H)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播】疫情引發新思維與契機：如何落實臺灣防疫長期實力-從產業出發(DCB線上研討會下半場)台灣大紀元時報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f511c8e7d7ac4e41384a41d9f40dc602fb37710d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f511c8e7d7ac4e41384a41d9f40dc602fb37710d
 
 下载BT种子 [【环球直击】5月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fecd1387b059575328ef43592dd7f96f0342e24.torrent)
 
@@ -593,77 +597,9 @@
 
 磁力链接 magnet:?xt=urn:btih:b8fe24224d9b8241f8063a316cc6364b34ead7e2
 
-下载BT种子 [川普推文直怼习近平;蓬佩奥说中共比新冠病毒更可怕;白宫报告堪比里根演说;美中关系全面对抗的三个标志(政论天下第169集20200521)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bac353bcefcf665d3f33fceaf4ee171e9f477859.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bac353bcefcf665d3f33fceaf4ee171e9f477859
-
 下载BT种子 [【全球新闻】5月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b73a475cf26aa2fccfc61de372283f071b595a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0b73a475cf26aa2fccfc61de372283f071b595a
-
-下载BT种子 [紐約華裔欺詐兩千萬紓困金面臨最高117年監禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/732dcee2400bdd439e8f28e12a144b61f2341c29.torrent)
-
-磁力链接 magnet:?xt=urn:btih:732dcee2400bdd439e8f28e12a144b61f2341c29
-
-下载BT种子 [白宮對華戰略報告突出中共價值觀挑戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/294112a7a3b18b3a685a2bba3a00f268469c9bcd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:294112a7a3b18b3a685a2bba3a00f268469c9bcd
-
-下载BT种子 [（字幕）蓬佩奧重磅講話：我們低估了中共的意識形態美國和世界已徹底警醒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/457db2b795ae8f22421ca893d707edf2ad655d6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:457db2b795ae8f22421ca893d707edf2ad655d6b
-
-下载BT种子 [美售台重型魚雷蔡英文就職當天美國新一輪對台軍美台關係正在超越美中關係.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/894ca05b8ab7dde3182f96d1af3975dbb4178ff6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:894ca05b8ab7dde3182f96d1af3975dbb4178ff6
-
-下载BT种子 [中共突推港版國安法「一國兩制」終結.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68254289514893f3419e9ecd61ef4a4b1a6d711b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:68254289514893f3419e9ecd61ef4a4b1a6d711b
-
-下载BT种子 [中國大陸以外感染破508萬巴西新高過2萬人確診美援俄呼吸機到達.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/642ef50a9eccd19d16bcdcbf3e2e3a5481f3e296.torrent)
-
-磁力链接 magnet:?xt=urn:btih:642ef50a9eccd19d16bcdcbf3e2e3a5481f3e296
-
-下载BT种子 [【中国禁闻】5月21日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92e9c9ef01faa94949bf3004a4d9cbc52c21e9c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92e9c9ef01faa94949bf3004a4d9cbc52c21e9c7
-
-下载BT种子 [【禁闻】回应中共卸责川普用最严厉措辞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c9c58bb7d217aac9fc807aa762356822606633f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c9c58bb7d217aac9fc807aa762356822606633f
-
-下载BT种子 [【禁闻】摒除民主派亲共议员当选内会主席.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e376fa1feb36de259805e632c4d4b5c37c11b90.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4e376fa1feb36de259805e632c4d4b5c37c11b90
-
-下载BT种子 [【禁闻】中共推“港版国安法”香港变一国一制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b9f58906c588b05e3a8766ac60023c4e48cfd7a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6b9f58906c588b05e3a8766ac60023c4e48cfd7a
-
-下载BT种子 [【禁闻】蔡英文总统就职演说大陆民众称赞.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da149c047b301334be23435e228b158ac0a705b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da149c047b301334be23435e228b158ac0a705b0
-
-下载BT种子 [《石濤聚焦》「習近平自知9月香港立法會選舉：必敗」強推“港版國安法”玉石俱焚港人擠爆美日澳台移民網站「勢必“違法”的支聯會黃之鋒等-誓不言退」如惡法成立-反送中百萬遊行者都是「港版709律師」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45ada9b3b250f04a30b3354d0175ec0232dd775a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:45ada9b3b250f04a30b3354d0175ec0232dd775a
-
-下载BT种子 [川普批中共外交部發言人譴責中共大規模虛假宣傳指中共高層應對疫情負責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f1a4db24765a3b3e36f3da3825c1342e8e55905.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f1a4db24765a3b3e36f3da3825c1342e8e55905
-
-下载BT种子 [中國大陸以外約511萬人確診拉丁美洲新疫情中心巴西單日確診近2萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7c69e3a30c13f4ef4d3a36c55e416abc81e7b5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c7c69e3a30c13f4ef4d3a36c55e416abc81e7b5c
-
-下载BT种子 [中共兩會召開中共肺炎疫情和經濟成焦點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96dd94fd2efc6c0cae86329459fec546de7f26aa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:96dd94fd2efc6c0cae86329459fec546de7f26aa
-
-下载BT种子 [武漢普篩急喊卡網爆料：抗體陽性率高達1成.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db18d9bff7a63cd435c9275891faa88512e77f24.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db18d9bff7a63cd435c9275891faa88512e77f24
 
 下载BT种子 [中共兩會召開之際美國對中共檄文白宮20頁報告轟惡意活動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dba0d8a1c1c0e3ee86ea49fd7376eb5361437826.torrent)
 
