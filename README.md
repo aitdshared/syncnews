@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YAihrC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HpBqKk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「連續2日香港人大批兌換美元」香港將失去金融中心地位短期取代者-新加坡或東京長遠是台灣（川普剛剛宣布中止「香港特殊關係法」）（2905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f914e5f5fea8d4c89e2b0c63c0d25957d417ef9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f914e5f5fea8d4c89e2b0c63c0d25957d417ef9
 
 下载BT种子 [《石濤.News》「李克強中指按讚同盡現中南海末日情懷」坦言-6億中共國人月收1000元「習近平的小康只是他嘴裡的」九二共識與和平統一重回報告「中南海沒有人把回家政策當回事」習近平失聰失智.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cda23d38f30dedd872b94a645514a9c4f82a301.torrent)
 
