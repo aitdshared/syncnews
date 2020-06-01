@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6eMtXx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/soQRDZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】澳学者中共病毒特别针对人类前所未有.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30e78baecc90df29cdb87268480b2ce04433facc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:30e78baecc90df29cdb87268480b2ce04433facc
 
 下载BT种子 [【禁闻】美国骚乱背后中共鬼影频现.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f60f0fcaf325e09cecbf1ac81484091d9a7b4db.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [緊急宣言解除日本社會并無喜悅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874cdc13fbcd0df72d64f131b7763758cd3b1660.torrent)
 
 磁力链接 magnet:?xt=urn:btih:874cdc13fbcd0df72d64f131b7763758cd3b1660
-
-下载BT种子 [「雙惡法」激民憤港藝文界憂創作自由何韻詩：對所有人都是個巨大威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b34e904ee09aac39f7332a01f5bf6dd2e3da0ba2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b34e904ee09aac39f7332a01f5bf6dd2e3da0ba2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
