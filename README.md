@@ -21,13 +21,53 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NGwSVK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aFclJm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平渴望一场战争？共军入侵印度遭生俘！警察倒着读党报。美国民众抗议升级.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2527af7f4733739f635f3591b85c5610ae726448.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2527af7f4733739f635f3591b85c5610ae726448
+
+下载BT种子 [【新唐人重播】美國SpaceX龍飛船對接太空站（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38ccf9650d16f026a9f45fc216edad6a60c17a09.torrent)
+
+磁力链接 magnet:?xt=urn:btih:38ccf9650d16f026a9f45fc216edad6a60c17a09
+
+下载BT种子 [【中国禁闻】5月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15c866523f51f70209ee847d7eb511b3737df563.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15c866523f51f70209ee847d7eb511b3737df563
+
+下载BT种子 [【美國思想領袖】中國問題分析師章家敦：中共垮台一定會發生！當世界關注疫情大流行時，中共軍隊為何變得日益好戰？中共已惹怒了美國領導層和人民，不管誰當選，都會沉重打擊中共！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e92ea006a8058b311ce6476e8361a0460586b75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e92ea006a8058b311ce6476e8361a0460586b75
+
+下载BT种子 [《石濤聚焦》「成龍代表周星馳周潤發等藝人支持‘港版國安法’張國榮梅艷芳赫然出現微博」習近平-中共與鬼同行？找鬼上身？還是已入地獄？「文宣力挺習總充實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/339177cfa118617fae50ca5fef1983642c44d60e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:339177cfa118617fae50ca5fef1983642c44d60e
+
+下载BT种子 [《石濤.News》「川普發佈：正在發生騷亂的組織者為恐怖組織」中共宣布「國安法」當日美國超過10個州30多城市爆發騷亂「打砸搶燒」NIKE蘋果LV店被砸搶「中共黨旗現街頭」共黨美國勢力殊死大拼殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c85e8d9fc959fde0cbcc6f487ab56d92e6e980e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9c85e8d9fc959fde0cbcc6f487ab56d92e6e980e
+
+下载BT种子 [【环球直击】5月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e32e382f1730bf6789ba7265cdffa75b7dd4ada2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e32e382f1730bf6789ba7265cdffa75b7dd4ada2
+
+下载BT种子 [习近平与彭丽媛分居,与李克强矛盾公开化美国骚乱背后的组织者(政论天下第175集20200531)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b81891257d7dcfdd03d9a555f39dc2ec9bfab377.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b81891257d7dcfdd03d9a555f39dc2ec9bfab377
+
+下载BT种子 [《石濤聚焦》「‘港版國安法’通過港警暴斃-4天3個」狀況雷同：昏迷在家送醫不治前線警員壯年男士「首位40歲防暴隊警長14小時工作後（超時獎金？）政法委發話！」天數-定數從來就是報應！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e59267b1838f3e5e653bb62a0fb5e8aeff3043f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e59267b1838f3e5e653bb62a0fb5e8aeff3043f
+
+下载BT种子 [人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？美国阴暗面里的华人思维（老北京茶館第320集20200531）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15297159f6e0bf9797cf1c0d12a3157362f01773.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15297159f6e0bf9797cf1c0d12a3157362f01773
 
 下载BT种子 [【禁闻】5月31日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e32560b8500dba66712ad775e314ae322768f75.torrent)
 
@@ -516,14 +556,6 @@
 下载BT种子 [美國著名社交平臺涉言論審查扼殺言論自由川普：將很快推出重要政策針對這一問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/443d84d0f442d1c68941437748e2be631cc1de37.torrent)
 
 磁力链接 magnet:?xt=urn:btih:443d84d0f442d1c68941437748e2be631cc1de37
-
-下载BT种子 [【全球新闻】5月27日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee8b98e1dc23c384aa7649938482ac024833a890.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee8b98e1dc23c384aa7649938482ac024833a890
-
-下载BT种子 [【528重播】眾志回應美國宣布香港不再享有自治地位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43635b589dcd788bb0ca9b954ae1c755942db145.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43635b589dcd788bb0ca9b954ae1c755942db145
 
 下载BT种子 [東京頂級百貨公司重開食品區琳琅滿目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2db53b5a62fc11e0a868a7e5998b488134ea0eb9.torrent)
 
