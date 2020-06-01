@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Pub5HG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vWIJJb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -556,6 +556,10 @@
 下载BT种子 [美國著名社交平臺涉言論審查扼殺言論自由川普：將很快推出重要政策針對這一問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/443d84d0f442d1c68941437748e2be631cc1de37.torrent)
 
 磁力链接 magnet:?xt=urn:btih:443d84d0f442d1c68941437748e2be631cc1de37
+
+下载BT种子 [【528重播】眾志回應美國宣布香港不再享有自治地位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43635b589dcd788bb0ca9b954ae1c755942db145.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43635b589dcd788bb0ca9b954ae1c755942db145
 
 下载BT种子 [東京頂級百貨公司重開食品區琳琅滿目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2db53b5a62fc11e0a868a7e5998b488134ea0eb9.torrent)
 
