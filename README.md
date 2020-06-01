@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/x0l4uZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/STKErH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】川普重拳反击中共美中进入全面对抗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fd2bf9f443c414ace013381a6b99a899243c56b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7fd2bf9f443c414ace013381a6b99a899243c56b
+
+下载BT种子 [【禁闻】李克强称6亿人月收入千元释复杂信号.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9ea1d3f808aadb7f04cd7182eac3b421d6d705.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7d9ea1d3f808aadb7f04cd7182eac3b421d6d705
+
+下载BT种子 [【禁闻】国安法加速港人移民潮“蓝丝”也想跑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27965243edb2106603a600170539c2bab395674f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:27965243edb2106603a600170539c2bab395674f
+
+下载BT种子 [【禁闻】香港国安法加深中英裂痕英国会改变对华政策吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7edca4f6e2d92ecc5a3830af999caf7e1e74c5b8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7edca4f6e2d92ecc5a3830af999caf7e1e74c5b8
+
+下载BT种子 [【禁闻】吉林防疫文件泄密：大数据监控无处不在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13417a33b4fe53aebe4237ac9153e762963466b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:13417a33b4fe53aebe4237ac9153e762963466b2
+
+下载BT种子 [【禁闻】5月31日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cf566c31897bf8b1e4d1686d66bf83e9784db44.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cf566c31897bf8b1e4d1686d66bf83e9784db44
 
 下载BT种子 [习近平渴望一场战争？共军入侵印度遭生俘！警察倒着读党报。美国民众抗议升级.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2527af7f4733739f635f3591b85c5610ae726448.torrent)
 
@@ -489,10 +513,6 @@
 
 磁力链接 magnet:?xt=urn:btih:0df2144ef19ca082ec7f4037d61cf552da5fd28e
 
-下载BT种子 [【禁闻】5月27日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19e5deffcede2c12b4f39c4153516a08ec927166.torrent)
-
-磁力链接 magnet:?xt=urn:btih:19e5deffcede2c12b4f39c4153516a08ec927166
-
 下载BT种子 [【中國禁聞】5月26日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcdc66027292c894fdaf7a089779d60383b95699.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dcdc66027292c894fdaf7a089779d60383b95699
@@ -500,10 +520,6 @@
 下载BT种子 [【禁闻】无惧中共威胁巴西热议“台湾万岁”.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13193df96f20ca33652f190b8cd13d40f420e4a7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:13193df96f20ca33652f190b8cd13d40f420e4a7
-
-下载BT种子 [5月27日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/489605f7a3cf6c6e302fad4b2fc357bd463bdc1b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:489605f7a3cf6c6e302fad4b2fc357bd463bdc1b
 
 下载BT种子 [【禁闻】美国务卿蓬佩奥：香港不再拥有高度自治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/972cac3bd0817bf9cf08bd833990d06669c37437.torrent)
 
@@ -532,46 +548,6 @@
 下载BT种子 [美国认定香港丧失自治地位,盘点川普制裁中共的工具箱孟晚舟“双重犯罪”成立(政论天下第173集20200527)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4bcef99231414078e91c9b673d1076186efa785.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b4bcef99231414078e91c9b673d1076186efa785
-
-下载BT种子 [援助港人蔡英文：將提出具體人道救援方案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/747d19dd51f80276bbc3ed3100f2b2741d88ec6d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:747d19dd51f80276bbc3ed3100f2b2741d88ec6d
-
-下载BT种子 [天公不作美NASA推遲發射載人「龍飛船」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9eb61cde29a9b604abeaf54ba8c368efa8dc1198.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9eb61cde29a9b604abeaf54ba8c368efa8dc1198
-
-下载BT种子 [加卑詩省法院裁決孟晚舟雙重犯罪成立.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3964946f5b6f910d03bdf040c855f25a53b1a7ec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3964946f5b6f910d03bdf040c855f25a53b1a7ec
-
-下载BT种子 [迪士尼樂園計劃重開英國4萬人追蹤病毒中國大陸以外感染升至568萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef18cf3c306114c071196a50f7f3e947ad977bba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ef18cf3c306114c071196a50f7f3e947ad977bba
-
-下载BT种子 [杭州欲將健康碼常態化遭批侵犯隱私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/602cdbf8a1bfff6ad4f4674bba56b08f05627cd2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:602cdbf8a1bfff6ad4f4674bba56b08f05627cd2
-
-下载BT种子 [美國著名社交平臺涉言論審查扼殺言論自由川普：將很快推出重要政策針對這一問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/443d84d0f442d1c68941437748e2be631cc1de37.torrent)
-
-磁力链接 magnet:?xt=urn:btih:443d84d0f442d1c68941437748e2be631cc1de37
-
-下载BT种子 [東京頂級百貨公司重開食品區琳琅滿目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2db53b5a62fc11e0a868a7e5998b488134ea0eb9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2db53b5a62fc11e0a868a7e5998b488134ea0eb9
-
-下载BT种子 [【快訊】中共官員注意⚠️美國新制裁針對個人：凍結資產，「親屬」在列！孟晚舟將要引渡；香港失特殊地位，年輕人和中共鬥命長；貴州無理由採集血樣，細思極恐；搞笑的「超級傳播者」【新聞看點李沐陽05.27】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8145f65d006ebffbc08773cb354ca254ecd4787f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8145f65d006ebffbc08773cb354ca254ecd4787f
-
-下载BT种子 [習近平意圖控制香港失算，國安法反逼香港公投獨立？英國對在港30萬公民會坐視不理？（江峰漫談20200525第178期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/211c36b4f7ec9592e12c2c52c8a0717c4270824c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:211c36b4f7ec9592e12c2c52c8a0717c4270824c
-
-下载BT种子 [中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集20200526)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/67fba69441317bb3b9f170455d5f5d09b88157f5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:67fba69441317bb3b9f170455d5f5d09b88157f5
 
 下载BT种子 [习近平大惊！申纪兰泄露国安法秘密；华春莹搬石头砸美，石头被抢走！牡丹江封小区！（老北京茶館第316集20200526）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a34489ba3273a11533a938ec68aa6a61b5b5c714.torrent)
 
