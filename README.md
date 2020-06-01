@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YxP4yv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LkvzK5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「白宮的總統教堂被放火美國騷亂將改變」現場更現普通話“快走！”國內大肆宣傳「共產主義正在美國取代資本主義」24州40個城市宵禁「驚奇：騷亂中無人用槍警察紛紛與抗議者共祈禱」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5687d024bc3763d7e305a1568dbe0c7cc989681.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f5687d024bc3763d7e305a1568dbe0c7cc989681
 
 下载BT种子 [【环球直击】香港支联会六四悼念活动被禁蓬佩奥揭威胁本质比利时王子染疫（6月1日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74b49587c563acdc403d212287d9877dafc32a4b.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [《石濤.News》「中共大使杜偉死因再稱異著名“塔羅牌”預言病毒地震彌賽亞」李嘉誠投標以色列淡水廠美國極力反對投標前杜偉死亡中共欲查卻止（2605）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f61ea981f49aa5e9293c49e1f22405dfa7f4442.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8f61ea981f49aa5e9293c49e1f22405dfa7f4442
-
-下载BT种子 [无路可走，北京热捧“地摊儿经济”，失业困境现真容；人民币再跌500点，到底怎么了？美国修改习近平称呼，细节中隐藏大手笔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56327c709e4e5a202e36d0d36de3bb674c2da2a8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:56327c709e4e5a202e36d0d36de3bb674c2da2a8
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
