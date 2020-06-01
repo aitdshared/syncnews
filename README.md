@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JgHuh0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AvSIkO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [出人意料，习近平撰文直接反驳李克强，李克强怎么办？习李矛盾完全公开化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f22175ada02186cb9e92062b96dcf6ddf1201b9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f22175ada02186cb9e92062b96dcf6ddf1201b9
+
+下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第十回第十回姬伯燕山收雷震「天數已定斷不可逃徒自多事」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a275f0ddc87edb61e4058e83a7c76de39d5eee97.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a275f0ddc87edb61e4058e83a7c76de39d5eee97
 
 下载BT种子 [【禁闻】川普重拳反击中共美中进入全面对抗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fd2bf9f443c414ace013381a6b99a899243c56b.torrent)
 
