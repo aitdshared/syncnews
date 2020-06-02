@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OJn5On)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bEer0t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁闻】“地摊经济”重启惠民还是维稳？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa93e8732bdfb3e16f12379933f650b8ba4c6ea7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa93e8732bdfb3e16f12379933f650b8ba4c6ea7
 
 下载BT种子 [紐約暴動抗議犯罪團伙明目張膽沿路砸店搶劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23f3f44e27f678e80ecba33a60c7872eab31dd2b.torrent)
 
