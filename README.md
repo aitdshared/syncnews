@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DXmQKn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JzpFZ2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中美对决，韩国两边获利，“间于齐楚”的策略还能走通吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/964bb2ec7c744bda9aed4306f1a09936cac69150.torrent)
+
+磁力链接 magnet:?xt=urn:btih:964bb2ec7c744bda9aed4306f1a09936cac69150
 
 下载BT种子 [🔥軍人進城，川普要鐵腕鎮壓“共產國際”暴動！左派騎劫抗議，美國大騷亂、暴徒打砸搶，黑人騷亂和香港抗爭之區別；中共貿易毀約，美追加關稅；傳中南海後悔；SpaceX再創歷史新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf6b2c5bb600d4ed5b3d49d198a921806ea78f7c.torrent)
 
@@ -520,10 +524,6 @@
 下载BT种子 [【中國禁聞】5月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075875516247cfb7a85036bb06806239114ea2b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:075875516247cfb7a85036bb06806239114ea2b6
-
-下载BT种子 [【百年红祸】被政治运动抹煞的大师—叶企孙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/258e3b6d9e6e7f32ac2863b10a5659aca6b02010.torrent)
-
-磁力链接 magnet:?xt=urn:btih:258e3b6d9e6e7f32ac2863b10a5659aca6b02010
 
 下载BT种子 [【禁闻】美媒：10天检测650万人武汉怎么做到的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8237b4590736eeb0c48fc4489e2ad57424fa96ba.torrent)
 
