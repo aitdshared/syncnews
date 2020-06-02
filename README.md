@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bEer0t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Uectjd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「李克強山東盛讚推廣：地攤兒經濟-練攤兒——中共國經濟倒退40年」李克強明言6億人月收千元後再揭真相「習近平稱帝2年中共國勇回李克強農村插隊時代」（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19c7aaaee90748e2d8136c9e0f1b1b4a29a00b6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19c7aaaee90748e2d8136c9e0f1b1b4a29a00b6b
 
 下载BT种子 [【禁闻】“地摊经济”重启惠民还是维稳？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa93e8732bdfb3e16f12379933f650b8ba4c6ea7.torrent)
 
@@ -504,10 +508,6 @@
 下载BT种子 [《石濤.News》「李克強中指按讚同盡現中南海末日情懷」坦言-6億中共國人月收1000元「習近平的小康只是他嘴裡的」九二共識與和平統一重回報告「中南海沒有人把回家政策當回事」習近平失聰失智.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cda23d38f30dedd872b94a645514a9c4f82a301.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7cda23d38f30dedd872b94a645514a9c4f82a301
-
-下载BT种子 [【重播】疫情引發新思維與契機：如何落實臺灣防疫長期實力-從產業出發(DCB線上研討會下半場)台灣大紀元時報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f511c8e7d7ac4e41384a41d9f40dc602fb37710d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f511c8e7d7ac4e41384a41d9f40dc602fb37710d
 
 下载BT种子 [【环球直击】5月29日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fecd1387b059575328ef43592dd7f96f0342e24.torrent)
 
