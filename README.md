@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CMovn5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DJwxsH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「地攤經濟」重啓惠民還是維穩？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c9e901f2e9f684c062321a6673a2bc6114bab86.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7c9e901f2e9f684c062321a6673a2bc6114bab86
 
 下载BT种子 [中印邊境衝突中共軍人被爆頭黨媽不理.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9e51fc1c1f8741a5766ebab36c7a576740b40a8.torrent)
 
@@ -524,10 +528,6 @@
 下载BT种子 [【禁闻】美媒：10天检测650万人武汉怎么做到的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8237b4590736eeb0c48fc4489e2ad57424fa96ba.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8237b4590736eeb0c48fc4489e2ad57424fa96ba
-
-下载BT种子 [美恐取消港特殊待遇香港評論員形容蓬佩奧按下了關乎香港前途的核彈按鈕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33909ca74676576b8c5fa5dcba2f2db527264fab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:33909ca74676576b8c5fa5dcba2f2db527264fab
 
 下载BT种子 [【环球直击】5月28日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79695473aa91c4e98f7a675510b9f03b3677ecbb.torrent)
 
