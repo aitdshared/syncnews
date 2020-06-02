@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/z9zbos)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/11w1u3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】美國總統川普召開記者會發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2de0d406c3d4b10c39381b00daa8187cc7ecaa87.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2de0d406c3d4b10c39381b00daa8187cc7ecaa87
 
 下载BT种子 [《石濤聚焦》「財長陳茂波淚眼汪汪堅稱‘港區國安法無法撼動香港金融中心地位」老實人撒謊之悲劇！港幣-人民幣-美元香港金融中心崩潰必然上海或深圳取代香港「習近平的中國夢誰做過？」（0106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da01222d29cf40eccafffbc3eb071bd492eb7719.torrent)
 
@@ -540,10 +544,6 @@
 下载BT种子 [【瘟疫與中共】法國大東區為何成為重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8865432f0ee103ada9ff20855d21c69ad9fe9a4d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8865432f0ee103ada9ff20855d21c69ad9fe9a4d
-
-下载BT种子 [人權觀察研究員：國安法危害港人公民權力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd62cbd4a808966c5b5de6cca885bb555fe5144d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fd62cbd4a808966c5b5de6cca885bb555fe5144d
 
 下载BT种子 [緊急宣言解除日本社會并無喜悅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874cdc13fbcd0df72d64f131b7763758cd3b1660.torrent)
 
