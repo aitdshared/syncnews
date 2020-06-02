@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SmY5cq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mWCrUY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國騷亂誰發動，中共也參與？美國騷亂與香港抗爭有何差異？騷亂攪局美中對抗會怎樣？（2020.6.2）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e264a3058e3c4184a1258a7336fbc64469139a4c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e264a3058e3c4184a1258a7336fbc64469139a4c
 
 下载BT种子 [【62重播】總統蔡英文視察航特空降訓練中心傘兵現場實施跳塔訓練.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1463c6224fde2ddc5fe7d45e9662d433bf890a79.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【重播】美國白宮發言人簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbb65caa16dbc6caa44baacfb047e2255a32ffbd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bbb65caa16dbc6caa44baacfb047e2255a32ffbd
-
-下载BT种子 [砸毁东方之珠！习近平复仇成功？唯一反对票，谁是那个勇士？李克强记者会遭控制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1bd9f207d8d82a08f17275985fea2899ce7f312f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1bd9f207d8d82a08f17275985fea2899ce7f312f
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
