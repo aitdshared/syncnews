@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2RHmvZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nZZKPg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [清洗民主女神像舊金山灣區華人紀念六四.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e2a8e3222b6db0459e2120b15cc5d127e77b13c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e2a8e3222b6db0459e2120b15cc5d127e77b13c
 
 下载BT种子 [《石濤聚焦》「川普握聖經總統教堂前-宣稱保衛美國引爭議」所有民主黨州長反對川普動用軍隊平息騷亂「1807年反暴亂法」給予川普絕對權力（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/520cd0bbebc8b0ea6e0eb7ef878b208529967018.torrent)
 
@@ -552,10 +556,6 @@
 下载BT种子 [川普何時用終極殺招----港幣美元脫鉤，人民幣瞬間變“軍票”；香港關係法、人權法之外，川普還有多少反制國安法選項（江峰漫談20200527第180期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31d32a03cef6fbd39c991ba27d99c6f59d91c795.torrent)
 
 磁力链接 magnet:?xt=urn:btih:31d32a03cef6fbd39c991ba27d99c6f59d91c795
-
-下载BT种子 [【全球新闻】5月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17529f86348468df2e5e175bd7944a74b38ff947.torrent)
-
-磁力链接 magnet:?xt=urn:btih:17529f86348468df2e5e175bd7944a74b38ff947
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
