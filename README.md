@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/daR7XQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8VGSZ0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紀念六四事件31週年美國務院首次舉行網上燭光守夜活動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/538877b7558f4a8cb7720c9849f4611b19b334c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:538877b7558f4a8cb7720c9849f4611b19b334c2
+
+下载BT种子 [NASA宇航員龍飛船對接過程順利超想象.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d2b10318aec41f1cfaba975d62a50f627b31ec9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6d2b10318aec41f1cfaba975d62a50f627b31ec9
+
+下载BT种子 [全球疫情：俄印墨疫情嚴峻繼續解封以色列或再封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd29c081c171c0b6735f1bfd688f16e9f479e61.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8cd29c081c171c0b6735f1bfd688f16e9f479e61
 
 下载BT种子 [《石濤聚焦》「突發即時：川普強硬記者會表態後徒步穿過抗議人群視察被焚燒的「總統教堂」」委任參謀長聯席會主席全權負責援引1807年《叛乱法》動用军队「騷亂結束後中共被絕滅—將開啟」（0106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/57ca1cb9beab776f121af006f722bb75a10834b4.torrent)
 
@@ -536,18 +548,6 @@
 下载BT种子 [《石濤聚焦》「日本召見中共國大使可能拒絕習近平以國賓身份訪日」本是確立習近平國際社會地位中極為重要的一環「很可能終身也無可能了」（2805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6115ef5094c2a28380f955ff5ca3c17108f08fed.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6115ef5094c2a28380f955ff5ca3c17108f08fed
-
-下载BT种子 [《石濤聚焦》「港版國安法1張反對6張棄權更奇1張鬼票」國內微博紛紛指責香港的田北辰-反對票其更有趣申辯「很抱歉我投了贊成票」（2805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aed1e6e222b520a16ed40608c6a626b703d3a23.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9aed1e6e222b520a16ed40608c6a626b703d3a23
-
-下载BT种子 [《石濤聚焦》「習近平豪賭“港版國安法”—悲劇啦！」投票前日與中共同生的賭王-死了！賭徒咋還能咋兒？與習總不解之緣的孟晚舟—烏龍了！「當年川習會-習以承諾欺川普-孟被抓今習近平以國法騙港人-孟再被抓」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/337c96a1c815cb2572f271df41bf7dd9007889f6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:337c96a1c815cb2572f271df41bf7dd9007889f6
-
-下载BT种子 [#香港失自治【中國禁聞】5月27日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/513867211ed54f7d6f963ecad1196a433fc9cd67.torrent)
-
-磁力链接 magnet:?xt=urn:btih:513867211ed54f7d6f963ecad1196a433fc9cd67
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
