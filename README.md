@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ukRKYV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ie3yom)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【62重播】台海巡署首艘4000噸巡防艦「嘉義艦」下水典禮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/adbfdac4d059a8fdc5580bcb5ff5dd2c53d8ce16.torrent)
+
+磁力链接 magnet:?xt=urn:btih:adbfdac4d059a8fdc5580bcb5ff5dd2c53d8ce16
 
 下载BT种子 [【全球新闻】6月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2423f7cb12ff3088b8798cadaba015a80bc1874.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [【中國禁聞】5月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075875516247cfb7a85036bb06806239114ea2b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:075875516247cfb7a85036bb06806239114ea2b6
-
-下载BT种子 [【禁闻】美媒：10天检测650万人武汉怎么做到的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8237b4590736eeb0c48fc4489e2ad57424fa96ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8237b4590736eeb0c48fc4489e2ad57424fa96ba
 
 下载BT种子 [【环球直击】5月28日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79695473aa91c4e98f7a675510b9f03b3677ecbb.torrent)
 
