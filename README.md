@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yssiCo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Nn2Ink)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約市入夜抗議變暴亂州長宣佈：紐約從今晚開始執行宵禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08e5488f73f1b1394d8232564d54c70cf9488113.torrent)
+
+磁力链接 magnet:?xt=urn:btih:08e5488f73f1b1394d8232564d54c70cf9488113
+
+下载BT种子 [中共抹黑美國遭駁斥安提法被定恐怖組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9782a1641c5888ac26f26d75df549b67c292237a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9782a1641c5888ac26f26d75df549b67c292237a
+
+下载BT种子 [川普促各州長鐵腕鎮暴全國範圍部署軍隊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af7682a26700bbec38840baa3e700cdd8ee11a75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:af7682a26700bbec38840baa3e700cdd8ee11a75
 
 下载BT种子 [【新唐人重播】美國總統川普召開記者會發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2de0d406c3d4b10c39381b00daa8187cc7ecaa87.torrent)
 
@@ -536,18 +548,6 @@
 下载BT种子 [【中國禁聞】5月27日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f4ad0f6fd9edc12606bad63f007a58040a97a64.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f4ad0f6fd9edc12606bad63f007a58040a97a64
-
-下载BT种子 [《石濤.News》「美英加澳聯合聲明譴責‘港版國安法’」英國隨即調整BNO留居英國的限制嚴厲指責破壞「中英聯合聲明」的誠信與責任「大瘟疫將大規模再現中共國全世界將無任何國家出手幫助」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e979b02960d03c3ad751feed2f008fea3736e48c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e979b02960d03c3ad751feed2f008fea3736e48c
-
-下载BT种子 [【瘟疫與中共】法國大東區為何成為重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8865432f0ee103ada9ff20855d21c69ad9fe9a4d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8865432f0ee103ada9ff20855d21c69ad9fe9a4d
-
-下载BT种子 [緊急宣言解除日本社會并無喜悅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874cdc13fbcd0df72d64f131b7763758cd3b1660.torrent)
-
-磁力链接 magnet:?xt=urn:btih:874cdc13fbcd0df72d64f131b7763758cd3b1660
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
