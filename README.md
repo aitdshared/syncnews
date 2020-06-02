@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WN8ecU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xsuCQJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [強調法律與秩序川普：立即行動制止暴力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52c9d69e13876de555fe544ad3b0bf3970a1d458.torrent)
+
+磁力链接 magnet:?xt=urn:btih:52c9d69e13876de555fe544ad3b0bf3970a1d458
+
+下载BT种子 [吉林疫情嚴重屍體被從樓上往下扔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfc90b60844b881eba7f18875757644c6ca81f3c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cfc90b60844b881eba7f18875757644c6ca81f3c
+
+下载BT种子 [【瘟疫與中共】瑞士：被染紅的歐洲樂園.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4794c2a6c2e59f485ab1b2b1d8aadf9c8bd8a8ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4794c2a6c2e59f485ab1b2b1d8aadf9c8bd8a8ef
+
+下载BT种子 [極端組織策劃美國暴動背後鬼影幢幢白宮外抗議活動中出現說中文的指令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4406fec057defe45fb5932f14c5b47839724d113.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4406fec057defe45fb5932f14c5b47839724d113
+
+下载BT种子 [美國多城市宵禁阻暴力專家擔憂病毒感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/174334e9c7ed6e3ea8c993055c32ac590d56183c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:174334e9c7ed6e3ea8c993055c32ac590d56183c
+
+下载BT种子 [洛杉磯市議員收受中國商人賄賂其助手認罪其中國商人身分被關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ea18e8e175738ee394b8740055fc70784dc894.torrent)
+
+磁力链接 magnet:?xt=urn:btih:77ea18e8e175738ee394b8740055fc70784dc894
+
+下载BT种子 [瑞典引渡中共紅通犯喬建軍到美國受審是中共排名第三的在逃官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2115a034b2e81bb42396cea7e34cbb4c6c3ab637.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2115a034b2e81bb42396cea7e34cbb4c6c3ab637
 
 下载BT种子 [《石濤聚焦》「李克強山東盛讚推廣：地攤兒經濟-練攤兒——中共國經濟倒退40年」李克強明言6億人月收千元後再揭真相「習近平稱帝2年中共國勇回李克強農村插隊時代」（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19c7aaaee90748e2d8136c9e0f1b1b4a29a00b6b.torrent)
 
@@ -521,10 +549,6 @@
 
 磁力链接 magnet:?xt=urn:btih:98d78d72100e61858fea53bfc385256dd04028de
 
-下载BT种子 [【529重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2854267b48223b8b7a24b3ee625ef5dd75350537.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2854267b48223b8b7a24b3ee625ef5dd75350537
-
 下载BT种子 [川普何時用終極殺招----港幣美元脫鉤，人民幣瞬間變“軍票”；香港關係法、人權法之外，川普還有多少反制國安法選項（江峰漫談20200527第180期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31d32a03cef6fbd39c991ba27d99c6f59d91c795.torrent)
 
 磁力链接 magnet:?xt=urn:btih:31d32a03cef6fbd39c991ba27d99c6f59d91c795
@@ -532,10 +556,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第六十六回洪錦西岐城大戰」洪錦出兵遇龍吉月老仙翁紅線牽瑤池公主遭俗孽天數欲強不可為「黑焰引魂遮白日青幡擲地畫塵埃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c08af465b3fae39c25eb0482b4348b2eb10bfc99.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c08af465b3fae39c25eb0482b4348b2eb10bfc99
-
-下载BT种子 [💥美國欲驅逐五千“共諜”！美戰機飛入東海，中共防長喊作戰；國安法制裁或超北京預期，專家警告香港失守，重創中國經濟；中央警衛曝高層貪腐；安徽暴群聚發熱；高級施暴：黨的心理學整人術新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d608e642b16d64986df6cdd5159b694d2ee1b5d1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d608e642b16d64986df6cdd5159b694d2ee1b5d1
 
 下载BT种子 [李克强说真话，6亿人工资1000元，经济加速下滑，吃饭问题以两种形式清晰呈现出来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3cb72039db981e874220d63282b42fda78c9fef.torrent)
 
