@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1KQam0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kv78dq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -524,10 +524,6 @@
 下载BT种子 [【百年红祸】被政治运动抹煞的大师—叶企孙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/258e3b6d9e6e7f32ac2863b10a5659aca6b02010.torrent)
 
 磁力链接 magnet:?xt=urn:btih:258e3b6d9e6e7f32ac2863b10a5659aca6b02010
-
-下载BT种子 [長期審查保守言論川普將監管社交媒體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/445cc566a5a7a0be3476031d877a926c8bd72d13.torrent)
-
-磁力链接 magnet:?xt=urn:btih:445cc566a5a7a0be3476031d877a926c8bd72d13
 
 下载BT种子 [【禁闻】美媒：10天检测650万人武汉怎么做到的.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8237b4590736eeb0c48fc4489e2ad57424fa96ba.torrent)
 
