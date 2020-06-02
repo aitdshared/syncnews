@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rIKAPY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CMovn5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中印邊境衝突中共軍人被爆頭黨媽不理.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9e51fc1c1f8741a5766ebab36c7a576740b40a8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9e51fc1c1f8741a5766ebab36c7a576740b40a8
+
+下载BT种子 [🔥美國騷亂背後中共鬼影頻現🛎佛洛伊德事件驚見中美警察對比📌【微視頻】李文亮遺孀給美國上課❗「地攤經濟」重啓惠民還是維穩？😱中印衝突中共軍人被爆頭黨媽不理【中國禁聞】6月1日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35481ef1fd621b3b14411f701fd245e4ba186c6c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:35481ef1fd621b3b14411f701fd245e4ba186c6c
+
+下载BT种子 [弗洛伊德事件網友驚見中美警察對比.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50157a90806418ff25dc29d586634fc6bf6a6046.torrent)
+
+磁力链接 magnet:?xt=urn:btih:50157a90806418ff25dc29d586634fc6bf6a6046
+
+下载BT种子 [【微视频】李文亮遗孀给美国上课：反共第一.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5c6d19026d5a27561dfe678e19d73a906b8a208.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5c6d19026d5a27561dfe678e19d73a906b8a208
 
 下载BT种子 [美國警察下跪？華春瑩、胡錫進、小粉紅「復仇者聯盟」，齊攻風景線；中國地攤經濟又回來囉！山東狂風暴雨，民眾要多備糧食；金三胖在中共手裡？「死亡代言人」成龍接單香港國安法！【新聞看點李沐陽06.01】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39a3e933c2e7add86c3d52a0c684365999a3cffd.torrent)
 
@@ -497,25 +513,9 @@
 
 磁力链接 magnet:?xt=urn:btih:258e3b6d9e6e7f32ac2863b10a5659aca6b02010
 
-下载BT种子 [禁中共用學生竊密美國政府國會新動作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8feb4d8888a041e67622b6d4f4be32640f38729.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f8feb4d8888a041e67622b6d4f4be32640f38729
-
-下载BT种子 [弗洛伊德案引發抗議川普促司法部深入調查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8315d2d5cbf8828991382263e84388011574d945.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8315d2d5cbf8828991382263e84388011574d945
-
 下载BT种子 [長期審查保守言論川普將監管社交媒體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/445cc566a5a7a0be3476031d877a926c8bd72d13.torrent)
 
 磁力链接 magnet:?xt=urn:btih:445cc566a5a7a0be3476031d877a926c8bd72d13
-
-下载BT种子 [俄羅斯動物園疫情期迎來動物新生潮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc6431d960d65ddd82fcc9e3e81b5fc2ef360c5e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc6431d960d65ddd82fcc9e3e81b5fc2ef360c5e
-
-下载BT种子 [川普簽發行政令限制推特臉書等社交媒體利用「網絡平臺」來表達政治偏見.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db824e926597a568cc4505b59f8fd476f996f600.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db824e926597a568cc4505b59f8fd476f996f600
 
 下载BT种子 [【禁闻】美拟驱逐数千名中共军校背景在美留学生.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/970819a084300581f874d26b8d3f484d20b58749.torrent)
 
