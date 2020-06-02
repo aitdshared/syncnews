@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ie3yom)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SmY5cq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【62重播】總統蔡英文視察航特空降訓練中心傘兵現場實施跳塔訓練.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1463c6224fde2ddc5fe7d45e9662d433bf890a79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1463c6224fde2ddc5fe7d45e9662d433bf890a79
 
 下载BT种子 [【62重播】台海巡署首艘4000噸巡防艦「嘉義艦」下水典禮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/adbfdac4d059a8fdc5580bcb5ff5dd2c53d8ce16.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [砸毁东方之珠！习近平复仇成功？唯一反对票，谁是那个勇士？李克强记者会遭控制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1bd9f207d8d82a08f17275985fea2899ce7f312f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1bd9f207d8d82a08f17275985fea2899ce7f312f
-
-下载BT种子 [《石濤聚焦》「日本召見中共國大使可能拒絕習近平以國賓身份訪日」本是確立習近平國際社會地位中極為重要的一環「很可能終身也無可能了」（2805）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6115ef5094c2a28380f955ff5ca3c17108f08fed.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6115ef5094c2a28380f955ff5ca3c17108f08fed
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
