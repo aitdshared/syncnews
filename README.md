@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xsuCQJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2RHmvZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普握聖經總統教堂前-宣稱保衛美國引爭議」所有民主黨州長反對川普動用軍隊平息騷亂「1807年反暴亂法」給予川普絕對權力（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/520cd0bbebc8b0ea6e0eb7ef878b208529967018.torrent)
+
+磁力链接 magnet:?xt=urn:btih:520cd0bbebc8b0ea6e0eb7ef878b208529967018
 
 下载BT种子 [強調法律與秩序川普：立即行動制止暴力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52c9d69e13876de555fe544ad3b0bf3970a1d458.torrent)
 
@@ -541,10 +545,6 @@
 
 磁力链接 magnet:?xt=urn:btih:0fecd1387b059575328ef43592dd7f96f0342e24
 
-下载BT种子 [【529重播】台立法院長游錫堃宣讀朝野共同聲明！救援港人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/efb2686d3205a16894a4cdd51877b66b7f99ee2a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:efb2686d3205a16894a4cdd51877b66b7f99ee2a
-
 下载BT种子 [【重播】中華民國總統蔡英文挺香港參訪銅鑼灣書店.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98d78d72100e61858fea53bfc385256dd04028de.torrent)
 
 磁力链接 magnet:?xt=urn:btih:98d78d72100e61858fea53bfc385256dd04028de
@@ -553,25 +553,9 @@
 
 磁力链接 magnet:?xt=urn:btih:31d32a03cef6fbd39c991ba27d99c6f59d91c795
 
-下载BT种子 [《濤哥侃封神》「封神演義第六十六回洪錦西岐城大戰」洪錦出兵遇龍吉月老仙翁紅線牽瑤池公主遭俗孽天數欲強不可為「黑焰引魂遮白日青幡擲地畫塵埃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c08af465b3fae39c25eb0482b4348b2eb10bfc99.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c08af465b3fae39c25eb0482b4348b2eb10bfc99
-
-下载BT种子 [李克强说真话，6亿人工资1000元，经济加速下滑，吃饭问题以两种形式清晰呈现出来.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3cb72039db981e874220d63282b42fda78c9fef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3cb72039db981e874220d63282b42fda78c9fef
-
-下载BT种子 [掰了！川普不再承认习近平！民调：99%港人反对国安法！美国两党学生领袖联手反共！（老北京茶館第318集20200528）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2975a45c19dc45ead80d2927f16442e68586e69.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b2975a45c19dc45ead80d2927f16442e68586e69
-
 下载BT种子 [【全球新闻】5月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/17529f86348468df2e5e175bd7944a74b38ff947.torrent)
 
 磁力链接 magnet:?xt=urn:btih:17529f86348468df2e5e175bd7944a74b38ff947
-
-下载BT种子 [【中國禁聞】5月28日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/075875516247cfb7a85036bb06806239114ea2b6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:075875516247cfb7a85036bb06806239114ea2b6
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
