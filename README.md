@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t6no4W)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jcwjeO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美交通部：16日起禁止中共國際南方東方海航班機飛往✈️美國」報復中共國不允許美國班機飛往中國「中美衝突升級至—無對話隻對壘」（0306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7c230c70eaff3dbf0dde4fc91ddc4b55c43bd55.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f7c230c70eaff3dbf0dde4fc91ddc4b55c43bd55
 
 下载BT种子 [台灣多黨立委聲援六四：極權是瘟疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2950c0cbb416673acca5f817edaa1edf3ba75872.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [《石濤聚焦》「美國極端核選項瞄準聯繫匯率？」美國如限制香港金管局兌換美元如禁止伊朗及北韓交易美元將成「極端核選項」（extremenuclearoption）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d409895b2be742bfdb39806cbf5ea659ab1a03d6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d409895b2be742bfdb39806cbf5ea659ab1a03d6
-
-下载BT种子 [《石濤.News》「李克強中指按讚同盡現中南海-亂象末日情懷」坦言-6億中共國人月收1000元「習近平的小康只是他嘴裡的說詞」中南海沒人把國策當回事-隨便加減「九二共識與和平統一重回李克強的報告」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/716311aece737c79c96cc5a34d9ccc9a8bc7e518.torrent)
-
-磁力链接 magnet:?xt=urn:btih:716311aece737c79c96cc5a34d9ccc9a8bc7e518
 
 下载BT种子 [《石濤.News》「李克強中指按讚同盡現中南海末日情懷」坦言-6億中共國人月收1000元「習近平的小康只是他嘴裡的」九二共識與和平統一重回報告「中南海沒有人把回家政策當回事」習近平失聰失智.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cda23d38f30dedd872b94a645514a9c4f82a301.torrent)
 
