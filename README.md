@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8LEc26)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NMwTsq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [“大规模断供潮”成焦点，中国楼市根基出现裂痕，金融系统紊乱会随之会出现.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/229b5782ded63e624b7121ff461872a6ea18a2df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:229b5782ded63e624b7121ff461872a6ea18a2df
+
+下载BT种子 [美國騷亂中共炒作網民怒懟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5f3675c76fa95d8125d80923eed13c4630ccf34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5f3675c76fa95d8125d80923eed13c4630ccf34
+
+下载BT种子 [中印邊境對峙局勢可能升級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4377a8e4c685e4c59b52dde568f413e504b62fc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b4377a8e4c685e4c59b52dde568f413e504b62fc
 
 下载BT种子 [川普使用軍隊對付內亂，胡錫進酸文透露中共出兵香港的輿論準備；軍隊國家化與民選政府是國家應對社會極端狀況的必要條件（江峰漫談20200602第183期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/216ac6b9ee601e2b6efafe666e9b7749e7c783cd.torrent)
 
@@ -417,14 +429,6 @@
 
 磁力链接 magnet:?xt=urn:btih:4ee693c3687d0f805b1773e30d7247240c4c97b5
 
-下载BT种子 [川普重大決策轉變一系列措施制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77a7ed4f4a42e7db382568b83014e09fae9fd7b4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77a7ed4f4a42e7db382568b83014e09fae9fd7b4
-
-下载BT种子 [弗洛伊德涉案警被拘國民警衛隊協助止暴亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99f668f20caa089b54482ac63ab2c706b9018c62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99f668f20caa089b54482ac63ab2c706b9018c62
-
 下载BT种子 [《石濤聚焦》「制裁中共國！川普重磅：取消香港特殊待遇」制裁所有與「港版國安法」立法相關中港官員違反中英聯合聲明香港已是「一國一制」（2905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d970e0efdb75e78f45cd333719cce9171da10bfd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d970e0efdb75e78f45cd333719cce9171da10bfd
@@ -548,10 +552,6 @@
 下载BT种子 [【禁闻】中共推香港国安法保政权安全付经济代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb69c1d5260ee8bda0d0c11826dad57b40ffe596.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cb69c1d5260ee8bda0d0c11826dad57b40ffe596
-
-下载BT种子 [中共強推港版國安法國際社會持續譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b2f20810982df72cf70aad381cdce2c66d8c388.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b2f20810982df72cf70aad381cdce2c66d8c388
 
 下载BT种子 [《石濤聚焦》「美國極端核選項瞄準聯繫匯率？」美國如限制香港金管局兌換美元如禁止伊朗及北韓交易美元將成「極端核選項」（extremenuclearoption）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d409895b2be742bfdb39806cbf5ea659ab1a03d6.torrent)
 
