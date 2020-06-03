@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KITrry)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SU4UN2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [❗️張文宏：秋冬定有第二波疫情；香港再爆多人感染，兩警察猝亡；中領館參與美國騷亂，證據越來越多；險境下川普徒步走出白宮，視察被毀教堂，成立平亂“司令部”；中共改造士兵人體基因新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3398a1340862a23b3f82430be9d2be4c4a7a6c8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b3398a1340862a23b3f82430be9d2be4c4a7a6c8
 
 下载BT种子 [《石濤聚焦》「英國首相：將向香港人提供300萬護照」五眼聯盟今日開會要聯手幫香港人移民「似乎要挖空所有香港菁英」留給習近平100年前的—小漁村（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5050ce507065becfc3337881cedd20eafd24c0.torrent)
 
@@ -524,10 +528,6 @@
 下载BT种子 [《石濤聚焦》「《黃帝地母經》預言：2020難過冬三月」太歲庚子年人民多暴卒。春夏水淹流秋冬頻饑渴。高田猶及半晚稻無可割。秦淮足流蕩吳楚多劫奪「更看三冬里山頭起墓田」（3005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c58f98b9b88a7dd017426e54d8de698c2141765.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0c58f98b9b88a7dd017426e54d8de698c2141765
-
-下载BT种子 [超前部署台灣成全球第二核准瑞德西韋7月抵台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3768742ac52004bdc34a7c31d33e8a5d8a49d41f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3768742ac52004bdc34a7c31d33e8a5d8a49d41f
 
 下载BT种子 [（中文字幕版）川普在白宮宣布多項針對中共的重要聲明與制裁方向.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a3882c2de9b3cf88b7758b15cf7ef44ade8f5b.torrent)
 
