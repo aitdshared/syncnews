@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dsRNm5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AOkyga)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [精品打砸搶華人成幫兇；美國騷亂，共產黨鬼影幢幢；六四屠城31年，中共五大本質從沒變（2020.6.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ea8a7ce8a6d89aab3b4a2d001c08b675f5d4902.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5ea8a7ce8a6d89aab3b4a2d001c08b675f5d4902
+
+下载BT种子 [【禁闻】蓬佩奥：让下世纪不再有中共统治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79cf2fa2298cd83269d5eef71cd7c80049096260.torrent)
+
+磁力链接 magnet:?xt=urn:btih:79cf2fa2298cd83269d5eef71cd7c80049096260
 
 下载BT种子 [【全球新闻】6月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9232a084e36d7ef098c1b0263240f5ec63535a57.torrent)
 
@@ -533,10 +541,6 @@
 
 磁力链接 magnet:?xt=urn:btih:8faae6f6d811613f3588aef5f2c4185477e51d53
 
-下载BT种子 [【瘟疫與中共】助中共擴張百年瘟疫再侵西班牙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fefc2b241286564d61750eb5bc5281fc2a942536.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fefc2b241286564d61750eb5bc5281fc2a942536
-
 下载BT种子 [中美全面对决正式开始，中共官员的核心利益不保，北京承压能力触红线，下半年注定不平静.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/634b123b2c6fdac878e7500baa438c81f14777f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:634b123b2c6fdac878e7500baa438c81f14777f0
@@ -548,10 +552,6 @@
 下载BT种子 [（中文字幕版）川普在白宮宣布多項針對中共的重要聲明與制裁方向.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a3882c2de9b3cf88b7758b15cf7ef44ade8f5b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88a3882c2de9b3cf88b7758b15cf7ef44ade8f5b
-
-下载BT种子 [【禁闻】中共推香港国安法保政权安全付经济代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb69c1d5260ee8bda0d0c11826dad57b40ffe596.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cb69c1d5260ee8bda0d0c11826dad57b40ffe596
 
 下载BT种子 [《石濤聚焦》「美國極端核選項瞄準聯繫匯率？」美國如限制香港金管局兌換美元如禁止伊朗及北韓交易美元將成「極端核選項」（extremenuclearoption）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d409895b2be742bfdb39806cbf5ea659ab1a03d6.torrent)
 
