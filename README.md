@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eSC0JO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t6no4W)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [台灣多黨立委聲援六四：極權是瘟疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2950c0cbb416673acca5f817edaa1edf3ba75872.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2950c0cbb416673acca5f817edaa1edf3ba75872
+
+下载BT种子 [中國大陸以外全球感染約648萬人巴西55萬人感染歐洲國境互相開放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55a82f51dcf9bffb73ab71ddef19778af00a9b8f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:55a82f51dcf9bffb73ab71ddef19778af00a9b8f
+
+下载BT种子 [宵禁第四天美國洛杉磯警方加強執法逮捕近三千嫌犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/157fa8a408568b21cb2e8d6e854b475a879faa0a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:157fa8a408568b21cb2e8d6e854b475a879faa0a
+
+下载BT种子 [蓬佩奧會六四倖存者五國外長譴責中共打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/caa3380affa354592b1fd28ded363b1b7921a534.torrent)
+
+磁力链接 magnet:?xt=urn:btih:caa3380affa354592b1fd28ded363b1b7921a534
 
 下载BT种子 [港六四通過國歌法人大常委威脅香港議員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d4ee08b3bcc066b32028c7c09839f5e3f9f0718.torrent)
 
@@ -513,18 +529,6 @@
 
 磁力链接 magnet:?xt=urn:btih:a8e1fe5310e8b805af9f8c6b833c6de94306c037
 
-下载BT种子 [《石濤聚焦》「’港版國安法‘習氏夢想絕滅後破摔之舉怒吼—我是老大！」港區選舉-香港人權法案中美貿易協議蔡英文當選武漢肺炎擴散任志強-鄧樸方公開信「英媒：習近平直接威脅南中國海與台灣」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b42ca7849774b3f33aa64fd4c02246b1adaf4d3d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b42ca7849774b3f33aa64fd4c02246b1adaf4d3d
-
-下载BT种子 [《石濤聚焦》「李文亮妻公開信“文亮是黨員不會抹黑祖國”恰釋習近平信心之源」習近平推出@港版國安法最大信心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/895b543ce8e5a56db2b61a46742958eb24a13928.torrent)
-
-磁力链接 magnet:?xt=urn:btih:895b543ce8e5a56db2b61a46742958eb24a13928
-
-下载BT种子 [👉李克強曝經濟真相，中國過半家庭瀕臨破產；97本是“新界回歸”；川普要撤香港自貿，下逐客令，退世衛；港人急兌美元，撤款中資銀行；明州抗議砸警局，川普稱派兵鎮暴，竟被推特禁言！新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/776d8917f13431c4287506f1fdb6a159f6d61986.torrent)
-
-磁力链接 magnet:?xt=urn:btih:776d8917f13431c4287506f1fdb6a159f6d61986
-
 下载BT种子 [【全球新闻】5月29日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b935ef3aec58d11f3a8cc5c02e267fbbcd1fb2cc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b935ef3aec58d11f3a8cc5c02e267fbbcd1fb2cc
@@ -536,14 +540,6 @@
 下载BT种子 [【重播】川普總統在肯尼迪航天中心講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/699d9cacb3c94ab49a6be21e5859db3ad1fd9bd6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:699d9cacb3c94ab49a6be21e5859db3ad1fd9bd6
-
-下载BT种子 [大反擊！美國將驅逐出境誰？川普怒揭「中共五宗罪」！「愛國」等於當「間諜」？「千人計劃」犧牲品；「學生間諜」即將終結！堅定「小粉紅」來信；走上絕路女留學生，真正死因？【新聞看點李沐陽05.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84836c9e60e6509118ec376af98bc88fd77e9e37.torrent)
-
-磁力链接 magnet:?xt=urn:btih:84836c9e60e6509118ec376af98bc88fd77e9e37
-
-下载BT种子 [【新唐人重播】530台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4414a94d6c6bbd2fd34698a3c261c277023d991e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4414a94d6c6bbd2fd34698a3c261c277023d991e
 
 下载BT种子 [【中國禁聞】5月28日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27141ef4360b110568f626a7b69359a3478a9f92.torrent)
 
@@ -560,10 +556,6 @@
 下载BT种子 [【蕭茗訪談】專訪班農中共政權與香港問題和疫情問題（cc字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f2d7c74d7ac8e2b51e3da395d717b99e51a323.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6f2d7c74d7ac8e2b51e3da395d717b99e51a323
-
-下载BT种子 [《濤哥侃封神》「封神演義第六十七回姜子牙金臺拜將」三十六路人馬已到齊八十歲子牙金台拜將「夢入熊羆方實地年登耄耋始朝天」上集.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8642c06b41027cecb0209e25c9744847b806ea91.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8642c06b41027cecb0209e25c9744847b806ea91
 
 下载BT种子 [【重播】川普總統有關中國的重要新聞發布會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a8541f8c740a199a4bc55e120e123c80164019cc.torrent)
 
