@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SApg7M)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/suqy0w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普使用軍隊對付內亂，胡錫進酸文透露中共出兵香港的輿論準備；軍隊國家化與民選政府是國家應對社會極端狀況的必要條件（江峰漫談20200602第183期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/216ac6b9ee601e2b6efafe666e9b7749e7c783cd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:216ac6b9ee601e2b6efafe666e9b7749e7c783cd
+
+下载BT种子 [紐約無政府主義暴徒沿路打砸搶被砸店居民現場看傻眼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58e1a24c020f11b64507c44440e04ad57ff43d53.torrent)
+
+磁力链接 magnet:?xt=urn:btih:58e1a24c020f11b64507c44440e04ad57ff43d53
 
 下载BT种子 [罢免习近平录音流出！党放蠢招：撕毁协议、挑动美国民情！李克强练摊，习李终闹掰！（老北京茶馆第322集20200602）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e58bc9a9a09c2ea076c6a99c6f63090aaa1d255.torrent)
 
@@ -521,10 +529,6 @@
 
 磁力链接 magnet:?xt=urn:btih:fefc2b241286564d61750eb5bc5281fc2a942536
 
-下载BT种子 [【禁闻】川普：取消香港特别待遇退出世卫组织.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/013f27ad83827d0568795b24ca11cb802393a86b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:013f27ad83827d0568795b24ca11cb802393a86b
-
 下载BT种子 [中美全面对决正式开始，中共官员的核心利益不保，北京承压能力触红线，下半年注定不平静.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/634b123b2c6fdac878e7500baa438c81f14777f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:634b123b2c6fdac878e7500baa438c81f14777f0
@@ -544,10 +548,6 @@
 下载BT种子 [【禁闻】中共推香港国安法保政权安全付经济代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb69c1d5260ee8bda0d0c11826dad57b40ffe596.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cb69c1d5260ee8bda0d0c11826dad57b40ffe596
-
-下载BT种子 [黎智英：留在香港抵制中共支持美國制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18e6d6ebc9fe300b48cdaba9909c8023fa2555cc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:18e6d6ebc9fe300b48cdaba9909c8023fa2555cc
 
 下载BT种子 [中共強推港版國安法國際社會持續譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b2f20810982df72cf70aad381cdce2c66d8c388.torrent)
 
