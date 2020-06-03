@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kTmrUU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gyoeWa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國解密】美中處於“新冷戰”習近平表示中共必須備戰中共加強對香港的控制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74433079e4052c4b1b882513a59a47dc5dc050a0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:74433079e4052c4b1b882513a59a47dc5dc050a0
+
+下载BT种子 [日本國際戰略家：在8月法令交付前香港恐怕會持續發生流血事件應聯合力量救港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4c299a5c6e5327868f52aad2d897f3fa95e60e9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4c299a5c6e5327868f52aad2d897f3fa95e60e9
 
 下载BT种子 [疫情增勢迅猛巴西與中共關係何去何從.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9087de951e7395fa031a75b0c3d1d91e42706329.torrent)
 
