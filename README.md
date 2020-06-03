@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VnYdma)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ww2dQW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d76ebd082b2445d119097edeb552278bddc64873
 
 下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59b22f95e0db18697fb7586cbbb32d945ed02ab4.torrent)
 
