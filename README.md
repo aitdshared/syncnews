@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4xHEEy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xjAOd4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【現場實拍】紐約搶劫團伙入室知名連鎖鞋店出門即被警方逮捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d3e8e07c939c0528e7f66a7b2bfc99d42abcca9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0d3e8e07c939c0528e7f66a7b2bfc99d42abcca9
 
 下载BT种子 [【中國禁聞】6月2日完整版(字幕).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ba6b4d1910879f7616ad2b76b4f1a47277bb092.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [《石濤聚焦》「美國極端核選項瞄準聯繫匯率？」美國如限制香港金管局兌換美元如禁止伊朗及北韓交易美元將成「極端核選項」（extremenuclearoption）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d409895b2be742bfdb39806cbf5ea659ab1a03d6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d409895b2be742bfdb39806cbf5ea659ab1a03d6
-
-下载BT种子 [《石濤.News》「李克強中指按讚同盡現中南海末日情懷」坦言-6億中共國人月收1000元「習近平的小康只是他嘴裡的」九二共識與和平統一重回報告「中南海沒有人把回家政策當回事」習近平失聰失智.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cda23d38f30dedd872b94a645514a9c4f82a301.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7cda23d38f30dedd872b94a645514a9c4f82a301
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
