@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BZejZs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zxB47e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59b22f95e0db18697fb7586cbbb32d945ed02ab4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:59b22f95e0db18697fb7586cbbb32d945ed02ab4
 
 下载BT种子 [【禁闻】“劣质口罩”惹祸中国熔喷布价暴跌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31f182edf469e48c3a8e573d84b5545677744517.torrent)
 
@@ -372,10 +376,6 @@
 下载BT种子 [【Jason快評】川普最新對中共政策力度剖析；「軍民融合」機構的定義是什麼？美國真的開始限制中國人到美留學了嗎？熱點互動05302020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ee693c3687d0f805b1773e30d7247240c4c97b5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4ee693c3687d0f805b1773e30d7247240c4c97b5
-
-下载BT种子 [「決戰黃金週」罷免韓國瑜遊行天天登場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c55e1d07468b8dc4c145060d001bf3a20d6ba63.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c55e1d07468b8dc4c145060d001bf3a20d6ba63
 
 下载BT种子 [川普重大決策轉變一系列措施制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77a7ed4f4a42e7db382568b83014e09fae9fd7b4.torrent)
 
