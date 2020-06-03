@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xjAOd4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/giaeL5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「中共國留學生「袁宏睿」西雅圖參與“示威”搶得Gucci手袋網上炫耀」我愛共產黨更熱愛我的祖國母親美國人還欠我們中國很多賬沒還「FBI網站貼出舉報告示」（0306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/213864c0639f527984135e7ec6917c051eaed725.torrent)
+
+磁力链接 magnet:?xt=urn:btih:213864c0639f527984135e7ec6917c051eaed725
 
 下载BT种子 [【現場實拍】紐約搶劫團伙入室知名連鎖鞋店出門即被警方逮捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d3e8e07c939c0528e7f66a7b2bfc99d42abcca9.torrent)
 
@@ -528,10 +532,6 @@
 下载BT种子 [《石濤.News》「川普：昨晚遭遇了‘專業組織的抗議者攻擊’我一直在白宮裡面注視著一切」川普宣布懲罰中共「港版國安法」同時美國多地出現“反川普要呼吸燒警車砸警局”（3005）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60c0eafd774ac6e66e8b6d15f264e6a33e4e2e80.torrent)
 
 磁力链接 magnet:?xt=urn:btih:60c0eafd774ac6e66e8b6d15f264e6a33e4e2e80
-
-下载BT种子 [英國出手了！新時代「大逃港」即將來臨？290萬港人可申請英國公民；吉林公安大數據秘件曝光；巴西被收購？中共大使向巴西宣戰，新挖墓穴數不清；澳洲朝野反共，唯獨奇葩維州門戶開【新聞看點李沐陽05.30】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cde39bd79e535827b50c03468318594705b59365.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cde39bd79e535827b50c03468318594705b59365
 
 下载BT种子 [【重播】川普總統與行業高管：關於重啓經濟的圓桌會議（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98b8062314d446e85a09432f1c1afc81532f8adb.torrent)
 
