@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NMwTsq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zoiLPV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【63重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3139869be41dc5796dbfbd35cc0d75da70e980b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c3139869be41dc5796dbfbd35cc0d75da70e980b
 
 下载BT种子 [“大规模断供潮”成焦点，中国楼市根基出现裂痕，金融系统紊乱会随之会出现.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/229b5782ded63e624b7121ff461872a6ea18a2df.torrent)
 
@@ -520,10 +524,6 @@
 下载BT种子 [《石濤聚焦》補充更新—川普：北京「讓香港的自由窒息是“香港中國全世界人民的悲劇”」今天的決定影響美國與香港達成的全面協議「引渡條約出口管控技術」（2905）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d845ad15437f9d108a95c80648cb1c8d9b67154d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d845ad15437f9d108a95c80648cb1c8d9b67154d
-
-下载BT种子 [【禁闻】打击渗透美拟取消3000中国留学生签证.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd13269a68494ba54580138a8c54d1946fb16030.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fd13269a68494ba54580138a8c54d1946fb16030
 
 下载BT种子 [香港！特朗普强势出手。李克强三招暗击习近平！说漏嘴轰动海内外，一指禅功夫了得.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8faae6f6d811613f3588aef5f2c4185477e51d53.torrent)
 
