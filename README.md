@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zoiLPV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T3xXyK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新闻】6月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9232a084e36d7ef098c1b0263240f5ec63535a57.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9232a084e36d7ef098c1b0263240f5ec63535a57
 
 下载BT种子 [【63重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3139869be41dc5796dbfbd35cc0d75da70e980b.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [（中文字幕版）川普在白宮宣布多項針對中共的重要聲明與制裁方向.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88a3882c2de9b3cf88b7758b15cf7ef44ade8f5b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:88a3882c2de9b3cf88b7758b15cf7ef44ade8f5b
-
-下载BT种子 [【禁闻】全球顶尖病毒学家染疫后遗症严重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cdecfada6e2149a04cfc0d52ba919123bcae046.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1cdecfada6e2149a04cfc0d52ba919123bcae046
 
 下载BT种子 [【禁闻】中共推香港国安法保政权安全付经济代价.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb69c1d5260ee8bda0d0c11826dad57b40ffe596.torrent)
 
