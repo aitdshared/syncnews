@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zk4dBU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5wvrXV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普服用奎寧訪武漢病毒媒體大批身體健康甚好」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d25b3a42847558bfd5ad6b680abeac358ea2674c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d25b3a42847558bfd5ad6b680abeac358ea2674c
 
 下载BT种子 [《石濤.News》「震驚：足壇首富-郝海東攜妻葉釗穎-羽壇一姐：宣布中共與中共國「非法必滅亡」」微博微信被关闭现居西班牙「亲手粉碎“爱国体育”“为国争光”」2020天滅中共在劫難逃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb514e6ac9a6aeaf76f320c39d10d2e8ffec0c75.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】国安法加速港人移民潮“蓝丝”也想跑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27965243edb2106603a600170539c2bab395674f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27965243edb2106603a600170539c2bab395674f
-
-下载BT种子 [【禁闻】吉林防疫文件泄密：大数据监控无处不在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13417a33b4fe53aebe4237ac9153e762963466b2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:13417a33b4fe53aebe4237ac9153e762963466b2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
