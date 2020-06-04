@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rojlcc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fDs21F)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [無懼國安法港人遍地悼六四盼中國人走出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d1bbacb49ed121b66e16827ba10b9b007a91cab.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2d1bbacb49ed121b66e16827ba10b9b007a91cab
 
 下载BT种子 [泛民議員默哀悼六四支聯會堅持維園點燭光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/441e50b62b0de3fcd146c7bb4379997e8aef370a.torrent)
 
@@ -609,17 +613,9 @@
 
 磁力链接 magnet:?xt=urn:btih:27965243edb2106603a600170539c2bab395674f
 
-下载BT种子 [【禁闻】香港国安法加深中英裂痕英国会改变对华政策吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7edca4f6e2d92ecc5a3830af999caf7e1e74c5b8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7edca4f6e2d92ecc5a3830af999caf7e1e74c5b8
-
 下载BT种子 [【禁闻】吉林防疫文件泄密：大数据监控无处不在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13417a33b4fe53aebe4237ac9153e762963466b2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:13417a33b4fe53aebe4237ac9153e762963466b2
-
-下载BT种子 [习近平渴望一场战争？共军入侵印度遭生俘！警察倒着读党报。美国民众抗议升级.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2527af7f4733739f635f3591b85c5610ae726448.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2527af7f4733739f635f3591b85c5610ae726448
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
