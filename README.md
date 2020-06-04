@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OVWaFx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DkY8mG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】莫忘「六四」全球網上紀念活動場面更盛大民運人士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e74522bc43306b439da027a7473c0670d0bf2a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e74522bc43306b439da027a7473c0670d0bf2a3
+
+下载BT种子 [【微視頻】美國街頭ANTIFA與巴黎公社的流氓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60b6d5ff1dfbcb2491a9a38f359da07fe7709c03.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60b6d5ff1dfbcb2491a9a38f359da07fe7709c03
+
+下载BT种子 [【禁聞】世衛要切割？指中共拖延至疫情加重200倍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63e8258f551a23844b53e613553bb2bda6f66362.torrent)
+
+磁力链接 magnet:?xt=urn:btih:63e8258f551a23844b53e613553bb2bda6f66362
+
+下载BT种子 [【禁聞】「地攤經濟」能救誰？李克強沒料到的困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/653fbd749ab833f791cae67722036c587585fe0e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:653fbd749ab833f791cae67722036c587585fe0e
+
+下载BT种子 [【禁聞】回擊中共限航令川普政府禁中國客機飛美.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c5f8b496ca372220dcc59fbf002567db397aa37f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c5f8b496ca372220dcc59fbf002567db397aa37f
 
 下载BT种子 [川普的内外战争;美国总统有动用军队镇压国内骚乱的权力吗(政论天下第176集20200603)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e39bd97836f4c518b2f690458e27d06b3375bcc.torrent)
 
@@ -584,18 +604,6 @@
 下载BT种子 [【严真点评】外交部大实话：川普向中共开战中南海措手不及.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff20c90189ac039f711d8a3531fcae3d948e0ff9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ff20c90189ac039f711d8a3531fcae3d948e0ff9
-
-下载BT种子 [【Jason快評】川普最新對中共政策力度剖析；「軍民融合」機構的定義是什麼？美國真的開始限制中國人到美留學了嗎？熱點互動05302020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ee693c3687d0f805b1773e30d7247240c4c97b5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4ee693c3687d0f805b1773e30d7247240c4c97b5
-
-下载BT种子 [【重播】川普總統與行業高管：關於重啓經濟的圓桌會議（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98b8062314d446e85a09432f1c1afc81532f8adb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98b8062314d446e85a09432f1c1afc81532f8adb
-
-下载BT种子 [【重播】川普總統在肯尼迪航天中心講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/699d9cacb3c94ab49a6be21e5859db3ad1fd9bd6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:699d9cacb3c94ab49a6be21e5859db3ad1fd9bd6
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
