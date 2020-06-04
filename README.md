@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/00hAoB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wnRKVI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月3日完整字幕版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a6ffa56b579aa8b51b584f44267742fb6668c1e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0a6ffa56b579aa8b51b584f44267742fb6668c1e
 
 下载BT种子 [【环球直击】6月3日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c97b99efd21cc3abcd7e667b24b0d0bc2ed2b04.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【美國思想領袖】中國問題分析師章家敦：中共垮台一定會發生！當世界關注疫情大流行時，中共軍隊為何變得日益好戰？中共已惹怒了美國領導層和人民，不管誰當選，都會沉重打擊中共！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e92ea006a8058b311ce6476e8361a0460586b75.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6e92ea006a8058b311ce6476e8361a0460586b75
-
-下载BT种子 [《石濤聚焦》「成龍代表周星馳周潤發等藝人支持‘港版國安法’張國榮梅艷芳赫然出現微博」習近平-中共與鬼同行？找鬼上身？還是已入地獄？「文宣力挺習總充實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/339177cfa118617fae50ca5fef1983642c44d60e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:339177cfa118617fae50ca5fef1983642c44d60e
 
 下载BT种子 [《石濤.News》「川普發佈：正在發生騷亂的組織者為恐怖組織」中共宣布「國安法」當日美國超過10個州30多城市爆發騷亂「打砸搶燒」NIKE蘋果LV店被砸搶「中共黨旗現街頭」共黨美國勢力殊死大拼殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c85e8d9fc959fde0cbcc6f487ab56d92e6e980e.torrent)
 
