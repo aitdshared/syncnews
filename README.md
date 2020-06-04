@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UWrpax)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rojlcc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [泛民議員默哀悼六四支聯會堅持維園點燭光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/441e50b62b0de3fcd146c7bb4379997e8aef370a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:441e50b62b0de3fcd146c7bb4379997e8aef370a
+
+下载BT种子 [六四前中共草木皆兵陳雲飛網上發言被抓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/abcf2d277d67038cada5fea516016a0870847210.torrent)
+
+磁力链接 magnet:?xt=urn:btih:abcf2d277d67038cada5fea516016a0870847210
+
+下载BT种子 [台灣朝野悼六四：「中國一年只有364天」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae71f5a807a4bd6d898374d14a981aa72013eaed.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae71f5a807a4bd6d898374d14a981aa72013eaed
+
+下载BT种子 [港立法會混亂中三讀國歌法12號實施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb4ebb520252fd9f14d0e6bece781124a8ae57d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb4ebb520252fd9f14d0e6bece781124a8ae57d2
+
+下载BT种子 [除中國大陸外全球約660萬人美俄互援呼吸機德推1300億振興計劃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d036de4dd32b06e1f5aa08daaf68aa4f6023b9ae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d036de4dd32b06e1f5aa08daaf68aa4f6023b9ae
 
 下载BT种子 [六四事件31週年美政要籲中共公開真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d58024a297f8b0ab7685899a3a570e238b247296.torrent)
 
@@ -597,29 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:13417a33b4fe53aebe4237ac9153e762963466b2
 
-下载BT种子 [【禁闻】5月31日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cf566c31897bf8b1e4d1686d66bf83e9784db44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9cf566c31897bf8b1e4d1686d66bf83e9784db44
-
 下载BT种子 [习近平渴望一场战争？共军入侵印度遭生俘！警察倒着读党报。美国民众抗议升级.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2527af7f4733739f635f3591b85c5610ae726448.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2527af7f4733739f635f3591b85c5610ae726448
-
-下载BT种子 [【中国禁闻】5月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15c866523f51f70209ee847d7eb511b3737df563.torrent)
-
-磁力链接 magnet:?xt=urn:btih:15c866523f51f70209ee847d7eb511b3737df563
-
-下载BT种子 [【美國思想領袖】中國問題分析師章家敦：中共垮台一定會發生！當世界關注疫情大流行時，中共軍隊為何變得日益好戰？中共已惹怒了美國領導層和人民，不管誰當選，都會沉重打擊中共！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e92ea006a8058b311ce6476e8361a0460586b75.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e92ea006a8058b311ce6476e8361a0460586b75
-
-下载BT种子 [《石濤.News》「川普發佈：正在發生騷亂的組織者為恐怖組織」中共宣布「國安法」當日美國超過10個州30多城市爆發騷亂「打砸搶燒」NIKE蘋果LV店被砸搶「中共黨旗現街頭」共黨美國勢力殊死大拼殺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9c85e8d9fc959fde0cbcc6f487ab56d92e6e980e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9c85e8d9fc959fde0cbcc6f487ab56d92e6e980e
-
-下载BT种子 [【环球直击】5月31日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e32e382f1730bf6789ba7265cdffa75b7dd4ada2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e32e382f1730bf6789ba7265cdffa75b7dd4ada2
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
