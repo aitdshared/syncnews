@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DkY8mG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FTUwIX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [天真的要变了，郝海东宣读“新中国联邦”建国宣言，大时代造就真英雄.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae1a2ac8b541d14fa82deee80bb2e1d737be45f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae1a2ac8b541d14fa82deee80bb2e1d737be45f2
 
 下载BT种子 [【禁聞】莫忘「六四」全球網上紀念活動場面更盛大民運人士.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e74522bc43306b439da027a7473c0670d0bf2a3.torrent)
 
