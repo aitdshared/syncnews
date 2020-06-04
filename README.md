@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sHjCDb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zk4dBU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「震驚：足壇首富-郝海東攜妻葉釗穎-羽壇一姐：宣布中共與中共國「非法必滅亡」」微博微信被关闭现居西班牙「亲手粉碎“爱国体育”“为国争光”」2020天滅中共在劫難逃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb514e6ac9a6aeaf76f320c39d10d2e8ffec0c75.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb514e6ac9a6aeaf76f320c39d10d2e8ffec0c75
 
 下载BT种子 [《石濤.News》「震驚：足壇首富-郝海東攜妻葉釗穎-羽壇一姐：宣布中共與中共國「非法必滅亡」」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3faa1c96589e50bcef48facba9c5d89d1d1161c3.torrent)
 
@@ -604,10 +608,6 @@
 下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第十回第十回姬伯燕山收雷震「天數已定斷不可逃徒自多事」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a275f0ddc87edb61e4058e83a7c76de39d5eee97.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a275f0ddc87edb61e4058e83a7c76de39d5eee97
-
-下载BT种子 [【禁闻】李克强称6亿人月收入千元释复杂信号.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9ea1d3f808aadb7f04cd7182eac3b421d6d705.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7d9ea1d3f808aadb7f04cd7182eac3b421d6d705
 
 下载BT种子 [【禁闻】国安法加速港人移民潮“蓝丝”也想跑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27965243edb2106603a600170539c2bab395674f.torrent)
 
