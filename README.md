@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VF62oh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dVGp4t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [自由雕塑公園辦紀念活動悼六四死難者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d75f0f0d45b088062db03854a46ab2849ab0ccf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8d75f0f0d45b088062db03854a46ab2849ab0ccf
+
+下载BT种子 [「美國航空」增航班股價漲東京奧運或簡化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1199400a34fd2311557c65ee2f39ec907cc6b3c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1199400a34fd2311557c65ee2f39ec907cc6b3c
 
 下载BT种子 [美國會推「香港自治法案」金融業臨抉擇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c65b515640d23f19db8de7b0295bc13a1b8ffedf.torrent)
 
@@ -616,10 +624,6 @@
 下载BT种子 [美國示威者被抓後跟警察要求合照美國警察現場做出不可思議的舉動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46a35d0ab3994998d28e7f6a770683ca35c6fe0d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:46a35d0ab3994998d28e7f6a770683ca35c6fe0d
-
-下载BT种子 [疑因轉發「救香港」訊息廣東多名維權人失聯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/53a7067126a85365f1600a7a653ad907c5ecfd84.torrent)
-
-磁力链接 magnet:?xt=urn:btih:53a7067126a85365f1600a7a653ad907c5ecfd84
 
 下载BT种子 [30年來首次香港支聯會六四悼念活動被禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/801adb92a7bdc58a84a4c70d9509413a6303bc44.torrent)
 
