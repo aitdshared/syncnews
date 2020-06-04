@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wh9V7F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ys0bQb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李克強打臉，習近平反擊？地攤經濟火了！6億人月入千元是什麼概念？中國已經基本全面小康了嗎？Jason財經冷眼熱點互動06042020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e46c75a24d51c4194aae5c44b5f4846afed239a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e46c75a24d51c4194aae5c44b5f4846afed239a6
 
 下载BT种子 [【64重播】六·四紀錄片《六月的黑夜》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/528c5cc4578975f842f29e72561eddb49d592c13.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [习近平与彭丽媛分居,与李克强矛盾公开化美国骚乱背后的组织者(政论天下第175集20200531)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b81891257d7dcfdd03d9a555f39dc2ec9bfab377.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b81891257d7dcfdd03d9a555f39dc2ec9bfab377
-
-下载BT种子 [人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？美国阴暗面里的华人思维（老北京茶館第320集20200531）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15297159f6e0bf9797cf1c0d12a3157362f01773.torrent)
-
-磁力链接 magnet:?xt=urn:btih:15297159f6e0bf9797cf1c0d12a3157362f01773
 
 下载BT种子 [【禁闻】5月31日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e32560b8500dba66712ad775e314ae322768f75.torrent)
 
