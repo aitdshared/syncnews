@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sqoBOO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VF62oh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國會推「香港自治法案」金融業臨抉擇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c65b515640d23f19db8de7b0295bc13a1b8ffedf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c65b515640d23f19db8de7b0295bc13a1b8ffedf
+
+下载BT种子 [韓國機器人調酒師製作雞尾酒成新時尚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecd1b16428e88c176874718f6709cfad51900879.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ecd1b16428e88c176874718f6709cfad51900879
+
+下载BT种子 [郝海東宣布推翻共產黨成立新中國聯邦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3a99d258fdee7f5465ed7d74379d06138646154.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c3a99d258fdee7f5465ed7d74379d06138646154
+
+下载BT种子 [川普頒行政令：國際宗教自由納入美國外交.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06b4d2249a3944603059be3c379ba101c2e77286.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06b4d2249a3944603059be3c379ba101c2e77286
 
 下载BT种子 [《石濤聚焦》「中央黨校教授蔡霞：中共已成殭屍必須拋棄」習近平是黑幫老大活生生把一個黨一個國家能死了！「中共國將自由落體式崩潰」（0406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6bbad33675940f4f7a2abd0ca33c67c3f04e8b1.torrent)
 
@@ -612,14 +628,6 @@
 下载BT种子 [七位前英外相籲譴責中共蓬佩奧揭威脅本質.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9635c024bddbb74db36268a10eed2162effc55f7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9635c024bddbb74db36268a10eed2162effc55f7
-
-下载BT种子 [🥊川普重拳反擊美中全面對抗🛫港國安法加速移民潮「藍絲」也想跑❗李克強6億人月入千元釋何信號🔥港國安法加深中英裂痕🇬🇧英或將承認臺灣國際地位😱吉林防疫文件洩密【中國禁聞】20200531完整版(字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e72eecdab63c06a86f46ba51840dde112fea1b86.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e72eecdab63c06a86f46ba51840dde112fea1b86
-
-下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第十回第十回姬伯燕山收雷震「天數已定斷不可逃徒自多事」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a275f0ddc87edb61e4058e83a7c76de39d5eee97.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a275f0ddc87edb61e4058e83a7c76de39d5eee97
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
