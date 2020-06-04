@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fDs21F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sHjCDb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「震驚：足壇首富-郝海東攜妻葉釗穎-羽壇一姐：宣布中共與中共國「非法必滅亡」」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3faa1c96589e50bcef48facba9c5d89d1d1161c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3faa1c96589e50bcef48facba9c5d89d1d1161c3
 
 下载BT种子 [無懼國安法港人遍地悼六四盼中國人走出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d1bbacb49ed121b66e16827ba10b9b007a91cab.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [《濤哥侃封神—整集系列》封神演義全集……第十回第十回姬伯燕山收雷震「天數已定斷不可逃徒自多事」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a275f0ddc87edb61e4058e83a7c76de39d5eee97.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a275f0ddc87edb61e4058e83a7c76de39d5eee97
-
-下载BT种子 [【禁闻】川普重拳反击中共美中进入全面对抗.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7fd2bf9f443c414ace013381a6b99a899243c56b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7fd2bf9f443c414ace013381a6b99a899243c56b
 
 下载BT种子 [【禁闻】李克强称6亿人月收入千元释复杂信号.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9ea1d3f808aadb7f04cd7182eac3b421d6d705.torrent)
 
