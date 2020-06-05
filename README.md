@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eARwrm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jj6GPf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「郝海東‘打倒中共’而叛國習近平最受傷」郝海東的伯樂-薄熙來與王立軍徐明關係甚好成名於大連實德國內尚有家人財產「習近平背信保中共體制遭郝海東“誓死推翻”」（0506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15d5076dcb70d22d1932c4242542bc2a4a945e91.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15d5076dcb70d22d1932c4242542bc2a4a945e91
 
 下载BT种子 [《石濤.News》「郝海東‘打倒中共’而叛國習近平最受傷」郝海東的伯樂-薄熙來與王立軍徐明王健林關係甚好成名成器-薄熙來的大連實德「習近平背信保中共體制郝海東.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f643e0c240c9eb99065a2c005739debe81864a03.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [深度分析：川普宣布恐組的Antifa背後的中共身影；美國內大亂與中共後疫情戰略；香港反送中的示威者與警察與美國究竟有什麼不同？（江峰漫談20200601第182期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43c4f023271cb9caf15c98664bc53c75740185a3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:43c4f023271cb9caf15c98664bc53c75740185a3
-
-下载BT种子 [「地攤經濟」重啓惠民還是維穩？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c9e901f2e9f684c062321a6673a2bc6114bab86.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c9e901f2e9f684c062321a6673a2bc6114bab86
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
