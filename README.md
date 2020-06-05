@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UIajaC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EXky5O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美抗議忽視防疫規定專家警告恐引新爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6591d8dc63e0aba348fff07ef59cb18ef624301e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6591d8dc63e0aba348fff07ef59cb18ef624301e
+
+下载BT种子 [武漢近千萬人核酸檢測「零確診」遭質疑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3024fbea17c56e2a25307b021024f79be3992b46.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3024fbea17c56e2a25307b021024f79be3992b46
 
 下载BT种子 [自由雕塑公園辦紀念活動悼六四死難者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d75f0f0d45b088062db03854a46ab2849ab0ccf.torrent)
 
@@ -617,21 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:1cb6fe72dda4c40c1555e2a5c5d804354d41d358
 
-下载BT种子 [港實業家袁弓夷：美將撤資撤僑抽乾中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e18f7014981e473b43505da976064db8c6a6c67d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e18f7014981e473b43505da976064db8c6a6c67d
-
 下载BT种子 [美國示威者被抓後跟警察要求合照美國警察現場做出不可思議的舉動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46a35d0ab3994998d28e7f6a770683ca35c6fe0d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:46a35d0ab3994998d28e7f6a770683ca35c6fe0d
-
-下载BT种子 [30年來首次香港支聯會六四悼念活動被禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/801adb92a7bdc58a84a4c70d9509413a6303bc44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:801adb92a7bdc58a84a4c70d9509413a6303bc44
-
-下载BT种子 [七位前英外相籲譴責中共蓬佩奧揭威脅本質.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9635c024bddbb74db36268a10eed2162effc55f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9635c024bddbb74db36268a10eed2162effc55f7
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
