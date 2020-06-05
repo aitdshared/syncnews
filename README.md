@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hkCXy2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4pTET0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】弗案警察被訴訪民：追責中共警察難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c17e0b2655b97bc02eb888e8792c1bcc2dd1fccd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c17e0b2655b97bc02eb888e8792c1bcc2dd1fccd
+
+下载BT种子 [【禁聞】李克強撐地攤經濟城管變臉喊商販擺攤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce103855e6717264b2e73d6017170ebd4ddb11eb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ce103855e6717264b2e73d6017170ebd4ddb11eb
+
+下载BT种子 [【禁聞】郝海東宣佈推翻中共成立新中國聯邦中國留學生美國國民衛隊抗議者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12b538560ed9ff5cb7447e09b729e6042e88888e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:12b538560ed9ff5cb7447e09b729e6042e88888e
+
+下载BT种子 [【禁聞】悼「六四」港人不理禁令聚集维園.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/629a8377e9764d8a1819b3b614361593a6e06678.torrent)
+
+磁力链接 magnet:?xt=urn:btih:629a8377e9764d8a1819b3b614361593a6e06678
 
 下载BT种子 [郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久(政论天下第177集20200604)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d3e9972c2fcd0872b896bdad7cc34750ac0fb72.torrent)
 
@@ -612,10 +628,6 @@
 下载BT种子 [美國、香港街頭「亂」，中共輿論大反擊！這裡和那裡的亂有何分別？（文昭談古論今20200601第761期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa03e78933cdea9ddf220cf811d408e5f1e2321f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aa03e78933cdea9ddf220cf811d408e5f1e2321f
-
-下载BT种子 [《石濤聚焦》「中共國忽然停止從美國進口豬肉🐷和大豆」與川普對賭報復——假命題！沒錢了也無其它任何招數——真的！（0106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85ad81f6b2b2ab6409533ccfeb233303921fe538.torrent)
-
-磁力链接 magnet:?xt=urn:btih:85ad81f6b2b2ab6409533ccfeb233303921fe538
 
 下载BT种子 [习近平发文反攻李克强！亲共人士大赞美国飞船？英国决不坐视香港沦陷。美国抗议潮，胞弟发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dae78f40ab0f5af4d59fedd311550fd73a8ceac1.torrent)
 
