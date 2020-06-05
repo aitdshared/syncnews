@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UboPrw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4J4yU0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [[重新上傳]精品打砸搶誰成幫兇？美國騷亂，共產黨鬼影幢幢；31年！中共五大本質從沒變（2020.6.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/885bcea3be50fe776e3d7dc2ff6b8f4c1ea64a8f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:885bcea3be50fe776e3d7dc2ff6b8f4c1ea64a8f
 
 下载BT种子 [罢免习近平录音人现身？中央党校蔡霞六四发声：中共强暴香港人民！郝海东发反共宣言（老北京茶馆第323集20200604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106b1731da16e62b6093a0b7da0b6e1762b47721.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美領館出售在港百億土地重新佈署資產引熱議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1406f883513b0d73d67ac5cfae0ba6ea3a812a7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a1406f883513b0d73d67ac5cfae0ba6ea3a812a7
-
-下载BT种子 [比利時王子染疫王室積極尋求與中共合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8658dd40454b3117de56f38d6e7596ba78d85f92.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8658dd40454b3117de56f38d6e7596ba78d85f92
 
 下载BT种子 [美國抗議不斷演變為暴動川普視為恐怖組織透視極左派ANTIFA.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cb6fe72dda4c40c1555e2a5c5d804354d41d358.torrent)
 
