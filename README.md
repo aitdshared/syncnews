@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uAyB4I)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UboPrw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [罢免习近平录音人现身？中央党校蔡霞六四发声：中共强暴香港人民！郝海东发反共宣言（老北京茶馆第323集20200604）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/106b1731da16e62b6093a0b7da0b6e1762b47721.torrent)
+
+磁力链接 magnet:?xt=urn:btih:106b1731da16e62b6093a0b7da0b6e1762b47721
+
+下载BT种子 [江峰最新MV《人民》—獻給六四紀念日31週年（詞曲：大雄，江峰、大雄演唱）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8f35421e5833a1c0c63859c07862cc486b530e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b8f35421e5833a1c0c63859c07862cc486b530e1
 
 下载BT种子 [美抗議忽視防疫規定專家警告恐引新爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6591d8dc63e0aba348fff07ef59cb18ef624301e.torrent)
 
@@ -617,17 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:8658dd40454b3117de56f38d6e7596ba78d85f92
 
-下载BT种子 [國際串聯拒「華為」英國政府計畫攜手十個民主國家自行研發5G.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9f7192566a4ed2be356ad4ca87642d73abd4480.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9f7192566a4ed2be356ad4ca87642d73abd4480
-
 下载BT种子 [美國抗議不斷演變為暴動川普視為恐怖組織透視極左派ANTIFA.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cb6fe72dda4c40c1555e2a5c5d804354d41d358.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1cb6fe72dda4c40c1555e2a5c5d804354d41d358
-
-下载BT种子 [美國示威者被抓後跟警察要求合照美國警察現場做出不可思議的舉動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46a35d0ab3994998d28e7f6a770683ca35c6fe0d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:46a35d0ab3994998d28e7f6a770683ca35c6fe0d
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
