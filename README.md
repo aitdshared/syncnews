@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IFw2Pj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fgGty0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美國祭出禁飛令中共連夜宣布開放美航班.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2180e7cb1bc635fb7f3cd21d06bb034b7392431.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e2180e7cb1bc635fb7f3cd21d06bb034b7392431
 
 下载BT种子 [江峰最新MV《人民》—獻給六四紀念日31週年（詞曲：大雄；江峰、大雄演唱）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8754e15451533945c9d905df891b2c1e889cd784.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【新唐人重播】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c0b8407d9224a82b180aaa9aba4ccec3939558c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7c0b8407d9224a82b180aaa9aba4ccec3939558c
-
-下载BT种子 [中國大陸外全球確診超629萬人歐洲放寬限制民眾遲疑南美累計1百萬確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452a66eb765d7509ad8a215639d7a7e83f35cd8e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:452a66eb765d7509ad8a215639d7a7e83f35cd8e
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
