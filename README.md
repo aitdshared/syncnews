@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8voSVK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Qiu9dM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🚨解放軍水炮車現香港，國安法威脅下，港人多區同時紀念六四，坐滿維園，高喊香港獨立；郭文貴“建國”，國足名將郝海東“驚艷”登場，公開滅共；防病毒，牡丹江全民檢疫；習李產生裂痕？新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75994573c020fdb3f97bc6a68ae4e3f21df00f30.torrent)
+
+磁力链接 magnet:?xt=urn:btih:75994573c020fdb3f97bc6a68ae4e3f21df00f30
 
 下载BT种子 [《濤哥侃封神》『封神演義第六十八回首陽山夷齊阻兵』伯夷叔齊大義力阻臣伐君只知人理不曉天意拒食周粟盡徒勞金雞嶺再遇奇兵南宮適分心被擒子牙怒斬之（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2918ae6000db4a12501202180ba0ca39a048620e.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「財長陳茂波淚眼汪汪堅稱‘港區國安法無法撼動香港金融中心地位」老實人撒謊之悲劇！港幣-人民幣-美元香港金融中心崩潰必然上海或深圳取代香港「習近平的中國夢誰做過？」（0106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da01222d29cf40eccafffbc3eb071bd492eb7719.torrent)
 
 磁力链接 magnet:?xt=urn:btih:da01222d29cf40eccafffbc3eb071bd492eb7719
-
-下载BT种子 [【禁闻】澳学者中共病毒特别针对人类前所未有.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/30e78baecc90df29cdb87268480b2ce04433facc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:30e78baecc90df29cdb87268480b2ce04433facc
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
