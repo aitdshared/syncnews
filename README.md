@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4pTET0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sjbtqj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月4日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44ad2a17f2610878343852ed6b87f5563c0b401d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:44ad2a17f2610878343852ed6b87f5563c0b401d
 
 下载BT种子 [【禁聞】弗案警察被訴訪民：追責中共警察難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c17e0b2655b97bc02eb888e8792c1bcc2dd1fccd.torrent)
 
@@ -624,22 +628,6 @@
 下载BT种子 [【禁闻】美国骚乱背后中共鬼影频现.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f60f0fcaf325e09cecbf1ac81484091d9a7b4db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0f60f0fcaf325e09cecbf1ac81484091d9a7b4db
-
-下载BT种子 [美國、香港街頭「亂」，中共輿論大反擊！這裡和那裡的亂有何分別？（文昭談古論今20200601第761期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa03e78933cdea9ddf220cf811d408e5f1e2321f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aa03e78933cdea9ddf220cf811d408e5f1e2321f
-
-下载BT种子 [习近平发文反攻李克强！亲共人士大赞美国飞船？英国决不坐视香港沦陷。美国抗议潮，胞弟发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dae78f40ab0f5af4d59fedd311550fd73a8ceac1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dae78f40ab0f5af4d59fedd311550fd73a8ceac1
-
-下载BT种子 [《石濤聚焦》「白宮的總統教堂被放火美國騷亂將改變」現場更現普通話“快走！”國內大肆宣傳「共產主義正在美國取代資本主義」24州40個城市宵禁「驚奇：騷亂中無人用槍警察紛紛與抗議者共祈禱」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5687d024bc3763d7e305a1568dbe0c7cc989681.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5687d024bc3763d7e305a1568dbe0c7cc989681
-
-下载BT种子 [【环球直击】香港支联会六四悼念活动被禁蓬佩奥揭威胁本质比利时王子染疫（6月1日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74b49587c563acdc403d212287d9877dafc32a4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:74b49587c563acdc403d212287d9877dafc32a4b
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
