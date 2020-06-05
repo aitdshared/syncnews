@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4J4yU0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nF1v6w)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「郝大砲」葉昭穎呼籲消滅中共，百度搜索暴漲1,000倍，新中國聯邦成立；蔡霞：中共是黑幫！李克強向習道歉？「殃視」又刷下限！如果中共實行軍管高壓統治，中國人怎麼辦？【新聞看點李沐陽06.04】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/876ac1e2c49f89681d8aae563bd2999f951716f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:876ac1e2c49f89681d8aae563bd2999f951716f4
 
 下载BT种子 [[重新上傳]精品打砸搶誰成幫兇？美國騷亂，共產黨鬼影幢幢；31年！中共五大本質從沒變（2020.6.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/885bcea3be50fe776e3d7dc2ff6b8f4c1ea64a8f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中國大陸外全球確診超629萬人歐洲放寬限制民眾遲疑南美累計1百萬確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/452a66eb765d7509ad8a215639d7a7e83f35cd8e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:452a66eb765d7509ad8a215639d7a7e83f35cd8e
-
-下载BT种子 [美領館出售在港百億土地重新佈署資產引熱議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1406f883513b0d73d67ac5cfae0ba6ea3a812a7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a1406f883513b0d73d67ac5cfae0ba6ea3a812a7
 
 下载BT种子 [美國抗議不斷演變為暴動川普視為恐怖組織透視極左派ANTIFA.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cb6fe72dda4c40c1555e2a5c5d804354d41d358.torrent)
 
