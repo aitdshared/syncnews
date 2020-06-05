@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kpL4VH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/W258MI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】6月4日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63920fee39fc40687dc2e91bd537fbf1ca64c52f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:63920fee39fc40687dc2e91bd537fbf1ca64c52f
+
+下载BT种子 [【环球直击】6月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c5fbc8ae43728b00355fd445db65a7687269332.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3c5fbc8ae43728b00355fd445db65a7687269332
+
+下载BT种子 [【全球新闻】6月4日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7463e0ea78b9f6408d22df496036a73a35b7e277.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7463e0ea78b9f6408d22df496036a73a35b7e277
 
 下载BT种子 [幸灾乐祸的喧嚣过后，中国人面临的是最深刻的痛苦，但别人依旧强大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ed9e95ce292e3baab62feac69bc97367d8d887a.torrent)
 
@@ -613,21 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:57ca1cb9beab776f121af006f722bb75a10834b4
 
-下载BT种子 [紐約市入夜抗議變暴亂州長宣佈：紐約從今晚開始執行宵禁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08e5488f73f1b1394d8232564d54c70cf9488113.torrent)
-
-磁力链接 magnet:?xt=urn:btih:08e5488f73f1b1394d8232564d54c70cf9488113
-
 下载BT种子 [中共抹黑美國遭駁斥安提法被定恐怖組織.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9782a1641c5888ac26f26d75df549b67c292237a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9782a1641c5888ac26f26d75df549b67c292237a
-
-下载BT种子 [川普促各州長鐵腕鎮暴全國範圍部署軍隊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af7682a26700bbec38840baa3e700cdd8ee11a75.torrent)
-
-磁力链接 magnet:?xt=urn:btih:af7682a26700bbec38840baa3e700cdd8ee11a75
-
-下载BT种子 [【新唐人重播】美國總統川普召開記者會發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2de0d406c3d4b10c39381b00daa8187cc7ecaa87.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2de0d406c3d4b10c39381b00daa8187cc7ecaa87
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
