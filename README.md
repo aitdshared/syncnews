@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zii0sp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kdqdVE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美國非裔騷亂部分華人趁火打劫害了誰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412c204dcfdc11a13e24eeb43a89ec9712aacb15.torrent)
+
+磁力链接 magnet:?xt=urn:btih:412c204dcfdc11a13e24eeb43a89ec9712aacb15
 
 下载BT种子 [【禁聞】郝海東宣讀滅共宣言黨媒嚇到緘口.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86ab54ec5bac627e55fb84ec79878cfca06cad1a.torrent)
 
@@ -620,14 +624,6 @@
 下载BT种子 [《石濤聚焦》「川普握聖經總統教堂前-宣稱保衛美國引爭議」所有民主黨州長反對川普動用軍隊平息騷亂「1807年反暴亂法」給予川普絕對權力（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/520cd0bbebc8b0ea6e0eb7ef878b208529967018.torrent)
 
 磁力链接 magnet:?xt=urn:btih:520cd0bbebc8b0ea6e0eb7ef878b208529967018
-
-下载BT种子 [強調法律與秩序川普：立即行動制止暴力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/52c9d69e13876de555fe544ad3b0bf3970a1d458.torrent)
-
-磁力链接 magnet:?xt=urn:btih:52c9d69e13876de555fe544ad3b0bf3970a1d458
-
-下载BT种子 [【瘟疫與中共】瑞士：被染紅的歐洲樂園.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4794c2a6c2e59f485ab1b2b1d8aadf9c8bd8a8ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4794c2a6c2e59f485ab1b2b1d8aadf9c8bd8a8ef
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
