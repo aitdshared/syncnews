@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U4pkk0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e33Brz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】國家安全記者比爾·戈茲：調查病毒起源與美中新冷戰！為何了解病毒真正來源如此重要？世界為何看不懂中共政權的真正性質？中共其實是比蘇聯更老練的對手！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6d88b2d2ac95fb0e79acd16a9ee6d9b1cb3ab5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f6d88b2d2ac95fb0e79acd16a9ee6d9b1cb3ab5
 
 下载BT种子 [🔥罷韓登場！若罷免失敗，韓國瑜將獲“免死金牌”；吉林地攤面臨天價管理費！中國9億人月入不到2千，地方債藏巨雷；一直派人潛伏美國各處，知情人曝中共佈局；郝海東轉戰推特？耿爽卸任新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df7459ca743072de39f6c679c17170384ee308a7.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [听众热线：陳破空激辩亲共人士！港版国安法，与国安有关系吗？习近平一己之私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4af0e0f16f220950bc78782158a3d26e382a08d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4af0e0f16f220950bc78782158a3d26e382a08d0
-
-下载BT种子 [【中國禁聞】6月1日完整字幕版🔥美國騷亂背後中共鬼影頻現🛎佛洛伊德事件驚見中美警察對比📌【微視頻】李文亮遺孀給美國上課❗「地攤經濟」重啓惠民還是維穩？😱中印衝突中共軍人被爆頭黨媽不理.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/73f8a401e013137f3209f01c1751d50134bee1bf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:73f8a401e013137f3209f01c1751d50134bee1bf
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
