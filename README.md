@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xBmaIa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MSAt3y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】6月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b49f84d81f08069c7fd8650e6c43bf5b50ef868c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b49f84d81f08069c7fd8650e6c43bf5b50ef868c
 
 下载BT种子 [【环球直击】6月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0749b758f6bd8c3f2dfa7fa127f3ca264f9c7e0f.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】“劣质口罩”惹祸中国熔喷布价暴跌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31f182edf469e48c3a8e573d84b5545677744517.torrent)
 
 磁力链接 magnet:?xt=urn:btih:31f182edf469e48c3a8e573d84b5545677744517
-
-下载BT种子 [世衛文件顯示中共極力拖延疫情信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/549875a28aa225c714a0f93b01fb947425455ee8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:549875a28aa225c714a0f93b01fb947425455ee8
 
 下载BT种子 [麻州民眾呼籲立刻重啟經濟拋棄共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8c7e38d7ec9758766d40f819d9bc6f8ba84cbbf.torrent)
 
