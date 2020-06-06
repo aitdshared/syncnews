@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9MWpTn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TfPsbv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美司法部調查暴亂前情報官員解析ANTIFA.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fe7b54c37f67da5521a198a2ed8ef76f130e3f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fe7b54c37f67da5521a198a2ed8ef76f130e3f2
+
+下载BT种子 [凡爾賽宮將重開放路易十四締造文化奇跡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d735bbbcc07cbaf33d61202c420b9f2f1ce3ee0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d735bbbcc07cbaf33d61202c420b9f2f1ce3ee0d
+
+下载BT种子 [美5月就業激增川普簽薪資保護靈活法案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb45884bbec89e37f81dde971f128b2f6b291c28.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb45884bbec89e37f81dde971f128b2f6b291c28
+
+下载BT种子 [聯手圍剿中共跨國議會建對華政策聯盟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19bbe4ed283545b1b5645f0906bf675142749bb8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19bbe4ed283545b1b5645f0906bf675142749bb8
+
+下载BT种子 [【新唐人重播】川普總統在Puritan製藥廠發表講話（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00f48bea6285719bb912b636ba1c20ce8b767aad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:00f48bea6285719bb912b636ba1c20ce8b767aad
 
 下载BT种子 [國安法重擊港金融業分析：中共或軟化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b26fdf4271408075446b6bb283aef346c977b9fb.torrent)
 
@@ -605,33 +625,9 @@
 
 磁力链接 magnet:?xt=urn:btih:4794c2a6c2e59f485ab1b2b1d8aadf9c8bd8a8ef
 
-下载BT种子 [極端組織策劃美國暴動背後鬼影幢幢白宮外抗議活動中出現說中文的指令.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4406fec057defe45fb5932f14c5b47839724d113.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4406fec057defe45fb5932f14c5b47839724d113
-
 下载BT种子 [美國多城市宵禁阻暴力專家擔憂病毒感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/174334e9c7ed6e3ea8c993055c32ac590d56183c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:174334e9c7ed6e3ea8c993055c32ac590d56183c
-
-下载BT种子 [洛杉磯市議員收受中國商人賄賂其助手認罪其中國商人身分被關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ea18e8e175738ee394b8740055fc70784dc894.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77ea18e8e175738ee394b8740055fc70784dc894
-
-下载BT种子 [瑞典引渡中共紅通犯喬建軍到美國受審是中共排名第三的在逃官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2115a034b2e81bb42396cea7e34cbb4c6c3ab637.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2115a034b2e81bb42396cea7e34cbb4c6c3ab637
-
-下载BT种子 [《石濤聚焦》「李克強山東盛讚推廣：地攤兒經濟-練攤兒——中共國經濟倒退40年」李克強明言6億人月收千元後再揭真相「習近平稱帝2年中共國勇回李克強農村插隊時代」（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19c7aaaee90748e2d8136c9e0f1b1b4a29a00b6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:19c7aaaee90748e2d8136c9e0f1b1b4a29a00b6b
-
-下载BT种子 [【禁闻】“地摊经济”重启惠民还是维稳？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa93e8732bdfb3e16f12379933f650b8ba4c6ea7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aa93e8732bdfb3e16f12379933f650b8ba4c6ea7
-
-下载BT种子 [紐約暴動抗議犯罪團伙明目張膽沿路砸店搶劫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23f3f44e27f678e80ecba33a60c7872eab31dd2b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23f3f44e27f678e80ecba33a60c7872eab31dd2b
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
