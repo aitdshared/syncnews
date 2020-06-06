@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/auqueF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CcavbA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「666罷免韓國瑜成功鐵桿搭檔議長隨即墜樓亡」震驚全台灣！最後臉書遺言「這回誰輸誰贏？」滿屏皆是韓國瑜「今日最神秘：三組666令人無解」難道真是-666敵基督？（0606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/064f87ebf0a23fc75a56e11902e46323b829baab.torrent)
+
+磁力链接 magnet:?xt=urn:btih:064f87ebf0a23fc75a56e11902e46323b829baab
 
 下载BT种子 [美國商舖被暴力砸搶隔天一名入室搶劫者現身損失慘重的店主卻原諒了他.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80e1cd8d33ecd65afc82c106e8a884923dc1f65a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「英國首相：將向香港人提供300萬護照」五眼聯盟今日開會要聯手幫香港人移民「似乎要挖空所有香港菁英」留給習近平100年前的—小漁村（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d5050ce507065becfc3337881cedd20eafd24c0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2d5050ce507065becfc3337881cedd20eafd24c0
-
-下载BT种子 [【唐靖遠快評】美國騷亂：共產主義輸出革命的「借船出海」；習近平錯學商鞅走入死胡同熱點互動06022020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd7759f3e694a4d0bec1852bd222ba80e7ce6fa6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fd7759f3e694a4d0bec1852bd222ba80e7ce6fa6
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
