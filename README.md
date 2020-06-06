@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0JLBJp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0g5xZX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中共一意孤行英加向港人敞開國門港版國安法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7
 
 下载BT种子 [【禁聞】美國非裔騷亂部分華人趁火打劫害了誰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412c204dcfdc11a13e24eeb43a89ec9712aacb15.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/040bb8faf1d6e3ef7bce081314fa8377c79ab2a3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:040bb8faf1d6e3ef7bce081314fa8377c79ab2a3
-
-下载BT种子 [清洗民主女神像舊金山灣區華人紀念六四.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e2a8e3222b6db0459e2120b15cc5d127e77b13c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3e2a8e3222b6db0459e2120b15cc5d127e77b13c
-
-下载BT种子 [《石濤聚焦》「川普握聖經總統教堂前-宣稱保衛美國引爭議」所有民主黨州長反對川普動用軍隊平息騷亂「1807年反暴亂法」給予川普絕對權力（0206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/520cd0bbebc8b0ea6e0eb7ef878b208529967018.torrent)
-
-磁力链接 magnet:?xt=urn:btih:520cd0bbebc8b0ea6e0eb7ef878b208529967018
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
