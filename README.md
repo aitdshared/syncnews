@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uROBBX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9MWpTn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [國安法重擊港金融業分析：中共或軟化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b26fdf4271408075446b6bb283aef346c977b9fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b26fdf4271408075446b6bb283aef346c977b9fb
 
 下载BT种子 [王滬寧叫板李克強？地攤經濟火速被禁；李克強上演在中國「說實話的代價」；耿爽離職發言人，外交模擬器成歷史；中共民航居然投降了？臉書針對官媒有新動作：大外宣通通貼上標籤！【新聞看點李沐陽06.05】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1559ec433d0816bdc22a8b545c7ddf95ac48b65.torrent)
 
