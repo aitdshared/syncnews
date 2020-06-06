@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9sAvPx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XbSVCM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [突然！习近平不许提“地摊经济”！六四31周年，李克强党内做检查内幕，什么情况？（老北京茶馆第324集20200606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ad9fb4fa59b30d1903b34dc5b8a6c72718be520.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ad9fb4fa59b30d1903b34dc5b8a6c72718be520
 
 下载BT种子 [《濤哥侃封神》「封神演義第六十九回孔宣兵阻金雞嶺」子牙失算黃天化夜襲而死哪吒雷震子相繼被擒金臺拜帥未入商土損兵折將全因少算一難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb3622292f7b85692ba31fbb86ee6bbf6f97fef3.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [麻州民眾呼籲立刻重啟經濟拋棄共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8c7e38d7ec9758766d40f819d9bc6f8ba84cbbf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c8c7e38d7ec9758766d40f819d9bc6f8ba84cbbf
-
-下载BT种子 [單膝下跪擁抱示威者紐約高級警官用善化解仇恨.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24bfdcdff0ff909bdda4d4cfd284cbe007b147ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:24bfdcdff0ff909bdda4d4cfd284cbe007b147ba
 
 下载BT种子 [法餐解封食客如雲印度信用爆跌本週解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/325e51b8aa0a8de6157d849701bb61cbb310542a.torrent)
 
