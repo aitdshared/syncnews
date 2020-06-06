@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zK4EN8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9sAvPx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第六十九回孔宣兵阻金雞嶺」子牙失算黃天化夜襲而死哪吒雷震子相繼被擒金臺拜帥未入商土損兵折將全因少算一難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb3622292f7b85692ba31fbb86ee6bbf6f97fef3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cb3622292f7b85692ba31fbb86ee6bbf6f97fef3
 
 下载BT种子 [【美國思想領袖】國家安全記者比爾·戈茲：調查病毒起源與美中新冷戰！為何了解病毒真正來源如此重要？世界為何看不懂中共政權的真正性質？中共其實是比蘇聯更老練的對手！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6d88b2d2ac95fb0e79acd16a9ee6d9b1cb3ab5.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [紐約示威者到法拉盛警方戒備平靜落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f59de612e006e451ec7b0c44f221a82132d3a3b3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f59de612e006e451ec7b0c44f221a82132d3a3b3
-
-下载BT种子 [听众热线：陳破空激辩亲共人士！港版国安法，与国安有关系吗？习近平一己之私.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4af0e0f16f220950bc78782158a3d26e382a08d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4af0e0f16f220950bc78782158a3d26e382a08d0
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
