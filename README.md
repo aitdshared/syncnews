@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Hwq67O)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vFK8Zf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「罷免韓國瑜高雄市長：投票已經開始」罷免票數門檻-57.5萬韓國瑜坦承面對現實昨晚大批北漂趕回高雄投票下午4點投票結束「絕滅中共勢力在台灣的一切代表」（0506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f1b3d574069c3b85258777ca4bd5dd311f45c2b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6f1b3d574069c3b85258777ca4bd5dd311f45c2b
 
 下载BT种子 [节奏太快，李克强再次让习近平难堪，政治破局从经济困境开始，不变不行了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7d2628f0ce3681250f13b44782a9186d5932c38.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d76ebd082b2445d119097edeb552278bddc64873
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59b22f95e0db18697fb7586cbbb32d945ed02ab4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:59b22f95e0db18697fb7586cbbb32d945ed02ab4
-
-下载BT种子 [【禁闻】“劣质口罩”惹祸中国熔喷布价暴跌.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31f182edf469e48c3a8e573d84b5545677744517.torrent)
-
-磁力链接 magnet:?xt=urn:btih:31f182edf469e48c3a8e573d84b5545677744517
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
