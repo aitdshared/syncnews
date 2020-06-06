@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0JQ82l)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7SPZFb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韓國瑜被罷免成功學者析關鍵原因：跟中共距離有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874d88415738558902820a11cf3ea662b79399f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:874d88415738558902820a11cf3ea662b79399f2
 
 下载BT种子 [疫情下各國重啟經濟美國「羅斯福號」重回部署.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fc9dd8115813ff314d2bf375697ab48b29f174f.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [川普使用軍隊對付內亂，胡錫進酸文透露中共出兵香港的輿論準備；軍隊國家化與民選政府是國家應對社會極端狀況的必要條件（江峰漫談20200602第183期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/216ac6b9ee601e2b6efafe666e9b7749e7c783cd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:216ac6b9ee601e2b6efafe666e9b7749e7c783cd
-
-下载BT种子 [紐約無政府主義暴徒沿路打砸搶被砸店居民現場看傻眼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58e1a24c020f11b64507c44440e04ad57ff43d53.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58e1a24c020f11b64507c44440e04ad57ff43d53
 
 下载BT种子 [蓬佩奧：讓下世紀不再有中共統治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31b82a4d6e6a7a36a8a987440013e77b1df6e55c.torrent)
 
