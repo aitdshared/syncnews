@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nTerzb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xBmaIa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【环球直击】6月5日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0749b758f6bd8c3f2dfa7fa127f3ca264f9c7e0f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0749b758f6bd8c3f2dfa7fa127f3ca264f9c7e0f
+
+下载BT种子 [【全球新闻】6月5日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/700703e8e93b9fbc64ddab42dc01e240e72f3c64.torrent)
+
+磁力链接 magnet:?xt=urn:btih:700703e8e93b9fbc64ddab42dc01e240e72f3c64
 
 下载BT种子 [突然！习近平不许提“地摊经济”！六四31周年，李克强党内做检查内幕，什么情况？（老北京茶馆第324集20200606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ad9fb4fa59b30d1903b34dc5b8a6c72718be520.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [麻州民眾呼籲立刻重啟經濟拋棄共產主義.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8c7e38d7ec9758766d40f819d9bc6f8ba84cbbf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c8c7e38d7ec9758766d40f819d9bc6f8ba84cbbf
-
-下载BT种子 [法餐解封食客如雲印度信用爆跌本週解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/325e51b8aa0a8de6157d849701bb61cbb310542a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:325e51b8aa0a8de6157d849701bb61cbb310542a
-
-下载BT种子 [紐約示威者到法拉盛警方戒備平靜落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f59de612e006e451ec7b0c44f221a82132d3a3b3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f59de612e006e451ec7b0c44f221a82132d3a3b3
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
