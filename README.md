@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NRcXpR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DD6ki5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「李克強財新網聯手公開懟堵習近平」6億人千元收入-財新網即時佐證「求是」替習近平壓李克強「練攤兒求生」更是李克強反擊之疑天意般應對1989年春晚姜昆相聲「特大新聞—天安門廣場：練攤兒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee3691716efd7da14877b2010e146dbecb6f0c99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee3691716efd7da14877b2010e146dbecb6f0c99
 
 下载BT种子 [電影《扶搖直上》主題曲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09b3ee93d71b7df074a13cd74da846c8e3f1d2cf.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [美國騷亂誰發動，中共也參與？美國騷亂與香港抗爭有何差異？騷亂攪局美中對抗會怎樣？（2020.6.2）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e264a3058e3c4184a1258a7336fbc64469139a4c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e264a3058e3c4184a1258a7336fbc64469139a4c
-
-下载BT种子 [【62重播】總統蔡英文視察航特空降訓練中心傘兵現場實施跳塔訓練.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1463c6224fde2ddc5fe7d45e9662d433bf890a79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1463c6224fde2ddc5fe7d45e9662d433bf890a79
 
 下载BT种子 [《石濤聚焦》「重磅：台灣台積電120億美元投資美國建廠」意味：台积电倒向美国台美关系大跨步「中共国没有台积电这类水平企业对AI智能手机等全部高智能化难以估量打击」（1405）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6520d51d5a2d199bc5291fd6ec327058c66174d6.torrent)
 
