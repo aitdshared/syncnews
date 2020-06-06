@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7SPZFb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8XuZou)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [創紀錄超93萬票遭罷免韓國瑜黯然下台台灣的民主史上首次直轄市長「罷免」投票.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c88510888d33172faa80e92465d62b04d2c37f6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c88510888d33172faa80e92465d62b04d2c37f6f
 
 下载BT种子 [韓國瑜被罷免成功學者析關鍵原因：跟中共距離有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874d88415738558902820a11cf3ea662b79399f2.torrent)
 
@@ -612,18 +616,6 @@
 下载BT种子 [中印邊境對峙局勢可能升級.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4377a8e4c685e4c59b52dde568f413e504b62fc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b4377a8e4c685e4c59b52dde568f413e504b62fc
-
-下载BT种子 [川普使用軍隊對付內亂，胡錫進酸文透露中共出兵香港的輿論準備；軍隊國家化與民選政府是國家應對社會極端狀況的必要條件（江峰漫談20200602第183期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/216ac6b9ee601e2b6efafe666e9b7749e7c783cd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:216ac6b9ee601e2b6efafe666e9b7749e7c783cd
-
-下载BT种子 [蓬佩奧：讓下世紀不再有中共統治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31b82a4d6e6a7a36a8a987440013e77b1df6e55c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:31b82a4d6e6a7a36a8a987440013e77b1df6e55c
-
-下载BT种子 [❗️張文宏：秋冬定有第二波疫情；香港再爆多人感染，兩警察猝亡；中領館參與美國騷亂，證據越來越多；險境下川普徒步走出白宮，視察被毀教堂，成立平亂“司令部”；中共改造士兵人體基因新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3398a1340862a23b3f82430be9d2be4c4a7a6c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3398a1340862a23b3f82430be9d2be4c4a7a6c8
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
