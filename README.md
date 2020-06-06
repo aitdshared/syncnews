@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HL2WxP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YmIlTi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [疫情下各國重啟經濟美國「羅斯福號」重回部署.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fc9dd8115813ff314d2bf375697ab48b29f174f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6fc9dd8115813ff314d2bf375697ab48b29f174f
+
+下载BT种子 [紐約將在8號重開經濟第一階段復工者將重回公共交通紐約市通勤安全引關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfea67ffb68755daa57004ee635463fe64738321.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cfea67ffb68755daa57004ee635463fe64738321
+
+下载BT种子 [中國大陸「地攤經濟」不到一周就風向突變中宣部急降溫面子更重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e75c5cf9629fd9e198b00a9278aaae703e400ade.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e75c5cf9629fd9e198b00a9278aaae703e400ade
 
 下载BT种子 [美移民局重開入籍儀式戴口罩縮短時間.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8176a83b0c1be9dca894bc68dcda79312438920.torrent)
 
@@ -604,10 +616,6 @@
 下载BT种子 [紐約無政府主義暴徒沿路打砸搶被砸店居民現場看傻眼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58e1a24c020f11b64507c44440e04ad57ff43d53.torrent)
 
 磁力链接 magnet:?xt=urn:btih:58e1a24c020f11b64507c44440e04ad57ff43d53
-
-下载BT种子 [罢免习近平录音流出！党放蠢招：撕毁协议、挑动美国民情！李克强练摊，习李终闹掰！（老北京茶馆第322集20200602）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e58bc9a9a09c2ea076c6a99c6f63090aaa1d255.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e58bc9a9a09c2ea076c6a99c6f63090aaa1d255
 
 下载BT种子 [蓬佩奧：讓下世紀不再有中共統治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31b82a4d6e6a7a36a8a987440013e77b1df6e55c.torrent)
 
