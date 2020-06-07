@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ryiuG4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KnawRr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】台灣創紀錄超93萬票罷免韓國瑜地攤經濟有損中共面子(6月6日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca2d540bc1c9af7b9e2f48ec73aad928a57a95c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca2d540bc1c9af7b9e2f48ec73aad928a57a95c4
 
 下载BT种子 [《石濤聚焦》「地攤經濟-李克強習近平內鬥公開衝突」王滬寧-中宣部禁用-地攤經濟蔡奇-北京禁止街頭地攤「李克強現6億人千元再推地攤經濟中共國經濟—瀕臨崩潰！」李克強拒黑鍋留清名與習硬懟（0606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aecb08f5f0ffa73daa710de47cfaa872a671c34.torrent)
 
