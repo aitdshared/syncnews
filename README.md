@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f0dWz9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xoG4Ss)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [韓國瑜被罷免，關鍵歷史被扭轉，華人不可不知！習近平和中共得到何種警示（文昭談古論今20200606第765期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4787e24ad0177e3121698a980d4e10bb1672e5b3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4787e24ad0177e3121698a980d4e10bb1672e5b3
 
 下载BT种子 [王沪宁反扑，踩地摊报复李克强！台湾罢免一个人，沉重打击习近平.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80b048385011733d3451f687e823f7492558d784.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【63重播】台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c3139869be41dc5796dbfbd35cc0d75da70e980b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c3139869be41dc5796dbfbd35cc0d75da70e980b
-
-下载BT种子 [“大规模断供潮”成焦点，中国楼市根基出现裂痕，金融系统紊乱会随之会出现.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/229b5782ded63e624b7121ff461872a6ea18a2df.torrent)
-
-磁力链接 magnet:?xt=urn:btih:229b5782ded63e624b7121ff461872a6ea18a2df
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
