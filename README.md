@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TACmm2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ryiuG4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「地攤經濟-李克強習近平內鬥公開衝突」王滬寧-中宣部禁用-地攤經濟蔡奇-北京禁止街頭地攤「李克強現6億人千元再推地攤經濟中共國經濟—瀕臨崩潰！」李克強拒黑鍋留清名與習硬懟（0606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aecb08f5f0ffa73daa710de47cfaa872a671c34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7aecb08f5f0ffa73daa710de47cfaa872a671c34
 
 下载BT种子 [罷韓通過！有人歡呼有人哭，藍綠誰還親共？中共拉攏日本無效，習近平訪日泡湯；微信美國用戶被封，只因密碼有CCP？中共又服軟？與印度和平談判；捷克議長無懼中共將訪台【新聞看點李沐陽06.06】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/176c206558179d67b91cd1411794e597abc0c1f6.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】蓬佩奥：让下世纪不再有中共统治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79cf2fa2298cd83269d5eef71cd7c80049096260.torrent)
 
 磁力链接 magnet:?xt=urn:btih:79cf2fa2298cd83269d5eef71cd7c80049096260
-
-下载BT种子 [【全球新闻】6月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9232a084e36d7ef098c1b0263240f5ec63535a57.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9232a084e36d7ef098c1b0263240f5ec63535a57
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
