@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KnawRr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F4M9hE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -616,10 +616,6 @@
 下载BT种子 [精品打砸搶華人成幫兇；美國騷亂，共產黨鬼影幢幢；六四屠城31年，中共五大本質從沒變（2020.6.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5ea8a7ce8a6d89aab3b4a2d001c08b675f5d4902.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5ea8a7ce8a6d89aab3b4a2d001c08b675f5d4902
-
-下载BT种子 [【禁闻】蓬佩奥：让下世纪不再有中共统治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79cf2fa2298cd83269d5eef71cd7c80049096260.torrent)
-
-磁力链接 magnet:?xt=urn:btih:79cf2fa2298cd83269d5eef71cd7c80049096260
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
