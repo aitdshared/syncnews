@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lDl8Cq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5RTy20)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新闻周刊】台湾史上首次罢免市长韩国瑜未道歉未受访（第735期202066）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0613a45cf8328c6204658f17408805d81f18849f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0613a45cf8328c6204658f17408805d81f18849f
 
 下载BT种子 [【时事小品】在美国闹革命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6368b82de72ace7bf0ceb65823ed4b79d265309.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【中國解密】美中處於“新冷戰”習近平表示中共必須備戰中共加強對香港的控制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74433079e4052c4b1b882513a59a47dc5dc050a0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:74433079e4052c4b1b882513a59a47dc5dc050a0
-
-下载BT种子 [日本國際戰略家：在8月法令交付前香港恐怕會持續發生流血事件應聯合力量救港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4c299a5c6e5327868f52aad2d897f3fa95e60e9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4c299a5c6e5327868f52aad2d897f3fa95e60e9
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
