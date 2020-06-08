@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m6IRyY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZBD4Lt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「全球確診破700萬死亡破40萬」美國近200萬死亡破11萬「大瘟疫與人並生成常態」張文宏：秋冬第二波-逃無可逃（0806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09ade51be4155053a13497e5d94fd7f7ccf61c66.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09ade51be4155053a13497e5d94fd7f7ccf61c66
+
+下载BT种子 [【美國思想領袖】資深研究分析師莎拉‧庫克：如何識別來自中共對病毒的虛假新聞和宣傳？讓人難以相信中共的數據原因？意大利人「謝謝，中國」實際是偽造的？中共利用陰謀論企圖轉移責任焦點！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a9b989c2252a9776c47e76f2cb9a65ed65f91d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5a9b989c2252a9776c47e76f2cb9a65ed65f91d5
+
+下载BT种子 [【禁闻】台灣法律硕士：法轮大法把我带到新境界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c93f7fcadff13c23e94b960d8250ef63825333b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0c93f7fcadff13c23e94b960d8250ef63825333b
 
 下载BT种子 [【禁闻】罢韩成功台湾民主写新页大陆民众羡慕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0dc766419ca40c8dda78a0fd61543ca183577c1.torrent)
 
