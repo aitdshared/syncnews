@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tc3Yp4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9NjNEv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -613,22 +613,6 @@
 
 磁力链接 magnet:?xt=urn:btih:213864c0639f527984135e7ec6917c051eaed725
 
-下载BT种子 [【現場實拍】紐約搶劫團伙入室知名連鎖鞋店出門即被警方逮捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d3e8e07c939c0528e7f66a7b2bfc99d42abcca9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0d3e8e07c939c0528e7f66a7b2bfc99d42abcca9
-
-下载BT种子 [【中國禁聞】6月2日完整版(字幕).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ba6b4d1910879f7616ad2b76b4f1a47277bb092.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7ba6b4d1910879f7616ad2b76b4f1a47277bb092
-
-下载BT种子 [《石濤聚焦》「突發：加拿大三大電信商宣布：拒絕華為5G」全部選擇愛立信與諾基亞涉及金額幾百億「總理小土豆更強烈支持報導-中共國組織搶購加國醫療物資的報導」（0306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b7d9e1e7f03e6d95eedb76d4a61469cb0ba0010.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b7d9e1e7f03e6d95eedb76d4a61469cb0ba0010
-
-下载BT种子 [《石濤聚焦》「美交通部：16日起禁止中共國際南方東方海航班機飛往✈️美國」報復中共國不允許美國班機飛往中國「中美衝突升級至—無對話隻對壘」（0306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7c230c70eaff3dbf0dde4fc91ddc4b55c43bd55.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7c230c70eaff3dbf0dde4fc91ddc4b55c43bd55
-
 下载BT种子 [台灣多黨立委聲援六四：極權是瘟疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2950c0cbb416673acca5f817edaa1edf3ba75872.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2950c0cbb416673acca5f817edaa1edf3ba75872
@@ -644,10 +628,6 @@
 下载BT种子 [港六四通過國歌法人大常委威脅香港議員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d4ee08b3bcc066b32028c7c09839f5e3f9f0718.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5d4ee08b3bcc066b32028c7c09839f5e3f9f0718
-
-下载BT种子 [【中國解密】美中處於“新冷戰”習近平表示中共必須備戰中共加強對香港的控制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74433079e4052c4b1b882513a59a47dc5dc050a0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:74433079e4052c4b1b882513a59a47dc5dc050a0
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
