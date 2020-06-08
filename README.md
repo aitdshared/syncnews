@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NHnmqt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uYvQ0L)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [权斗惊人升温！习家军围攻李克强，副主席暗助总理。多名常委卷入混战。默克尔走入迷途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d0f58518d5e061cdabda34e788914c1f2bd49c0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0d0f58518d5e061cdabda34e788914c1f2bd49c0
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十回準提道人收孔宣」子牙無奈孔宣竟疑師尊有誤順武王而退兵陸壓阻之燃燈不解其源準提結緣下紅塵「漫道孔宣能變化婆娑樹下號明王」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13d93cb5a3ef1fef2f9b8d59a61f74beafb0686d.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁闻】6月2日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/005134762ec802d003d935fe61c37d07b5f714ce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:005134762ec802d003d935fe61c37d07b5f714ce
-
-下载BT种子 [【禁闻】美国骚乱中共叫好网民怒怼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aafda8fd855071271c6b4dbc20d3a8b18546457a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aafda8fd855071271c6b4dbc20d3a8b18546457a
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
