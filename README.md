@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/erEAYK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xnQOb3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【严真点评】外交部大实话亚洲第一前锋郝海东向中共发起进攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86d2c18e2ba568d2dec255d4cd126ee689bf3d1e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:86d2c18e2ba568d2dec255d4cd126ee689bf3d1e
 
 下载BT种子 [【环球直击】6月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08d39f070b91afec181bc22f0108bbbcbf16d0f8.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [日本國際戰略家：在8月法令交付前香港恐怕會持續發生流血事件應聯合力量救港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4c299a5c6e5327868f52aad2d897f3fa95e60e9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4c299a5c6e5327868f52aad2d897f3fa95e60e9
-
-下载BT种子 [疫情增勢迅猛巴西與中共關係何去何從.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9087de951e7395fa031a75b0c3d1d91e42706329.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9087de951e7395fa031a75b0c3d1d91e42706329
 
 下载BT种子 [川普演講後做出驚人舉動！空降部隊已部署華盛頓；李克強洩露國家機密，是否被問罪？張姓武官白宮督戰不小心曝光了？中共默認了，3千學生是特工！中國人預知西雅圖會暴亂？【新聞看點李沐陽06.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d76ebd082b2445d119097edeb552278bddc64873.torrent)
 
