@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JLQZtB)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b6Qiu6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「港媒：李克強人大記者會公開打臉習近平」習腳踏“地攤經濟”粗野回手定於一尊取代國務院「民生全無只餘權鬥為了“自我幻覺之夢”」（0706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07555190261dcf7ea870269c0552a29968d8349f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07555190261dcf7ea870269c0552a29968d8349f
 
 下载BT种子 [《石濤聚焦》「郝海東佔滿西媒一句話‘把中共驅除人類社會’」引用郝海東之語：中共犯下令人髮指的罪惡【南華早報】凸顯迴避其熱點（0706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6fa63d1b0fd2994994bdd0a7298a9572bdc88a6.torrent)
 
