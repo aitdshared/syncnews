@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uYvQ0L)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ot9e3P)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美強硬回擊中共：借非裔之死下流宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a666ee3683ca461ceec38f765e9cf7328b47c5b3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a666ee3683ca461ceec38f765e9cf7328b47c5b3
 
 下载BT种子 [权斗惊人升温！习家军围攻李克强，副主席暗助总理。多名常委卷入混战。默克尔走入迷途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d0f58518d5e061cdabda34e788914c1f2bd49c0.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【中国禁闻】6月2日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/474694e6fb137b116ba162e7581366d04a1fbcfa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:474694e6fb137b116ba162e7581366d04a1fbcfa
-
-下载BT种子 [【禁闻】6月2日退党精选.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff2c74814783790b47c5d605d531e8f69faf7c83.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff2c74814783790b47c5d605d531e8f69faf7c83
 
 下载BT种子 [【禁闻】6月2日维权动态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/005134762ec802d003d935fe61c37d07b5f714ce.torrent)
 
