@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NJPxox)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lDl8Cq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【时事小品】在美国闹革命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6368b82de72ace7bf0ceb65823ed4b79d265309.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6368b82de72ace7bf0ceb65823ed4b79d265309
 
 下载BT种子 [【严真点评】外交部大实话亚洲第一前锋郝海东向中共发起进攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86d2c18e2ba568d2dec255d4cd126ee689bf3d1e.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [中國大陸以外全球感染約648萬人巴西55萬人感染歐洲國境互相開放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55a82f51dcf9bffb73ab71ddef19778af00a9b8f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:55a82f51dcf9bffb73ab71ddef19778af00a9b8f
-
-下载BT种子 [宵禁第四天美國洛杉磯警方加強執法逮捕近三千嫌犯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/157fa8a408568b21cb2e8d6e854b475a879faa0a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:157fa8a408568b21cb2e8d6e854b475a879faa0a
 
 下载BT种子 [蓬佩奧會六四倖存者五國外長譴責中共打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/caa3380affa354592b1fd28ded363b1b7921a534.torrent)
 
