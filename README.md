@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wHSD93)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h7SOgX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [为什么说中国的社会财富在快速的蒸发？全部蒸发后会是什么样的场景？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b101fb7bcd9811bd710f7e2e9bb0945138f7bd7b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b101fb7bcd9811bd710f7e2e9bb0945138f7bd7b
 
 下载BT种子 [【禁闻】习李斗延伸北京清除李克强地摊经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d785df7fc4cfb679be944d25f160474310a30563.torrent)
 
