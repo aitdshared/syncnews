@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RohVj4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0hwl8U)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [英國及歐盟擬立法應對中共經濟威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32e1b03b0edf1c9bfec855bcf99529603bcc494a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:32e1b03b0edf1c9bfec855bcf99529603bcc494a
+
+下载BT种子 [捷克宣告加入「跨國議會聯盟」聯手對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4
 
 下载BT种子 [《石濤聚焦》「英國首相約翰遜：將立法嚴禁所有中共國對英國企業的投資收購」原因來自武漢病毒華為與5G港版國安法-300萬BNO與五眼聯盟聯手-抗拒中共（0806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6a4349a12c60fa68864893a235016f4cacd50cd.torrent)
 
