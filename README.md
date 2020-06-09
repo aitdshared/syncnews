@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/j2rb9o)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Uxq5TF)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d84d267b64d0d75f6d0404041bfcf65c62bf425.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7d84d267b64d0d75f6d0404041bfcf65c62bf425
 
 下载BT种子 [朝韓關係再次急轉直下朝鮮單方面宣布切斷與韓國的通訊熱線.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/991f3207a3a9fd4a5c1e5549e2907a91f66ec54e.torrent)
 
