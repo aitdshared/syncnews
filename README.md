@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P6nKJa)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r1pzM8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [港版國安法通過香港多位民主派人士遭跟蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/922901a85f36aa39360b1582148e45163b5a65ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:922901a85f36aa39360b1582148e45163b5a65ec
+
+下载BT种子 [港6.12周年集會因限聚令延期籲上街展民意.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15aa0cf9962132bbaae8a617f5412280405ba79a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15aa0cf9962132bbaae8a617f5412280405ba79a
+
+下载BT种子 [南方洪災房屋土地被淹多人失蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dec57df3830985bd906b949100da29b556f2f48.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5dec57df3830985bd906b949100da29b556f2f48
+
+下载BT种子 [傳駐德美軍部分撤離德國防長：未證實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb
+
+下载BT种子 [中共病毒7百萬人感染40萬人喪生.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8d0c032a718d969c0638a27ae8cbe6263b435ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f8d0c032a718d969c0638a27ae8cbe6263b435ec
 
 下载BT种子 [台灣撐香港週四擬公布人道援助行動專案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a063d91d29c4babed1ad5d03057de3331102f269.torrent)
 
