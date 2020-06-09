@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yCtsko)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vo9CcG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【百姓自拍】時實事件！6月9日，早上9點多！武漢武昌和平大道塔吊塌了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9eb2bf746b3b2c1ce0f1e457fdf91740694ef3d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9eb2bf746b3b2c1ce0f1e457fdf91740694ef3d5
 
 下载BT种子 [港版國安法通過香港多位民主派人士遭跟蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/922901a85f36aa39360b1582148e45163b5a65ec.torrent)
 
@@ -508,10 +512,6 @@
 下载BT种子 [《石濤.News》「震驚：足壇首富-郝海東攜妻葉釗穎-羽壇一姐：宣布中共與中共國「非法必滅亡」」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3faa1c96589e50bcef48facba9c5d89d1d1161c3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3faa1c96589e50bcef48facba9c5d89d1d1161c3
-
-下载BT种子 [無懼國安法港人遍地悼六四盼中國人走出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d1bbacb49ed121b66e16827ba10b9b007a91cab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2d1bbacb49ed121b66e16827ba10b9b007a91cab
 
 下载BT种子 [泛民議員默哀悼六四支聯會堅持維園點燭光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/441e50b62b0de3fcd146c7bb4379997e8aef370a.torrent)
 
