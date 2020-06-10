@@ -21,13 +21,61 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ohmhxp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/igGJS7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [任正非批中共「砸錢不行」，吃誠實豆沙包？世衛爆料：中共「重大拖延」；譚書記變譚總機，當機10秒；張曉明「殺氣騰騰」，預示加大鎮壓力度？去年8月病毒已傳播？哈佛2大證據【新聞看點李沐陽06.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec763ff0457374fd8d938ec44768c1b21323920b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec763ff0457374fd8d938ec44768c1b21323920b
+
+下载BT种子 [【新唐人重播】610台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23053c06b5e206fa295f838dc5e799c87b907c6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:23053c06b5e206fa295f838dc5e799c87b907c6f
+
+下载BT种子 [李克强说真话闯祸！胡春华急赴梁家河表忠习近平！高雄罢韩、北京罢摊，人民罢战！（老北京茶馆第325集20200609）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/313f455cf2ae924ae48959d06496d059840a1dcb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:313f455cf2ae924ae48959d06496d059840a1dcb
+
+下载BT种子 [地攤經濟，百姓的無奈與中共的謀算；習李不是內鬥而是攜手左轉，開啟中共新閉關鎖國時代；香港反送中一週年（江峰漫談20200609第186期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7677f2f9c133b35b0f954c410c0ab1fa70dce6f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7677f2f9c133b35b0f954c410c0ab1fa70dce6f4
+
+下载BT种子 [【全球新闻】6月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4
+
+下载BT种子 [大亨一語驚人：中國11億人無消費能力！倖存者偏差；習近平最怕的俄羅斯反水將到來？（文昭談古論今20200606第767期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81710a62d87258b2be6672255b98b3d8fc187287.torrent)
+
+磁力链接 magnet:?xt=urn:btih:81710a62d87258b2be6672255b98b3d8fc187287
+
+下载BT种子 [【环球直击】6月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a1e9a61867e37f03ed7ab539097f47fb777c19.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a1a1e9a61867e37f03ed7ab539097f47fb777c19
+
+下载BT种子 [【中國禁聞】6月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9bf5a0a18b1b4bb63673d4f94d0904f1850073c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f9bf5a0a18b1b4bb63673d4f94d0904f1850073c
+
+下载BT种子 [《石濤聚焦》「金融大佬巴斯做空港幣-聯繫匯率200倍槓桿賠率」6月1日成立「香港機會基金」18個月美元脫鉤港幣貶值40%基金獲利64倍「習近平聯手金融大鱷劫殺香港金融體系」（0906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45aef3d8d74d07f1d833fca85e65ff48d84ad620.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45aef3d8d74d07f1d833fca85e65ff48d84ad620
+
+下载BT种子 [北京出兵台灣，為何必敗？中共改變美台戰略，心戰裂解社會；中國宣傳抗疫有成，譚德塞為何閃躲？（2020.6.10）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e00328919acddd7474520e711ee533498e12974.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e00328919acddd7474520e711ee533498e12974
+
+下载BT种子 [👉人大6月議程竟無國安法；7·1到！港人掀六月“逆”流；黎智英勸美莫廢香港武功；港澳辦用車臣類比香港；洛杉磯中領館被空投”病毒“，荷蘭上萬水貂感染！華僑：明州案牽宗教恩怨新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4716e7b5db250bcfc27dd03621e5bab66d3abf02.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4716e7b5db250bcfc27dd03621e5bab66d3abf02
+
+下载BT种子 [【中國禁聞】6月9日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ae07340ef9ccb78f4d51a847fc20f3d3a48c627.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ae07340ef9ccb78f4d51a847fc20f3d3a48c627
 
 下载BT种子 [紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d84d267b64d0d75f6d0404041bfcf65c62bf425.torrent)
 
@@ -396,10 +444,6 @@
 下载BT种子 [【中國禁聞】6月4日完整版(字幕).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aca6c0464d166c7eb9f34a39746ab4798a40710.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7aca6c0464d166c7eb9f34a39746ab4798a40710
-
-下载BT种子 [【环球直击】6月4日完整版（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63920fee39fc40687dc2e91bd537fbf1ca64c52f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:63920fee39fc40687dc2e91bd537fbf1ca64c52f
 
 下载BT种子 [【环球直击】6月4日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c5fbc8ae43728b00355fd445db65a7687269332.torrent)
 
