@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/esFDFc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iMh9uy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -448,10 +448,6 @@
 下载BT种子 [中國地攤「月入三萬」大躍進！習、李拆招新「洩密」；郝海東倒共宣言拉倒戈潮（文昭談古論今20200605第764期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/832c2610e46b217e02bf05d4db43c8aae367a918.torrent)
 
 磁力链接 magnet:?xt=urn:btih:832c2610e46b217e02bf05d4db43c8aae367a918
-
-下载BT种子 [《石濤聚焦》「金與正好似攝政女王金正恩果真失去各種“能力”？」罕見強硬聲明：主理中朝美韓多邊關係更直接威脅終止「朝韓相關軍事協議」（0506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a30199cca8119e87757b8d27842deaaa03095c44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a30199cca8119e87757b8d27842deaaa03095c44
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
