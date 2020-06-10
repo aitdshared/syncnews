@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DJDA1a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RTznEI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -448,6 +448,10 @@
 下载BT种子 [王滬寧叫板李克強？地攤經濟火速被禁；李克強上演在中國「說實話的代價」；耿爽離職發言人，外交模擬器成歷史；中共民航居然投降了？臉書針對官媒有新動作：大外宣通通貼上標籤！【新聞看點李沐陽06.05】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1559ec433d0816bdc22a8b545c7ddf95ac48b65.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a1559ec433d0816bdc22a8b545c7ddf95ac48b65
+
+下载BT种子 [《石濤聚焦》「李克強財新網聯手公開懟堵習近平」6億人千元收入-財新網即時佐證「求是」替習近平壓李克強「練攤兒求生」更是李克強反擊之疑天意般應對1989年春晚姜昆相聲「特大新聞—天安門廣場：練攤兒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee3691716efd7da14877b2010e146dbecb6f0c99.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee3691716efd7da14877b2010e146dbecb6f0c99
 
 下载BT种子 [電影《扶搖直上》主題曲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09b3ee93d71b7df074a13cd74da846c8e3f1d2cf.torrent)
 
