@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oxARVu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DJDA1a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e07e991060464b8ce14132e1940d7a995a7f968.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e07e991060464b8ce14132e1940d7a995a7f968
+
+下载BT种子 [抗極權是責任港勇武派：堅持才有未來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbfccaca1ef2368320139c31dc23088e6088edc9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dbfccaca1ef2368320139c31dc23088e6088edc9
+
+下载BT种子 [反送中周年遊行港警胡椒噴霧53人遭捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5c9cc59b2a1a2c5b3ed2a23b68d8b875ee491aa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f5c9cc59b2a1a2c5b3ed2a23b68d8b875ee491aa
+
+下载BT种子 [中共逼迫匯豐和英國蓬佩奧發聲明強硬回擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0203349eeda9d823f2c842f284af3d153c65d3c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0203349eeda9d823f2c842f284af3d153c65d3c3
+
+下载BT种子 [《中國日報》斥巨資在美國媒體進行宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6c58a1cb595171ac8137004a51991c5823d2496.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6c58a1cb595171ac8137004a51991c5823d2496
 
 下载BT种子 [中印冲突，中方败退！原因神秘，习近平害怕一件事。多少个不准？中共进入崇祯时刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a3e3520885b3cca3c8c83cf9ddb955ff96210c6.torrent)
 
@@ -428,14 +448,6 @@
 下载BT种子 [王滬寧叫板李克強？地攤經濟火速被禁；李克強上演在中國「說實話的代價」；耿爽離職發言人，外交模擬器成歷史；中共民航居然投降了？臉書針對官媒有新動作：大外宣通通貼上標籤！【新聞看點李沐陽06.05】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1559ec433d0816bdc22a8b545c7ddf95ac48b65.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a1559ec433d0816bdc22a8b545c7ddf95ac48b65
-
-下载BT种子 [中國地攤「大躍進」與房市崩盤；郝海東反共宣言波瀾延續；習、李拆招新「洩密」：大家各自找坐標（文昭談古論今20200605第764期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6f60f21e5820fe928a34f4953ce2e64f7b27da1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6f60f21e5820fe928a34f4953ce2e64f7b27da1
-
-下载BT种子 [《石濤聚焦》「李克強財新網聯手公開懟堵習近平」6億人千元收入-財新網即時佐證「求是」替習近平壓李克強「練攤兒求生」更是李克強反擊之疑天意般應對1989年春晚姜昆相聲「特大新聞—天安門廣場：練攤兒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee3691716efd7da14877b2010e146dbecb6f0c99.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee3691716efd7da14877b2010e146dbecb6f0c99
 
 下载BT种子 [電影《扶搖直上》主題曲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09b3ee93d71b7df074a13cd74da846c8e3f1d2cf.torrent)
 
