@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KHo3VI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hikyZb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月10日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/081f607f818dbd0b8b04b093cbaa9b730d01dafe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:081f607f818dbd0b8b04b093cbaa9b730d01dafe
+
+下载BT种子 [【禁聞】隱瞞參加千人計劃哈佛化學系前主任被起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7c96a11db7f51923ff09f8725a2128aeb303035.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b7c96a11db7f51923ff09f8725a2128aeb303035
+
+下载BT种子 [【微視頻】躲病毒追責中共賄77國同時打澳洲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc7e8275e385963065b7d03f55da23fb7167ce3b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc7e8275e385963065b7d03f55da23fb7167ce3b
 
 下载BT种子 [【禁聞】花錢大外宣《中國日報》四年付美媒1900萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3531a6c3c305c05ba37249a31b943c12fe8cf1d.torrent)
 
@@ -440,14 +452,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第六十九回孔宣兵阻金雞嶺」子牙失算黃天化夜襲而死哪吒雷震子相繼被擒金臺拜帥未入商土損兵折將全因少算一難.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb3622292f7b85692ba31fbb86ee6bbf6f97fef3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cb3622292f7b85692ba31fbb86ee6bbf6f97fef3
-
-下载BT种子 [【美國思想領袖】國家安全記者比爾·戈茲：調查病毒起源與美中新冷戰！為何了解病毒真正來源如此重要？世界為何看不懂中共政權的真正性質？中共其實是比蘇聯更老練的對手！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f6d88b2d2ac95fb0e79acd16a9ee6d9b1cb3ab5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f6d88b2d2ac95fb0e79acd16a9ee6d9b1cb3ab5
-
-下载BT种子 [🔥罷韓登場！若罷免失敗，韓國瑜將獲“免死金牌”；吉林地攤面臨天價管理費！中國9億人月入不到2千，地方債藏巨雷；一直派人潛伏美國各處，知情人曝中共佈局；郝海東轉戰推特？耿爽卸任新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df7459ca743072de39f6c679c17170384ee308a7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df7459ca743072de39f6c679c17170384ee308a7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
