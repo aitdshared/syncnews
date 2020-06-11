@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IHDCA8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/q8bG0Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】花錢大外宣《中國日報》四年付美媒1900萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3531a6c3c305c05ba37249a31b943c12fe8cf1d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a3531a6c3c305c05ba37249a31b943c12fe8cf1d
+
+下载BT种子 [【禁聞】關鍵轉折!北約呼籲全球共同對抗中共勢力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63de7970c2a7de6fbd3437b73c0b194fb7a8ff42.torrent)
+
+磁力链接 magnet:?xt=urn:btih:63de7970c2a7de6fbd3437b73c0b194fb7a8ff42
 
 下载BT种子 [【禁聞】「六個不許」鎖牢海南自貿港自由嗎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1ca554a62ff4547732445863f0aa3a329b35e1f.torrent)
 
@@ -440,10 +448,6 @@
 下载BT种子 [🔥罷韓登場！若罷免失敗，韓國瑜將獲“免死金牌”；吉林地攤面臨天價管理費！中國9億人月入不到2千，地方債藏巨雷；一直派人潛伏美國各處，知情人曝中共佈局；郝海東轉戰推特？耿爽卸任新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df7459ca743072de39f6c679c17170384ee308a7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:df7459ca743072de39f6c679c17170384ee308a7
-
-下载BT种子 [【禁聞】中共一意孤行英加向港人敞開國門港版國安法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
