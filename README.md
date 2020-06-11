@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sFVnl2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/u0Ldyn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】6.11美國務卿及內閣成員聯合新聞發布會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8178d4432c7e19fac23fb5d3bb5be186a93a4cbc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8178d4432c7e19fac23fb5d3bb5be186a93a4cbc
 
 下载BT种子 [我称呼郭文贵加了“先生”二字，没想到引来这么大争议，聊聊中国社会当下最需要什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62a137562027a6e8c89654ca26e2606a34cb1fa2.torrent)
 
@@ -448,10 +452,6 @@
 下载BT种子 [节奏太快，李克强再次让习近平难堪，政治破局从经济困境开始，不变不行了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7d2628f0ce3681250f13b44782a9186d5932c38.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c7d2628f0ce3681250f13b44782a9186d5932c38
-
-下载BT种子 [【环球直击】6月5日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b49f84d81f08069c7fd8650e6c43bf5b50ef868c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b49f84d81f08069c7fd8650e6c43bf5b50ef868c
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
