@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tN1tEJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kwivgj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美股忽然暴跌擔憂疫情第二次大爆發」道股跌破1500點納斯達標普破4.5%「人類至今搞不清大疫原由將出現更大更悲哀的場面」（1106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eb4dd270c1ee46e5a16295f7d833687e27785c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3eb4dd270c1ee46e5a16295f7d833687e27785c5
 
 下载BT种子 [南美洲死亡超過7萬人歐盟籲71全開邊界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0a72ce50e0c7492d189f456980ea2ccf080c37d.torrent)
 
@@ -452,10 +456,6 @@
 下载BT种子 [創紀錄超93萬票遭罷免韓國瑜黯然下台台灣的民主史上首次直轄市長「罷免」投票.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c88510888d33172faa80e92465d62b04d2c37f6f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c88510888d33172faa80e92465d62b04d2c37f6f
-
-下载BT种子 [韓國瑜被罷免成功學者析關鍵原因：跟中共距離有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874d88415738558902820a11cf3ea662b79399f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:874d88415738558902820a11cf3ea662b79399f2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
