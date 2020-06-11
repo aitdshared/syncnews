@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/92HkIi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4BJc8m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [巴西疫情嚴重指責世衛俄解禁將紅場閲兵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea176e04398beb46f72740c7287bd93339a9d6e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ea176e04398beb46f72740c7287bd93339a9d6e1
+
+下载BT种子 [美宗教自由報告蓬佩奧抨擊中共加劇鎮壓宗教信仰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1c4b40d10af42b4ff3559dab128b973c3c2b982.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a1c4b40d10af42b4ff3559dab128b973c3c2b982
+
+下载BT种子 [川普維護美國傳統拒絕爲軍事基地更名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a05951d0769d5d9d48c8a15d290f8527fd02ade.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a05951d0769d5d9d48c8a15d290f8527fd02ade
 
 下载BT种子 [中共核武老兵染疫去世其家屬向武漢中院控告政府隱瞞疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8a1aaa3048e453bb772d57c8004c82c194281a.torrent)
 
