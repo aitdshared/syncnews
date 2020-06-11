@@ -21,13 +21,45 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vtKHfj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tN1tEJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [南美洲死亡超過7萬人歐盟籲71全開邊界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0a72ce50e0c7492d189f456980ea2ccf080c37d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e0a72ce50e0c7492d189f456980ea2ccf080c37d
+
+下载BT种子 [重新領軍高速網絡美軍方研發與民間項目齊頭並進.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef45a63d64f5a5962b8c4956eb53b8505319eb48.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef45a63d64f5a5962b8c4956eb53b8505319eb48
+
+下载BT种子 [美國務卿蓬佩奧發布《2019年度國際宗教自由報告》（節選有關中國問題中文字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09ab70d1053ce552d6335f8e828ff15141656bf7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09ab70d1053ce552d6335f8e828ff15141656bf7
+
+下载BT种子 [歐盟阻疫情假新聞點名中共俄羅斯造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fd213c7b18b033c9dac78416d431f94b2019be0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4fd213c7b18b033c9dac78416d431f94b2019be0
+
+下载BT种子 [港銀行家吳明德：美國只需一招就可以廢掉港幣制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb2def95f68e281861700618512e7527d89a1134.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fb2def95f68e281861700618512e7527d89a1134
+
+下载BT种子 [「610」辦公室遍及全中國迫害仍在繼續.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d54a01142663bbd3de11a56647f4193f5abb58f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6d54a01142663bbd3de11a56647f4193f5abb58f
+
+下载BT种子 [美國會報告：侵蝕港自治最高可制裁中央政治局韓正.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08deeb3c699afbc589bac7cfedd80a462eafc787.torrent)
+
+磁力链接 magnet:?xt=urn:btih:08deeb3c699afbc589bac7cfedd80a462eafc787
+
+下载BT种子 [港大研究推算：湖北220萬人曾染疫而武漢人認為感染率更高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdf685ad7fddcf2b46e0f82b064f1e36465cbd45.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bdf685ad7fddcf2b46e0f82b064f1e36465cbd45
 
 下载BT种子 [維園悼六四何俊仁李卓人等人被控煽惑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccd1711dc12c5a5fb98615e8db75b79a29c2487d.torrent)
 
@@ -424,38 +456,6 @@
 下载BT种子 [韓國瑜被罷免成功學者析關鍵原因：跟中共距離有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874d88415738558902820a11cf3ea662b79399f2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:874d88415738558902820a11cf3ea662b79399f2
-
-下载BT种子 [疫情下各國重啟經濟美國「羅斯福號」重回部署.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fc9dd8115813ff314d2bf375697ab48b29f174f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6fc9dd8115813ff314d2bf375697ab48b29f174f
-
-下载BT种子 [紐約將在8號重開經濟第一階段復工者將重回公共交通紐約市通勤安全引關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfea67ffb68755daa57004ee635463fe64738321.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cfea67ffb68755daa57004ee635463fe64738321
-
-下载BT种子 [中國大陸「地攤經濟」不到一周就風向突變中宣部急降溫面子更重要.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e75c5cf9629fd9e198b00a9278aaae703e400ade.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e75c5cf9629fd9e198b00a9278aaae703e400ade
-
-下载BT种子 [美移民局重開入籍儀式戴口罩縮短時間.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8176a83b0c1be9dca894bc68dcda79312438920.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d8176a83b0c1be9dca894bc68dcda79312438920
-
-下载BT种子 [《石濤聚焦》「666罷免韓國瑜成功鐵桿搭檔議長隨即墜樓亡」震驚全台灣！最後臉書遺言「這回誰輸誰贏？」滿屏皆是韓國瑜「今日最神秘：三組666令人無解」難道真是-666敵基督？（0606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/064f87ebf0a23fc75a56e11902e46323b829baab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:064f87ebf0a23fc75a56e11902e46323b829baab
-
-下载BT种子 [美國商舖被暴力砸搶隔天一名入室搶劫者現身損失慘重的店主卻原諒了他.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80e1cd8d33ecd65afc82c106e8a884923dc1f65a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:80e1cd8d33ecd65afc82c106e8a884923dc1f65a
-
-下载BT种子 [美國洛杉磯民運人士中領館前緬懷六四死難者無人機懸掛中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7829fcc602768e7defe36c69dfc425c5e92753ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7829fcc602768e7defe36c69dfc425c5e92753ab
-
-下载BT种子 [【中國禁聞】6月5日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f506a5603ebe7d0e619a3c146298aefcc3c011cd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f506a5603ebe7d0e619a3c146298aefcc3c011cd
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
