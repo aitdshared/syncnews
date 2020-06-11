@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/URYUAS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EWG7wB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美佛洛依德死引發騷亂未來會付出極大死亡代價」FOX新聞：無症狀高度傳染大批人無法設防接觸再爆發幾乎肯定「黑人已不幸成為中共病毒攻擊對象」大騷亂持續-神奇的14天（1106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08c45ed4d2efeb70f94f18d8ae676f5193c27092.torrent)
+
+磁力链接 magnet:?xt=urn:btih:08c45ed4d2efeb70f94f18d8ae676f5193c27092
 
 下载BT种子 [《石濤聚焦》「美國會首次報告：韓正汪洋-首批被制裁最高官員」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47c86db1792a803c039dac2fa223d0a811dd1cff.torrent)
 
@@ -448,10 +452,6 @@
 下载BT种子 [【中國禁聞】6月5日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f506a5603ebe7d0e619a3c146298aefcc3c011cd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f506a5603ebe7d0e619a3c146298aefcc3c011cd
-
-下载BT种子 [《石濤聚焦》「罷免韓國瑜高雄市長：投票已經開始」罷免票數門檻-57.5萬韓國瑜坦承面對現實昨晚大批北漂趕回高雄投票下午4點投票結束「絕滅中共勢力在台灣的一切代表」（0506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f1b3d574069c3b85258777ca4bd5dd311f45c2b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6f1b3d574069c3b85258777ca4bd5dd311f45c2b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
