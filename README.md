@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xnxie2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PXCdda)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】「六個不許」鎖牢海南自貿港自由嗎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1ca554a62ff4547732445863f0aa3a329b35e1f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f1ca554a62ff4547732445863f0aa3a329b35e1f
 
 下载BT种子 [习近平宁夏视察大坑，回应李克强？反共捷克议长宣布赴台；中共党官20个不准出台！（老北京茶馆第326集20200610）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8f5b7c695c33ef321db55b0f0ea50833670e1b4.torrent)
 
@@ -440,10 +444,6 @@
 下载BT种子 [【禁聞】中共一意孤行英加向港人敞開國門港版國安法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7601b2bcf803e1e60c9afe7e8c8dfc74733a54b7
-
-下载BT种子 [【禁聞】美國非裔騷亂部分華人趁火打劫害了誰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/412c204dcfdc11a13e24eeb43a89ec9712aacb15.torrent)
-
-磁力链接 magnet:?xt=urn:btih:412c204dcfdc11a13e24eeb43a89ec9712aacb15
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
