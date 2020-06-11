@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TSxqB9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b5FXuC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [瑞典外國投資新立法阻止中共惡意擴張.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5f7b6c01ac609e10d480866c69185974863065e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f5f7b6c01ac609e10d480866c69185974863065e
 
 下载BT种子 [【中國禁聞】6月10日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b79c1b03c10b5b3c7ad7f7e3dd927d6c83698c2d.torrent)
 
@@ -452,10 +456,6 @@
 下载BT种子 [罷韓通過！有人歡呼有人哭，藍綠誰還親共？中共拉攏日本無效，習近平訪日泡湯；微信美國用戶被封，只因密碼有CCP？中共又服軟？與印度和平談判；捷克議長無懼中共將訪台【新聞看點李沐陽06.06】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/176c206558179d67b91cd1411794e597abc0c1f6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:176c206558179d67b91cd1411794e597abc0c1f6
-
-下载BT种子 [韓國瑜被罷免，關鍵歷史被扭轉，華人不可不知！習近平和中共得到何種警示（文昭談古論今20200606第765期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4787e24ad0177e3121698a980d4e10bb1672e5b3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4787e24ad0177e3121698a980d4e10bb1672e5b3
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
