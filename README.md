@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oNfVkx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iIfV1M)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】香港民眾悼念六四美報告可制裁中共常委韓正歐盟打擊假消息點名中共（6月11日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27194021e712c5c69329451a4aea582653b34120.torrent)
+
+磁力链接 magnet:?xt=urn:btih:27194021e712c5c69329451a4aea582653b34120
+
+下载BT种子 [【全球新聞】「向伟大过渡」川普推四步驟重建社區安全國際刑事法庭威脅主權（6月11日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/964d8cb89f0f84afe1380e57f0ea34afc695c9ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:964d8cb89f0f84afe1380e57f0ea34afc695c9ec
 
 下载BT种子 [史上最强制裁名单,韩正等正国级高官在列;还有两人不能放过(政论天下第180集20200611)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49e56796ffcbc8f1d7787455d7592dd273048613.torrent)
 
@@ -445,17 +453,9 @@
 
 磁力链接 magnet:?xt=urn:btih:2766f05d3c5bc65b027701792cf6677dc474c4ba
 
-下载BT种子 [《石濤.News》「港媒：李克強人大記者會公開打臉習近平」習腳踏“地攤經濟”粗野回手定於一尊取代國務院「民生全無只餘權鬥為了“自我幻覺之夢”」（0706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07555190261dcf7ea870269c0552a29968d8349f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:07555190261dcf7ea870269c0552a29968d8349f
-
 下载BT种子 [《濤哥侃封神》『封神演義第七十一回姜子牙三路分兵』籠吉公主擊殺胡雷惹禍端火靈聖母怒像出連燒大營子牙死廣成子授旨滅聖母.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/842ebc270fd2f52235cd9678496de8a3dc220c56.torrent)
 
 磁力链接 magnet:?xt=urn:btih:842ebc270fd2f52235cd9678496de8a3dc220c56
-
-下载BT种子 [一周经济回顾：川普接受专访强调法制和秩序.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/502907cc8a4ddf9e22fd975bb0ec38a5ad8fc98a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:502907cc8a4ddf9e22fd975bb0ec38a5ad8fc98a
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
