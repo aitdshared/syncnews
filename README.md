@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pAnemh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/seIrtY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】水庫無預警洩洪沖走很多人失業寒冬與經濟困頓疫情危機中提振經濟(6月12日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff67060298f8295c75d4edfc26228bcf72639fa0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ff67060298f8295c75d4edfc26228bcf72639fa0
+
+下载BT种子 [【瘟疫與中共】大公司為中共輸血新澤西州成重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9
+
+下载BT种子 [【新唐人重播】美國副總統彭斯參加信仰和社區領袖懇談會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc7481657fe09ebd4fddcb5cbb38a103a65c79ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc7481657fe09ebd4fddcb5cbb38a103a65c79ef
+
+下载BT种子 [韓國危機管理教授預測：由於疫情影響經濟危機即將到來武漢肺炎影響長久.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2acbda4748355a3462d59c7e34745e4d2c327941.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2acbda4748355a3462d59c7e34745e4d2c327941
+
+下载BT种子 [全球感染破750萬印度單日新增首次過萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ebacae6c9ab8f084c502eca6f0d1b865ab328b4b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ebacae6c9ab8f084c502eca6f0d1b865ab328b4b
 
 下载BT种子 [【中國禁聞】6月11日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/50f86ae15b0ff7a20c9b8af6f7540134d9750aa3.torrent)
 
@@ -436,10 +456,6 @@
 下载BT种子 [港6.12周年集會因限聚令延期籲上街展民意.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15aa0cf9962132bbaae8a617f5412280405ba79a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15aa0cf9962132bbaae8a617f5412280405ba79a
-
-下载BT种子 [南方洪災房屋土地被淹多人失蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dec57df3830985bd906b949100da29b556f2f48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5dec57df3830985bd906b949100da29b556f2f48
 
 下载BT种子 [傳駐德美軍部分撤離德國防長：未證實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb.torrent)
 
