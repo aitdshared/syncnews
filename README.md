@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ghbskn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rS0y0u)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國財長：可能限制進出香港資金流動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce194c8c0d1a8a101ab888537bc39712ef185bbe.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ce194c8c0d1a8a101ab888537bc39712ef185bbe
+
+下载BT种子 [香港612周年網號召多區聚集高唱《願榮光歸香港》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddd551ae9913f8c508f2f41ca70f12d9dc3f1fa4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ddd551ae9913f8c508f2f41ca70f12d9dc3f1fa4
+
+下载BT种子 [香港國歌法生效教師疑允奏《願榮光歸香港》被報復打擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72e78da9e32cc321c7671786a8f8312d9433d7d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72e78da9e32cc321c7671786a8f8312d9433d7d7
 
 下载BT种子 [《石濤.News》「郝海東葉釗穎首次美媒專訪：中共國體制泯滅人性」郝海東說：中共對人的思想禁錮被領導安排入黨親屬“你們瘋了嗎？”國內財產可能完了兒子合約到期「我們問心無愧可以承受所有結果」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e9ed24ab697d38f0dcfba5bffee4e1f942172ab.torrent)
 
