@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LZBD5C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WpflDQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國大陸以外感染上升至747萬美國國家公園開放日本確認簡化辦奧運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db0605cd7b29acafa561bf05c1df036c7a94a1c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:db0605cd7b29acafa561bf05c1df036c7a94a1c4
+
+下载BT种子 [高科技無人機成非洲農業好幫手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea738f26a0ac1dac9f82ae78b4d6e2fac28a301f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ea738f26a0ac1dac9f82ae78b4d6e2fac28a301f
+
+下载BT种子 [中共發赴澳警告澳總理﹕絕不會在中共的脅迫下犧牲澳洲价值觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f8678454adc59050b304f68576f0a42aa139f06.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3f8678454adc59050b304f68576f0a42aa139f06
 
 下载BT种子 [極左設西雅圖自治區川普促解決無政府狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96fe62c2e28c2efd90fc42d163a6f73ba3cf7460.torrent)
 
@@ -444,18 +456,6 @@
 下载BT种子 [权斗惊人升温！习家军围攻李克强，副主席暗助总理。多名常委卷入混战。默克尔走入迷途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d0f58518d5e061cdabda34e788914c1f2bd49c0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0d0f58518d5e061cdabda34e788914c1f2bd49c0
-
-下载BT种子 [《濤哥侃封神》「封神演義第七十回準提道人收孔宣」子牙無奈孔宣竟疑師尊有誤順武王而退兵陸壓阻之燃燈不解其源準提結緣下紅塵「漫道孔宣能變化婆娑樹下號明王」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13d93cb5a3ef1fef2f9b8d59a61f74beafb0686d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:13d93cb5a3ef1fef2f9b8d59a61f74beafb0686d
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99e70b4bc1b1d9db4efe89bf262c80e6ed53cd3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:99e70b4bc1b1d9db4efe89bf262c80e6ed53cd3a
-
-下载BT种子 [💎【中國禁聞】新包裝預告💎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a3205d2b87bc0e51e9040fc3357467795663b7b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a3205d2b87bc0e51e9040fc3357467795663b7b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
