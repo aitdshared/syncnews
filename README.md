@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tho2qP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xwRig8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月11日完整版🔥中國南方水災桂林水庫危險傳將關港人深圳鹽田看守所清空習近平決勝小康社會目標可否達成應對中共威脅美國會報告提史上最嚴制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb38c6df255604f625f5d7cdce7d0e757b03f96b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb38c6df255604f625f5d7cdce7d0e757b03f96b
+
+下载BT种子 [【禁聞】中國南方11省水災桂林水庫有垮壩危險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3a1429087a084c796e1f6c4791e30cae8dea264.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b3a1429087a084c796e1f6c4791e30cae8dea264
+
+下载BT种子 [【禁聞】習近平疫情下決勝小康社會目標可否達成？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56762c58e2ed8c63653dc47023e85e9b842c4e35.torrent)
+
+磁力链接 magnet:?xt=urn:btih:56762c58e2ed8c63653dc47023e85e9b842c4e35
 
 下载BT种子 [【禁聞】中共發留學預警澳總理強硬回應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8abd89148d4c4e96f4e3424ae905f7d6bc7bfcad.torrent)
 
@@ -444,18 +456,6 @@
 下载BT种子 [【时事小品】在美国闹革命.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6368b82de72ace7bf0ceb65823ed4b79d265309.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6368b82de72ace7bf0ceb65823ed4b79d265309
-
-下载BT种子 [【严真点评】外交部大实话亚洲第一前锋郝海东向中共发起进攻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86d2c18e2ba568d2dec255d4cd126ee689bf3d1e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:86d2c18e2ba568d2dec255d4cd126ee689bf3d1e
-
-下载BT种子 [【环球直击】6月7日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08d39f070b91afec181bc22f0108bbbcbf16d0f8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:08d39f070b91afec181bc22f0108bbbcbf16d0f8
-
-下载BT种子 [地摊经济旋起旋灭;李克强再不检讨就是分裂党;财新网解开了中国基尼系数之谜(政论天下第178集20200607)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3a925f3d7388d602d6f6b58724f4750b8333188.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f3a925f3d7388d602d6f6b58724f4750b8333188
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
