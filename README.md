@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qAjNBs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EhoAe8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [高曉松評希特勒，寓意深刻？「新八國聯軍」來襲，官媒不忘扣帽子；川普不忍了，韓正危險了！澳洲強硬政策不下跪；遮天蔽日！數千億蝗蟲真的來了！南方洪災破紀錄，超過北京半年雨【新聞看點李沐陽06.11】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fc9f9b6ae6d1b8443dfb07efc87920be4bd3c48.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4fc9f9b6ae6d1b8443dfb07efc87920be4bd3c48
 
 下载BT种子 [中國大陸以外感染上升至747萬美國國家公園開放日本確認簡化辦奧運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db0605cd7b29acafa561bf05c1df036c7a94a1c4.torrent)
 
@@ -452,10 +456,6 @@
 下载BT种子 [【禁聞】美強硬回擊中共：借非裔之死下流宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a666ee3683ca461ceec38f765e9cf7328b47c5b3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a666ee3683ca461ceec38f765e9cf7328b47c5b3
-
-下载BT种子 [权斗惊人升温！习家军围攻李克强，副主席暗助总理。多名常委卷入混战。默克尔走入迷途.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d0f58518d5e061cdabda34e788914c1f2bd49c0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0d0f58518d5e061cdabda34e788914c1f2bd49c0
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
