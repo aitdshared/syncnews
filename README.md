@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/94zZbO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7px5S7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港國安法緣何從人大常委會六月議程中消失？中共會撤回？拖延，還是特例通過？中美對抗態勢的微妙變化（江峰漫談20200611第187期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddc99b9b9374f30e5676d5e2f33e688bc944c840.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ddc99b9b9374f30e5676d5e2f33e688bc944c840
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十三回青龍關飛虎折兵」廣成子命中註定惹事端多寶道人硬告狀通天教主妒心起四把仙劍-誅戮陷絕界牌關佈下誅仙陣「遲蚤只因天數定空教血淚滴婆娑」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3021952aaec9f20ea7def8a1b3317168bb69e540.torrent)
 
@@ -448,10 +452,6 @@
 下载BT种子 [为什么说中国的社会财富在快速的蒸发？全部蒸发后会是什么样的场景？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b101fb7bcd9811bd710f7e2e9bb0945138f7bd7b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b101fb7bcd9811bd710f7e2e9bb0945138f7bd7b
-
-下载BT种子 [【禁闻】习李斗延伸北京清除李克强地摊经济.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d785df7fc4cfb679be944d25f160474310a30563.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d785df7fc4cfb679be944d25f160474310a30563
 
 下载BT种子 [一周经济回顾：川普接受专访强调法制和秩序.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/502907cc8a4ddf9e22fd975bb0ec38a5ad8fc98a.torrent)
 
