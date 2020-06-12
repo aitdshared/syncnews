@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JRBLij)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/94zZbO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第七十三回青龍關飛虎折兵」廣成子命中註定惹事端多寶道人硬告狀通天教主妒心起四把仙劍-誅戮陷絕界牌關佈下誅仙陣「遲蚤只因天數定空教血淚滴婆娑」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3021952aaec9f20ea7def8a1b3317168bb69e540.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3021952aaec9f20ea7def8a1b3317168bb69e540
 
 下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/983ba605af8757eb7b2ad81d166f72f68d4f66ce.torrent)
 
@@ -452,10 +456,6 @@
 下载BT种子 [一周经济回顾：川普接受专访强调法制和秩序.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/502907cc8a4ddf9e22fd975bb0ec38a5ad8fc98a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:502907cc8a4ddf9e22fd975bb0ec38a5ad8fc98a
-
-下载BT种子 [【新闻周刊】台湾史上首次罢免市长韩国瑜未道歉未受访（第735期202066）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0613a45cf8328c6204658f17408805d81f18849f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0613a45cf8328c6204658f17408805d81f18849f
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
