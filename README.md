@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WS7Owz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cnAlph)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [極左設西雅圖自治區川普促解決無政府狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96fe62c2e28c2efd90fc42d163a6f73ba3cf7460.torrent)
+
+磁力链接 magnet:?xt=urn:btih:96fe62c2e28c2efd90fc42d163a6f73ba3cf7460
+
+下载BT种子 [國際刑事法庭威脅主權美國實施嚴厲制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a8134d1b8e977b86a022941eb78c932dde81f97.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a8134d1b8e977b86a022941eb78c932dde81f97
+
+下载BT种子 [「向伟大过渡」川普推四步驟重建社區安全.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e787b66739d7c3349e83b0217ec62f151439950.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9e787b66739d7c3349e83b0217ec62f151439950
 
 下载BT种子 [事情大了！习近平这张照片真的刷屏了！日本盛传某人雅号。土共超限战：盗疫苗印假钞。巴西怒责世卫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/334c034ca574cd2f52fe7b978ebc41ba1ff517ae.torrent)
 
@@ -444,18 +456,6 @@
 下载BT种子 [💎【中國禁聞】新包裝預告💎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a3205d2b87bc0e51e9040fc3357467795663b7b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6a3205d2b87bc0e51e9040fc3357467795663b7b
-
-下载BT种子 [【Jason快評】臺灣史上首個被罷免市長！從韓國瑜現象，美國騷亂看歷史密碼;失去潤滑劑的中共體系會出現什麼問題？熱點互動06062020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aeb2192a423e1e6be1ff6463ca5b39a41da9bad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7aeb2192a423e1e6be1ff6463ca5b39a41da9bad
-
-下载BT种子 [【環球直擊】台灣創紀錄超93萬票罷免韓國瑜地攤經濟有損中共面子(6月6日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca2d540bc1c9af7b9e2f48ec73aad928a57a95c4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ca2d540bc1c9af7b9e2f48ec73aad928a57a95c4
-
-下载BT种子 [《石濤聚焦》「地攤經濟-李克強習近平內鬥公開衝突」王滬寧-中宣部禁用-地攤經濟蔡奇-北京禁止街頭地攤「李克強現6億人千元再推地攤經濟中共國經濟—瀕臨崩潰！」李克強拒黑鍋留清名與習硬懟（0606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aecb08f5f0ffa73daa710de47cfaa872a671c34.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7aecb08f5f0ffa73daa710de47cfaa872a671c34
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
