@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MspCuy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rSh4EP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平秘带此人外出，又要整人？清查海外关系，亲共分子悬了！各国加紧围猎土共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c14bb8373e4099c6c0b6174a3e3fcd0d032156d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c14bb8373e4099c6c0b6174a3e3fcd0d032156d2
 
 下载BT种子 [【環球直擊】廣西水庫無預警洩洪死傷無數Zoom承認聽從中共指揮(6月12日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b00df0d3b962528dabf092356c56fa30a5c26ec.torrent)
 
