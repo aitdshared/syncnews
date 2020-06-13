@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZpBor1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Om83Vf)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [推特大砍17萬帳戶；Zoom認聽命中共；「工科神器」被禁用，哈工大叫苦連天；「地毯李」遇「城管習」？疫情造假9部曲！200輛軍車將入港，中共要鎮壓？美芯片將本土化，「厲害國」怎麼厲害？【06.12】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9eac5a4636ac8a8419082f6fe07f05496bb11aa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e9eac5a4636ac8a8419082f6fe07f05496bb11aa
 
 下载BT种子 [香港大紀元記者遭人持刀襲擊疑是民建聯幹事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72534824cbabf6d2c8d24e891aaa6bd8f2137ef7.torrent)
 
