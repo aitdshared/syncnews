@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/udcxEN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Xk8B2t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港大紀元記者遭人持刀襲擊疑是民建聯幹事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72534824cbabf6d2c8d24e891aaa6bd8f2137ef7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72534824cbabf6d2c8d24e891aaa6bd8f2137ef7
+
+下载BT种子 [北京連日新增確診中共肺炎疑疫情再起.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b0a8c13fc843dfa2f4aef3cf9ac1f94d01bb1b5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3b0a8c13fc843dfa2f4aef3cf9ac1f94d01bb1b5
 
 下载BT种子 [華府紀念共產受難者蓬佩奧﹕人權關鍵時刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0800026943741a6c552c0b2caac1a6fab672f077.torrent)
 
@@ -512,14 +520,6 @@
 下载BT种子 [捷克宣告加入「跨國議會聯盟」聯手對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4
-
-下载BT种子 [《石濤聚焦》「英國首相約翰遜：將立法嚴禁所有中共國對英國企業的投資收購」原因來自武漢病毒華為與5G港版國安法-300萬BNO與五眼聯盟聯手-抗拒中共（0806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6a4349a12c60fa68864893a235016f4cacd50cd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6a4349a12c60fa68864893a235016f4cacd50cd
-
-下载BT种子 [《石濤聚焦》「全球確診破700萬死亡破40萬」美國近200萬死亡破11萬「大瘟疫與人並生成常態」張文宏：秋冬第二波-逃無可逃（0806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09ade51be4155053a13497e5d94fd7f7ccf61c66.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09ade51be4155053a13497e5d94fd7f7ccf61c66
 
 下载BT种子 [【美國思想領袖】資深研究分析師莎拉‧庫克：如何識別來自中共對病毒的虛假新聞和宣傳？讓人難以相信中共的數據原因？意大利人「謝謝，中國」實際是偽造的？中共利用陰謀論企圖轉移責任焦點！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a9b989c2252a9776c47e76f2cb9a65ed65f91d5.torrent)
 
