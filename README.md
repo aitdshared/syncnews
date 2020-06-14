@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/N860X6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ektCTx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [歐盟：中共是「制度性競爭對手」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e5ad53e1ce629e14a6b8718c48f06c4e512b708.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9e5ad53e1ce629e14a6b8718c48f06c4e512b708
 
 下载BT种子 [北京疫情連環爆新發地45人咽拭子陽性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecaf97dcc969c8bc7941adadec7b211e84f57d9f.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [捷克宣告加入「跨國議會聯盟」聯手對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4
-
-下载BT种子 [【美國思想領袖】資深研究分析師莎拉‧庫克：如何識別來自中共對病毒的虛假新聞和宣傳？讓人難以相信中共的數據原因？意大利人「謝謝，中國」實際是偽造的？中共利用陰謀論企圖轉移責任焦點！#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a9b989c2252a9776c47e76f2cb9a65ed65f91d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a9b989c2252a9776c47e76f2cb9a65ed65f91d5
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
