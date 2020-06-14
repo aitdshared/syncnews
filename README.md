@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TBvRLq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jbCAdQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】護大紀元記者擋刀襲港青感謝真相媒體浙江油罐車大爆炸近200人死傷(6月13日完整版)（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f79bb45bd01c5b91521f17b88a1c70c4ebafb14d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f79bb45bd01c5b91521f17b88a1c70c4ebafb14d
 
 下载BT种子 [內幕！美國明制裁暗開後門，$20億軍火送人情；華爾街大鰐養肥中共，向中共輸血3萬億；豐台疫情「爆發式」，北京戰時狀態；6.12全港抗爭百人同歌，白衫偷襲記者，黑衣男挺身相救【新聞看點06.13】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ec7671cb20e8cc50796528da9783a6cdd994773.torrent)
 
