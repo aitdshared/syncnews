@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xqrsqA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8CCP1U)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「中共國疾控中心流行病學前首席科學家曾光：武漢病毒變種北京病毒非典SARS3.0」再增8例萬人檢測菜架全空美專家「病毒已突變更強傳染力適應人體極出色」（1406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2561c0fb094a5c2bade76e276912c2922a2eab6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f2561c0fb094a5c2bade76e276912c2922a2eab6
 
 下载BT种子 [《石濤聚焦》「新京報：三峽大壩變形驗證2年前王維洛斷言-必垮」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6965ef64c7f16f4985f3b2efdadf44150f3fe6a7.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d84d267b64d0d75f6d0404041bfcf65c62bf425.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7d84d267b64d0d75f6d0404041bfcf65c62bf425
-
-下载BT种子 [傳駐德美軍部分撤離德國防長：未證實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
