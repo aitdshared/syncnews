@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/46DsVU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h1fOSh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第七十四回哼哈二將顯神通」鄧九公陣亡黃天祥被風屍丘引原為鰻魚身陳奇卻有玄妙在「五行道術皆堪并萬劫輪回共此生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e22556ed19414e42c6cafd884f7c35dee56def22.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e22556ed19414e42c6cafd884f7c35dee56def22
 
 下载BT种子 [【美國思想領袖】高級政策總監柯蒂斯·埃利斯：世衛一直接受中共指令，這是中共「感染」世界的經典例子！中共為何不停買空、囤積和限制醫療用品出口？為何說中國共產黨不是中國文化傳統的一部分！大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56671da7d4efd512bd70f02873ef96c6d4c39af6.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d84d267b64d0d75f6d0404041bfcf65c62bf425.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7d84d267b64d0d75f6d0404041bfcf65c62bf425
-
-下载BT种子 [朝韓關係再次急轉直下朝鮮單方面宣布切斷與韓國的通訊熱線.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/991f3207a3a9fd4a5c1e5549e2907a91f66ec54e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:991f3207a3a9fd4a5c1e5549e2907a91f66ec54e
 
 下载BT种子 [港6.12周年集會因限聚令延期籲上街展民意.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15aa0cf9962132bbaae8a617f5412280405ba79a.torrent)
 
