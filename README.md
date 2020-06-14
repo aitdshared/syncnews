@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P5vh0c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7fbgyM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】高級政策總監柯蒂斯·埃利斯：世衛一直接受中共指令，這是中共「感染」世界的經典例子！中共為何不停買空、囤積和限制醫療用品出口？為何說中國共產黨不是中國文化傳統的一部分！大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56671da7d4efd512bd70f02873ef96c6d4c39af6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:56671da7d4efd512bd70f02873ef96c6d4c39af6
 
 下载BT种子 [【Jason快評】中美高層又要會晤，誰撐不下去了？中美關係會回暖嗎？熱點互動06132020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b82204b96884975695a2fd6076b3b39a966e77b0.torrent)
 
