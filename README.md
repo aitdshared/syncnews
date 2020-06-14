@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aitwi7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TBvRLq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [內幕！美國明制裁暗開後門，$20億軍火送人情；華爾街大鰐養肥中共，向中共輸血3萬億；豐台疫情「爆發式」，北京戰時狀態；6.12全港抗爭百人同歌，白衫偷襲記者，黑衣男挺身相救【新聞看點06.13】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ec7671cb20e8cc50796528da9783a6cdd994773.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ec7671cb20e8cc50796528da9783a6cdd994773
 
 下载BT种子 [《台灣防衛法》呼之欲出，中共三十年武統台灣的軍事戰略一朝作廢；美台建交、美駐軍台灣大動作將紛至沓來；鳳凰衛視上外交使團名單影響重大（江峰漫談20200613第189期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ad8c02af5f810a77e2390100f6fde137dfbc72.torrent)
 
@@ -600,10 +604,6 @@
 下载BT种子 [傳駐德美軍部分撤離德國防長：未證實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ccb4f87c3d3f70c0b925f66e7d805b5bfa874efb
-
-下载BT种子 [台灣撐香港週四擬公布人道援助行動專案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a063d91d29c4babed1ad5d03057de3331102f269.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a063d91d29c4babed1ad5d03057de3331102f269
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
