@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JUI3uZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qkv483)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [隱瞞身分的中共軍官在美國搞間諜活動試圖攜帶機密離境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39a1af1be4d236286eb8f550d829ede18a1955df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39a1af1be4d236286eb8f550d829ede18a1955df
 
 下载BT种子 [謝金河警告港股中國化！港財經專家渾水談港資退場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b614bcbd4061e921bdf08f5bfc2ae384eec560e4.torrent)
 
