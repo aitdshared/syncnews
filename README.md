@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/G95Kdi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BvSp8a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月12日完整版🔥沒錢了中共推「大額現金管理」共軍少校隱瞞身份竊密洛杉磯機場被抓李文亮遺腹子出世中國網民再聚「哭牆」雲南楚雄警方搶劫王藏妻ZOOM變中共防火牆.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c78d71f4a06e519ddc910c6be62d537b57350af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c78d71f4a06e519ddc910c6be62d537b57350af
+
+下载BT种子 [ZOOM變防火牆聽命中共封殺紀念六四帳號.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e878c89440fba09635f24ca828252deb26ba52b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e878c89440fba09635f24ca828252deb26ba52b
+
+下载BT种子 [沒錢了！中共推「大額現金管理」監控百姓錢包.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/682cdc0a5a8c1a495e57fcad70d7ca23b0ab60ec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:682cdc0a5a8c1a495e57fcad70d7ca23b0ab60ec
+
+下载BT种子 [中共軍官隱瞞身份竊密美國被捕李文亮遺腹子出世中國網民再聚「哭牆」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/721e56df959dfae2d221199783f9e24bfc88ac98.torrent)
+
+磁力链接 magnet:?xt=urn:btih:721e56df959dfae2d221199783f9e24bfc88ac98
 
 下载BT种子 [歐盟：中共是「制度性競爭對手」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e5ad53e1ce629e14a6b8718c48f06c4e512b708.torrent)
 
@@ -553,10 +569,6 @@
 
 磁力链接 magnet:?xt=urn:btih:991f3207a3a9fd4a5c1e5549e2907a91f66ec54e
 
-下载BT种子 [【百姓自拍】時實事件！6月9日，早上9點多！武漢武昌和平大道塔吊塌了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9eb2bf746b3b2c1ce0f1e457fdf91740694ef3d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9eb2bf746b3b2c1ce0f1e457fdf91740694ef3d5
-
 下载BT种子 [港6.12周年集會因限聚令延期籲上街展民意.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15aa0cf9962132bbaae8a617f5412280405ba79a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:15aa0cf9962132bbaae8a617f5412280405ba79a
@@ -572,10 +584,6 @@
 下载BT种子 [英國及歐盟擬立法應對中共經濟威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32e1b03b0edf1c9bfec855bcf99529603bcc494a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:32e1b03b0edf1c9bfec855bcf99529603bcc494a
-
-下载BT种子 [捷克宣告加入「跨國議會聯盟」聯手對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de8fe912d473a07cc8f23bcfcb1f899bcca5c4d4
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
