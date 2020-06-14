@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/31PTQN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xqrsqA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「新京報：三峽大壩變形驗證2年前王維洛斷言-必垮」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6965ef64c7f16f4985f3b2efdadf44150f3fe6a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6965ef64c7f16f4985f3b2efdadf44150f3fe6a7
 
 下载BT种子 [好孤独、好伤心，意识形态和家人不同，很多朋友找我诉苦，聊聊我的解决方案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1d3c3ba6870131fbd7e06f6449cc83c7477f52d.torrent)
 
