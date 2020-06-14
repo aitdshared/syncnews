@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/slqK3u)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kfjB8r)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《台灣防衛法》呼之欲出，中共三十年武統台灣的軍事戰略一朝作廢；美台建交、美駐軍台灣大動作將紛至沓來；鳳凰衛視上外交使團名單影響重大（江峰漫談20200613第189期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ad8c02af5f810a77e2390100f6fde137dfbc72.torrent)
+
+磁力链接 magnet:?xt=urn:btih:97ad8c02af5f810a77e2390100f6fde137dfbc72
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十四回哼哈二將顯神通」鄧九公陣亡黃天祥被風屍丘引原為鰻魚身陳奇卻有玄妙在「五行道術皆堪并萬劫輪回共此生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e22556ed19414e42c6cafd884f7c35dee56def22.torrent)
 
