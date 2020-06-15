@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zgcYao)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tqbOE4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月14日完整版🔥北京疫情持續擴散涉及幾十萬人浙江油罐車大爆炸傷亡慘重官方涉瞞報？法國戴高樂號為「海上瘟艦」鄭州也爆疫情？大型農貿市場突被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b6c5ab626af9bdb2f67fb0ace366995778aef82.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1b6c5ab626af9bdb2f67fb0ace366995778aef82
 
 下载BT种子 [华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆第328集20200614）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6807a4fcf249e9eac17b39aa139b104081779982.torrent)
 
@@ -576,10 +580,6 @@
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7229f5c457d864e37afe1857f14fa053e2e364fa
-
-下载BT种子 [【中國解密】youtube一直在幫中共刪除敏感言論美國開始認真對抗中共中共可能在巴基斯坦建海軍基地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0321a8a3f0fd855f74f6f523ed8a26edef35d3f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0321a8a3f0fd855f74f6f523ed8a26edef35d3f
 
 下载BT种子 [【新唐人重播】610台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23053c06b5e206fa295f838dc5e799c87b907c6f.torrent)
 
