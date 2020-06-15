@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bg0IwR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jxj5Al)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平紧张，为此事调集大量军警！浙江出大事。特朗普西点军校演讲引热议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a16071df9caf4afc5846cbcd03f03b270e539a7f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a16071df9caf4afc5846cbcd03f03b270e539a7f
 
 下载BT种子 [《石濤聚焦》「華為刊登向松祚舊文任正非-反習陣營前頭兵？」18金句-嘲諷中國夢諷刺中國製造2025反對「為國爭光」民粹害國「任正非脫身之計為中共滅亡之後事華為所為-習近平之主」（1406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9985763d02f3aa904ce13a0195c471d732a7fd25.torrent)
 
@@ -564,10 +568,6 @@
 下载BT种子 [【中國解密】youtube一直在幫中共刪除敏感言論美國開始認真對抗中共中共可能在巴基斯坦建海軍基地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0321a8a3f0fd855f74f6f523ed8a26edef35d3f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d0321a8a3f0fd855f74f6f523ed8a26edef35d3f
-
-下载BT种子 [【唐靖遠快評】危機壓頂，中宣部出密令要搞亂美國！李克強，郝海東，蔡霞：近期3件大事的主角有何內在聯繫？熱點互動06092020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82e965606c06d28b94515ae0c0e01db82972116a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:82e965606c06d28b94515ae0c0e01db82972116a
 
 下载BT种子 [任正非批中共「砸錢不行」，吃誠實豆沙包？世衛爆料：中共「重大拖延」；譚書記變譚總機，當機10秒；張曉明「殺氣騰騰」，預示加大鎮壓力度？去年8月病毒已傳播？哈佛2大證據【新聞看點李沐陽06.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec763ff0457374fd8d938ec44768c1b21323920b.torrent)
 
