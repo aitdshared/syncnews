@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/COgqm1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vrz4Sv)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習近平生日過萬名香港人紀念梁凌杰逝世1周年」追加——陶傑黃耀明親臨金鐘祭壇獻花：「今晚太古廣場藍穹燈海黃花碧血遠去了的人我們想念你」習近平懼怕北京逃至甘肅（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fdb7c35758f3c9eccdfc3bf0eaf9312e9367811.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3fdb7c35758f3c9eccdfc3bf0eaf9312e9367811
+
+下载BT种子 [聲援15位民主派人士港人悼念梁凌杰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f1cd411aa05be6bf7359cf90200183f1c82342a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f1cd411aa05be6bf7359cf90200183f1c82342a
+
+下载BT种子 [中美外交會談前蓬佩奧：中共威脅自由人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b83dbd1f1472f6de9ac2ef8c4944629f295bfe3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0b83dbd1f1472f6de9ac2ef8c4944629f295bfe3
 
 下载BT种子 [川普西點軍校2020畢業禮演說：敢做對的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf716614162c59e2c31b65c16547ced16271a58c.torrent)
 
@@ -608,10 +620,6 @@
 下载BT种子 [《中國日報》斥巨資在美國媒體進行宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6c58a1cb595171ac8137004a51991c5823d2496.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6c58a1cb595171ac8137004a51991c5823d2496
-
-下载BT种子 [中印冲突，中方败退！原因神秘，习近平害怕一件事。多少个不准？中共进入崇祯时刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a3e3520885b3cca3c8c83cf9ddb955ff96210c6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0a3e3520885b3cca3c8c83cf9ddb955ff96210c6
 
 下载BT种子 [《石濤聚焦》「今日下午——英國首相約翰遜：英國須向中國提出香港病毒來源等嚴重關切問題」歐盟今日公開指控中共國「散佈疫情假消息：推卸責任掩蓋真相坑害世界」（1006）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9258e98cf18c91c89fc765d7016e7893731be26f.torrent)
 
