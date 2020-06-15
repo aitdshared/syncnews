@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5tzAz8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JIXcsz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「中央統計局力挺李克強：6.1億國人月收入957.00」習近平保命離京統計局趁機報數據：總理所言據實「大家都是反習勢力？習近平另類生日快樂！」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e23f8f4cb73cb4857207c3c4f9d7dc8fb041b00e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e23f8f4cb73cb4857207c3c4f9d7dc8fb041b00e
 
 下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59feb6d4734ea7dafcd38df79545e3d3a12a1cea.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [抗極權是責任港勇武派：堅持才有未來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dbfccaca1ef2368320139c31dc23088e6088edc9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dbfccaca1ef2368320139c31dc23088e6088edc9
-
-下载BT种子 [反送中周年遊行港警胡椒噴霧53人遭捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5c9cc59b2a1a2c5b3ed2a23b68d8b875ee491aa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5c9cc59b2a1a2c5b3ed2a23b68d8b875ee491aa
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
