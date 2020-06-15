@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E0B0Is)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zgcYao)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆第328集20200614）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6807a4fcf249e9eac17b39aa139b104081779982.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6807a4fcf249e9eac17b39aa139b104081779982
 
 下载BT种子 [【環球直擊】黑人酒駕男搶警槍被射亡亞特蘭大警方公布視頻蓬佩奧夏威夷或會晤楊潔篪（6月14日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e833cc4a3e2fa054564bed27aabfc38a63034665.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [【中國禁聞】6月9日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ae07340ef9ccb78f4d51a847fc20f3d3a48c627.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6ae07340ef9ccb78f4d51a847fc20f3d3a48c627
-
-下载BT种子 [紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d84d267b64d0d75f6d0404041bfcf65c62bf425.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7d84d267b64d0d75f6d0404041bfcf65c62bf425
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
