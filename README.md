@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/y3AcCr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LhQlfq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「習近平生日獲大禮：王滬寧送-21世紀馬克思主義」蔡奇-北京病毒戰時狀態美媒-生吞香港「習近平懼怕染病賊隱寧夏」比肩馬克思圈兒畫圓了——方得始終「2020天滅中共在劫難逃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e32b87d27a023650c3a4b1eb0537bf7b60be3f1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3e32b87d27a023650c3a4b1eb0537bf7b60be3f1
 
 下载BT种子 [【環球直擊】浙江槽罐車爆炸死亡人數攀升台積電組化學品聯軍3大業者搶赴美設廠(6月15日完整版1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8890023544e28b2e833d3a482ac9e9fb3576cda.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【禁闻】反送中周年港人集会警方拘捕多人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/488e4bbb65272b002229080350b10dbf7e7a0bf0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:488e4bbb65272b002229080350b10dbf7e7a0bf0
-
-下载BT种子 [美港抗爭本質不同香港人已無路可退.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90bb4d09484efa745f2012eba10265b4fe6a1ce4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90bb4d09484efa745f2012eba10265b4fe6a1ce4
 
 下载BT种子 [【禁闻】哈佛學者新發現衛星圖像與關鍵詞藏秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8ad78510dcf7e6554309d8b969e5fc6a7d4c347.torrent)
 
