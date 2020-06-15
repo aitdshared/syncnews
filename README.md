@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1CTwCT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xwxPkW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [牽動美大選烏克蘭天然氣公司巨額貪腐案落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/397e1b747627479082f851ff7e8733466c134a25.torrent)
+
+磁力链接 magnet:?xt=urn:btih:397e1b747627479082f851ff7e8733466c134a25
 
 下载BT种子 [華為遭棄5G將成中西方分水嶺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a6d121a8d242c6798063a24d47d3e8f6da40728.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「6.10習近平寧夏-臨淵凝視：冥冥之覺死期降至」人大常委18-20開會議題沒有「港版國安法」9.6香港立法會選舉日已定7.18-31報名「習近平一個人說了算—鬧什麼鬼？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/100cd7736cb606b86e6517a79e5805d2389b4e6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:100cd7736cb606b86e6517a79e5805d2389b4e6b
-
-下载BT种子 [【禁闻】哈佛學者新發現衛星圖像與關鍵詞藏秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8ad78510dcf7e6554309d8b969e5fc6a7d4c347.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b8ad78510dcf7e6554309d8b969e5fc6a7d4c347
 
 下载BT种子 [重慶人權企業家煽顛案開庭警方打壓支持者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a500f36fac78a055139728b2d3b80db3fe879a2c.torrent)
 
