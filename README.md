@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/obi8J6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E0B0Is)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】黑人酒駕男搶警槍被射亡亞特蘭大警方公布視頻蓬佩奧夏威夷或會晤楊潔篪（6月14日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e833cc4a3e2fa054564bed27aabfc38a63034665.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e833cc4a3e2fa054564bed27aabfc38a63034665
 
 下载BT种子 [封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重(政论天下第181集20200614)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b06e5d58821ef3f8604820370dc63565e2d7592.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [【全球新闻】6月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4
-
-下载BT种子 [大亨一語驚人：中國11億人無消費能力！倖存者偏差；習近平最怕的俄羅斯反水將到來？（文昭談古論今20200606第767期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/81710a62d87258b2be6672255b98b3d8fc187287.torrent)
-
-磁力链接 magnet:?xt=urn:btih:81710a62d87258b2be6672255b98b3d8fc187287
 
 下载BT种子 [【环球直击】6月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a1e9a61867e37f03ed7ab539097f47fb777c19.torrent)
 
