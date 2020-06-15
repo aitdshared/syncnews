@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I24g7Y)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NKlrrW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [浙江油罐車大爆炸傷亡慘重官方涉瞞報？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1484b5e20f431505a97df5d19edc1db4fe241386.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1484b5e20f431505a97df5d19edc1db4fe241386
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十五回土行孫盜騎陷身」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71e3fc82096c086548ef304b6c9d3288dbff4650.torrent)
 
@@ -592,10 +596,6 @@
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7229f5c457d864e37afe1857f14fa053e2e364fa
-
-下载BT种子 [地攤經濟，百姓的無奈與中共的謀算；習李不是內鬥而是攜手左轉，開啟中共新閉關鎖國時代；香港反送中一週年（江峰漫談20200609第186期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7677f2f9c133b35b0f954c410c0ab1fa70dce6f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7677f2f9c133b35b0f954c410c0ab1fa70dce6f4
 
 下载BT种子 [【全球新闻】6月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4.torrent)
 
