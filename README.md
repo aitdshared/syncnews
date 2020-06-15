@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KuxRb7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6Ou71a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [全球近8百萬人感染中共病毒歐洲開放邊界俄羅斯、巴西等地疫情仍然嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1441b63303579bd2098e61230822943d32dc0988.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1441b63303579bd2098e61230822943d32dc0988
+
+下载BT种子 [十國聯手抗中共百餘政要加入「跨國議會聯盟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/036ce097a0623c70b4319fd15c588e09c5dc7f03.torrent)
+
+磁力链接 magnet:?xt=urn:btih:036ce097a0623c70b4319fd15c588e09c5dc7f03
+
+下载BT种子 [朝鮮威脅報復韓國韓召開緊急安全會議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6562466fac2c4ab001c17b01daeebe511cf62562.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6562466fac2c4ab001c17b01daeebe511cf62562
 
 下载BT种子 [《石濤聚焦》「北京大淪陷習近平逃亡寧夏：全城戰時狀態敲門大排查」7120社區10萬人投入封鎖21個社區9萬人79例涵蓋北京八個區「病毒可能來自假三文魚-虹鱒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f8810ef3a9f7831457c95159dd18ce15ca79665.torrent)
 
@@ -604,10 +616,6 @@
 下载BT种子 [【禁闻】确诊人数激增俄罗斯为何疫情逆转？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42e683df814daa53c06200b488b26e2d25d32d5c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:42e683df814daa53c06200b488b26e2d25d32d5c
-
-下载BT种子 [【禁闻】中共调整外宣口径绝口不提或全力煽动.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/677f6c3ae8a5b17868602f4eebf7b2bc0fe53c77.torrent)
-
-磁力链接 magnet:?xt=urn:btih:677f6c3ae8a5b17868602f4eebf7b2bc0fe53c77
 
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
