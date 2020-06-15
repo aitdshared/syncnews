@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nYB2I7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ceg8i8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】浙江槽罐車爆炸死亡人數攀升台積電組化學品聯軍3大業者搶赴美設廠(6月15日完整版1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8890023544e28b2e833d3a482ac9e9fb3576cda.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8890023544e28b2e833d3a482ac9e9fb3576cda
+
+下载BT种子 [一週經濟回顧：中國地攤經濟要恢復北京城管取締地攤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6a049def3ac96c20e7ee742f0f11eead9cbd308.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e6a049def3ac96c20e7ee742f0f11eead9cbd308
 
 下载BT种子 [【禁聞】法國戴高樂號為何淪為「海上瘟艦」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357.torrent)
 
@@ -585,10 +593,6 @@
 
 磁力链接 magnet:?xt=urn:btih:90bb4d09484efa745f2012eba10265b4fe6a1ce4
 
-下载BT种子 [疫情下英國狗市大熱衆人盼狗寶寶相伴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/118ce966c0a1ad929f34692a500f6e1eccd9b2b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:118ce966c0a1ad929f34692a500f6e1eccd9b2b0
-
 下载BT种子 [【禁闻】哈佛學者新發現衛星圖像與關鍵詞藏秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8ad78510dcf7e6554309d8b969e5fc6a7d4c347.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b8ad78510dcf7e6554309d8b969e5fc6a7d4c347
@@ -604,10 +608,6 @@
 下载BT种子 [【禁闻】中共调整外宣口径绝口不提或全力煽动.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/677f6c3ae8a5b17868602f4eebf7b2bc0fe53c77.torrent)
 
 磁力链接 magnet:?xt=urn:btih:677f6c3ae8a5b17868602f4eebf7b2bc0fe53c77
-
-下载BT种子 [瑞典外國投資新立法阻止中共恶意扩张.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28ebc1404b909a68d559e26d1330ac29dac5e47f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28ebc1404b909a68d559e26d1330ac29dac5e47f
 
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
