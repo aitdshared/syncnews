@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T3TCsf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1CTwCT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [華為遭棄5G將成中西方分水嶺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a6d121a8d242c6798063a24d47d3e8f6da40728.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a6d121a8d242c6798063a24d47d3e8f6da40728
+
+下载BT种子 [54學者涉千人計劃被開除美國NIH還在查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf43b25dba5861287404319b9de99c6a5397e352.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf43b25dba5861287404319b9de99c6a5397e352
 
 下载BT种子 [全球近8百萬人感染中共病毒歐洲開放邊界俄羅斯、巴西等地疫情仍然嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1441b63303579bd2098e61230822943d32dc0988.torrent)
 
@@ -612,10 +620,6 @@
 下载BT种子 [重慶人權企業家煽顛案開庭警方打壓支持者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a500f36fac78a055139728b2d3b80db3fe879a2c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a500f36fac78a055139728b2d3b80db3fe879a2c
-
-下载BT种子 [【禁闻】确诊人数激增俄罗斯为何疫情逆转？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/42e683df814daa53c06200b488b26e2d25d32d5c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:42e683df814daa53c06200b488b26e2d25d32d5c
 
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
