@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HjqZQD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/htvHCt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習近平生日：身穿黃色雨衣的梁凌杰死諫政府週年祭典」萬人聚集香江才子陶傑：今晚太古廣場藍穹燈海黃花碧血遠去了的人我們想念你（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba89cc4e94cc068184dab9826237cd7defb4eb85.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ba89cc4e94cc068184dab9826237cd7defb4eb85
 
 下载BT种子 [《石濤.News》「習近平生日禮讚“21世紀馬克思主義”」蔡奇贈送“全城戰時狀態”習近平領情早早藏到甘肅「中南海-玉泉山已成最危險地段」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d68c40844135d9c9ad394e5ceaef8ee05409ebb.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [川普維護美國傳統拒絕爲軍事基地更名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a05951d0769d5d9d48c8a15d290f8527fd02ade.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2a05951d0769d5d9d48c8a15d290f8527fd02ade
-
-下载BT种子 [中共核武老兵染疫去世其家屬向武漢中院控告政府隱瞞疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb8a1aaa3048e453bb772d57c8004c82c194281a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb8a1aaa3048e453bb772d57c8004c82c194281a
 
 下载BT种子 [中國南方11省水災影響超過260萬人災民批政府不作為也不報導.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da02deb8f49d90b8c6c37b04e8966be454dd1755.torrent)
 
