@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vrz4Sv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AitLZn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「北京大淪陷習近平逃亡寧夏：全城戰時狀態敲門大排查」7120社區10萬人投入封鎖21個社區9萬人79例涵蓋八個城區病毒來自虹鱒？「天滅中共：最早感染-5.28最早發病-6.4」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38013b32130d6e1e061763fb9ba53e3b36edf8e0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:38013b32130d6e1e061763fb9ba53e3b36edf8e0
 
 下载BT种子 [《石濤聚焦》「習近平生日過萬名香港人紀念梁凌杰逝世1周年」追加——陶傑黃耀明親臨金鐘祭壇獻花：「今晚太古廣場藍穹燈海黃花碧血遠去了的人我們想念你」習近平懼怕北京逃至甘肅（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fdb7c35758f3c9eccdfc3bf0eaf9312e9367811.torrent)
 
@@ -616,18 +620,6 @@
 下载BT种子 [中共逼迫匯豐和英國蓬佩奧發聲明強硬回擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0203349eeda9d823f2c842f284af3d153c65d3c3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0203349eeda9d823f2c842f284af3d153c65d3c3
-
-下载BT种子 [《中國日報》斥巨資在美國媒體進行宣傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6c58a1cb595171ac8137004a51991c5823d2496.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f6c58a1cb595171ac8137004a51991c5823d2496
-
-下载BT种子 [《石濤聚焦》「今日下午——英國首相約翰遜：英國須向中國提出香港病毒來源等嚴重關切問題」歐盟今日公開指控中共國「散佈疫情假消息：推卸責任掩蓋真相坑害世界」（1006）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9258e98cf18c91c89fc765d7016e7893731be26f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9258e98cf18c91c89fc765d7016e7893731be26f
-
-下载BT种子 [《石濤聚焦》「6.10習近平寧夏-臨淵凝視：冥冥之覺死期降至」人大常委18-20開會議題沒有「港版國安法」9.6香港立法會選舉日已定7.18-31報名「習近平一個人說了算—鬧什麼鬼？」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/100cd7736cb606b86e6517a79e5805d2389b4e6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:100cd7736cb606b86e6517a79e5805d2389b4e6b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
