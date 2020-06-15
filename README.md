@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uDFpI8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zej03t)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】法國戴高樂號為何淪為「海上瘟艦」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357
+
+下载BT种子 [【禁聞】鄭州也爆疫情？大型農貿市場突被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a5d626c8119cd3feb2d10f7928fcd0e84cd9950.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7a5d626c8119cd3feb2d10f7928fcd0e84cd9950
+
+下载BT种子 [【禁聞】美國再限制4家中共官媒制裁33家實體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4b328bb4ca440f92aa071b1600bcd222b9b058.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7b4b328bb4ca440f92aa071b1600bcd222b9b058
 
 下载BT种子 [【美國思想領袖】美國對沖基金海曼基金創始人凱爾·巴斯：🇭🇰香港銀行危機將至！瘟疫過後，美、中、港的經濟會發生什麽？為何香港局勢格外凶險？🦠有何證據能證明中共應當為瘟疫負責？#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/135f6d451ed0f0b28927c721b950e1dcfe504ad3.torrent)
 
@@ -577,10 +589,6 @@
 
 磁力链接 magnet:?xt=urn:btih:118ce966c0a1ad929f34692a500f6e1eccd9b2b0
 
-下载BT种子 [中共病毒病例清零新西蘭全球率先解封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edc6b08aeda6c4c6ad0837635dbd51dcf9124fb4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:edc6b08aeda6c4c6ad0837635dbd51dcf9124fb4
-
 下载BT种子 [【禁闻】哈佛學者新發現衛星圖像與關鍵詞藏秘密.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8ad78510dcf7e6554309d8b969e5fc6a7d4c347.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b8ad78510dcf7e6554309d8b969e5fc6a7d4c347
@@ -604,14 +612,6 @@
 下载BT种子 [【禁闻】中共限党员20条“不准”三大信息解读.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7229f5c457d864e37afe1857f14fa053e2e364fa.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7229f5c457d864e37afe1857f14fa053e2e364fa
-
-下载BT种子 [【全球新闻】6月9日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d1a75e0e3db1b5b86098a400ae7f1abd5d67bcf4
-
-下载BT种子 [【环球直击】6月10日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a1e9a61867e37f03ed7ab539097f47fb777c19.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a1a1e9a61867e37f03ed7ab539097f47fb777c19
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
