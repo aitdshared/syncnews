@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/y68V6S)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QdFsRa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蓬佩奧、楊潔篪夏威夷密談，北朝鮮突發戰爭威脅配合；香港國安法中美不讓步談什麼呢？二次疫情爆發選擇了北京（江峰漫談20200615第190期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60175b7b844190b18675cbf9b1033a2190961717.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60175b7b844190b18675cbf9b1033a2190961717
 
 下载BT种子 [北京是真害怕了，一篇文章信息量太大；要见彭佩奥，是不是要先道个歉啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/890f995a4efbdbb6cc13902f8a96166a2f4a7518.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【新唐人重播】6.11美國務卿及內閣成員聯合新聞發布會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8178d4432c7e19fac23fb5d3bb5be186a93a4cbc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8178d4432c7e19fac23fb5d3bb5be186a93a4cbc
-
-下载BT种子 [我称呼郭文贵加了“先生”二字，没想到引来这么大争议，聊聊中国社会当下最需要什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62a137562027a6e8c89654ca26e2606a34cb1fa2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:62a137562027a6e8c89654ca26e2606a34cb1fa2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
