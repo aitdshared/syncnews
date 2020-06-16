@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PAntDs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7awD2a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「6月21日-日環食恰遇瑪雅日曆的-世界末日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40656fc0a49d40272ae09add0b4a767aa596b7d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:40656fc0a49d40272ae09add0b4a767aa596b7d4
 
 下载BT种子 [中共跪了？楊潔篪將訪美，趙立堅態度放軟；3航母集結印太，美警告不怕開戰；袁爸爸投入「滅共行動」；李克強藉口請辭習批准？北京成疫原地，幾十萬潛在攜帶者，市民瘋狂搶購蔬菜潮！【新聞看點李沐陽06.15】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd52d4c2a9ddc9262a2b9845000e90dd057d23a9.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁聞】關鍵轉折!北約呼籲全球共同對抗中共勢力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63de7970c2a7de6fbd3437b73c0b194fb7a8ff42.torrent)
 
 磁力链接 magnet:?xt=urn:btih:63de7970c2a7de6fbd3437b73c0b194fb7a8ff42
-
-下载BT种子 [【禁聞】「六個不許」鎖牢海南自貿港自由嗎.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1ca554a62ff4547732445863f0aa3a329b35e1f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f1ca554a62ff4547732445863f0aa3a329b35e1f
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
