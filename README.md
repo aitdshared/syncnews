@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mx0Ztl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/y68V6S)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京是真害怕了，一篇文章信息量太大；要见彭佩奥，是不是要先道个歉啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/890f995a4efbdbb6cc13902f8a96166a2f4a7518.torrent)
+
+磁力链接 magnet:?xt=urn:btih:890f995a4efbdbb6cc13902f8a96166a2f4a7518
 
 下载BT种子 [【禁聞】中國南方洪災觸目驚心中共媒體視而不見只報美國暴亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a038cc4a5a9b2e31dbf0e990cb5133910514a53.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [我称呼郭文贵加了“先生”二字，没想到引来这么大争议，聊聊中国社会当下最需要什么？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/62a137562027a6e8c89654ca26e2606a34cb1fa2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:62a137562027a6e8c89654ca26e2606a34cb1fa2
-
-下载BT种子 [谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声(政论天下第179集20200610)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/306721b1d72adae2c997004876414b860fdc0103.torrent)
-
-磁力链接 magnet:?xt=urn:btih:306721b1d72adae2c997004876414b860fdc0103
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
