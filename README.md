@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pnrb3v)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/697r8o)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】中國24省洪災南京等地也被淹大陸五毛變二毛（6月16日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e546d568e277dfb31916ffb3aace6a04b38c1e23.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e546d568e277dfb31916ffb3aace6a04b38c1e23
 
 下载BT种子 [香港知名實業家發力，推動美國將中共定為「犯罪集團」！與班農會面，聯手滅共；中美夏威夷會晤：中共要退讓但或許已經太晚袁弓夷蕭恩熱點互動06152020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92f289a6d7cb5da812336fcf7565297c7a4bb3a3.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [維園悼六四何俊仁李卓人等人被控煽惑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ccd1711dc12c5a5fb98615e8db75b79a29c2487d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ccd1711dc12c5a5fb98615e8db75b79a29c2487d
-
-下载BT种子 [《石濤聚焦》「美佛洛依德死引發騷亂未來會付出極大死亡代價」FOX新聞：無症狀高度傳染大批人無法設防接觸再爆發幾乎肯定「黑人已不幸成為中共病毒攻擊對象」大騷亂持續-神奇的14天（1106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/08c45ed4d2efeb70f94f18d8ae676f5193c27092.torrent)
-
-磁力链接 magnet:?xt=urn:btih:08c45ed4d2efeb70f94f18d8ae676f5193c27092
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
