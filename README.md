@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/14duWA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Y0bOfZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [袁弓夷與班農聯手推「天滅中共」行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ff2247395e0edf00524c853bcf49e8082abfd68.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3ff2247395e0edf00524c853bcf49e8082abfd68
+
+下载BT种子 [市場憂二波疫情衝擊庫德洛：經濟正在反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a48c02302bf7166137b555061f6f1e0304f75e4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a48c02302bf7166137b555061f6f1e0304f75e4
+
+下载BT种子 [罕見﹗美三航母同聚太平洋警告中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41b0114ca69d78e564443ec03bf34936e612f893.torrent)
+
+磁力链接 magnet:?xt=urn:btih:41b0114ca69d78e564443ec03bf34936e612f893
+
+下载BT种子 [世界最古老動物園倫敦動物園重新開放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/079ddf016ab464d72231a60b344801e6850097f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:079ddf016ab464d72231a60b344801e6850097f3
 
 下载BT种子 [【環球直擊】北京疫情隔離數萬人浙江槽罐車爆炸中美外交會談(6月5日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6636b97167fbba13d89b0edb597b3ba63e064a0e.torrent)
 
@@ -608,22 +624,6 @@
 下载BT种子 [习近平宁夏视察大坑，回应李克强？反共捷克议长宣布赴台；中共党官20个不准出台！（老北京茶馆第326集20200610）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8f5b7c695c33ef321db55b0f0ea50833670e1b4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c8f5b7c695c33ef321db55b0f0ea50833670e1b4
-
-下载BT种子 [匯豐下跪，蓬佩奧砲轟中共；習總加速師凝視大坑？61歲楊麗萍被「催生」？中共摸底海外關係？4年砸1900萬美元宣傳；美國吊銷中企電信運營許可？安倍關注香港將主導G7聲明【新聞看點李沐陽06.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35f4aa3210ae458bc9aea17be269a30a72930515.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35f4aa3210ae458bc9aea17be269a30a72930515
-
-下载BT种子 [巴西疫情嚴重指責世衛俄解禁將紅場閲兵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea176e04398beb46f72740c7287bd93339a9d6e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea176e04398beb46f72740c7287bd93339a9d6e1
-
-下载BT种子 [美宗教自由報告蓬佩奧抨擊中共加劇鎮壓宗教信仰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1c4b40d10af42b4ff3559dab128b973c3c2b982.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a1c4b40d10af42b4ff3559dab128b973c3c2b982
-
-下载BT种子 [川普維護美國傳統拒絕爲軍事基地更名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a05951d0769d5d9d48c8a15d290f8527fd02ade.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2a05951d0769d5d9d48c8a15d290f8527fd02ade
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
