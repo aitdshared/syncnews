@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7awD2a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GH1R0R)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「北京疫情WHO完全與北京不同調？」確診：北京-90個譚德塞-超過100病毒來源：北京-三文魚或三文魚包裝運輸-歐洲版WHO主任-完全是假設「病毒基因序尚未給予WHO」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72b57dc50a8ec2111fa2e15a02b1a2d51b7b0156.torrent)
+
+磁力链接 magnet:?xt=urn:btih:72b57dc50a8ec2111fa2e15a02b1a2d51b7b0156
 
 下载BT种子 [《石濤聚焦》「6月21日-日環食恰遇瑪雅日曆的-世界末日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40656fc0a49d40272ae09add0b4a767aa596b7d4.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【微視頻】躲病毒追責中共賄77國同時打澳洲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc7e8275e385963065b7d03f55da23fb7167ce3b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc7e8275e385963065b7d03f55da23fb7167ce3b
-
-下载BT种子 [【禁聞】花錢大外宣《中國日報》四年付美媒1900萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3531a6c3c305c05ba37249a31b943c12fe8cf1d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a3531a6c3c305c05ba37249a31b943c12fe8cf1d
 
 下载BT种子 [【禁聞】關鍵轉折!北約呼籲全球共同對抗中共勢力.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/63de7970c2a7de6fbd3437b73c0b194fb7a8ff42.torrent)
 
