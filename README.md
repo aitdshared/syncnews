@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Fdh3TV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OzxQNp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「金與正下令兩韓聯絡處被炸毀」金正恩「假神隱實則非死即殘」金與正已大權獨攬「一切都是演戲為朝鮮人接受其權力鋪墊而已」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/968968442202dd55260d1e7e419ef164ca267511.torrent)
+
+磁力链接 magnet:?xt=urn:btih:968968442202dd55260d1e7e419ef164ca267511
+
+下载BT种子 [《石濤聚焦》「中印邊界軍人大衝突：印度3死中共國5死11傷」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/afa24e3e7ae973f07a2698af0887f0ae583bb0e2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:afa24e3e7ae973f07a2698af0887f0ae583bb0e2
 
 下载BT种子 [《石濤.News》「新發地原名新墳地不寒而慄之感」12日台灣外交部悄悄發文要求所有駐外使節名片上不得使用「台灣」兩字只有「中華民國」標誌確保「“天滅中共”後回歸大陸」之正統性（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9840f4b32ecd69536f5fbc5c31dea7c41e6c44a.torrent)
 
@@ -601,10 +609,6 @@
 
 磁力链接 magnet:?xt=urn:btih:e0a72ce50e0c7492d189f456980ea2ccf080c37d
 
-下载BT种子 [重新領軍高速網絡美軍方研發與民間項目齊頭並進.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef45a63d64f5a5962b8c4956eb53b8505319eb48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ef45a63d64f5a5962b8c4956eb53b8505319eb48
-
 下载BT种子 [美國務卿蓬佩奧發布《2019年度國際宗教自由報告》（節選有關中國問題中文字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09ab70d1053ce552d6335f8e828ff15141656bf7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:09ab70d1053ce552d6335f8e828ff15141656bf7
@@ -612,10 +616,6 @@
 下载BT种子 [歐盟阻疫情假新聞點名中共俄羅斯造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fd213c7b18b033c9dac78416d431f94b2019be0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4fd213c7b18b033c9dac78416d431f94b2019be0
-
-下载BT种子 [港銀行家吳明德：美國只需一招就可以廢掉港幣制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fb2def95f68e281861700618512e7527d89a1134.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fb2def95f68e281861700618512e7527d89a1134
 
 下载BT种子 [「610」辦公室遍及全中國迫害仍在繼續.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d54a01142663bbd3de11a56647f4193f5abb58f.torrent)
 
