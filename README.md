@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Cp4pB1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kafCYA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京再被揭低報確診鮭魚多地檢測陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d47b906bf8a8103ce4baa8e4195391e86a887cad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d47b906bf8a8103ce4baa8e4195391e86a887cad
+
+下载BT种子 [美國務院宗教自由會議首邀香港法輪功發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c57ebe72f0888061c5b536938b28d62594ac6e7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3c57ebe72f0888061c5b536938b28d62594ac6e7
+
+下载BT种子 [中共資金滲透曝光逾70所美大學接受資助未報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/856b276e36a146c2b4e9027ead3197018ff60a41.torrent)
+
+磁力链接 magnet:?xt=urn:btih:856b276e36a146c2b4e9027ead3197018ff60a41
+
+下载BT种子 [朝鮮炸毀韓聯辦韓國：如加劇將強烈反擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b04d7163156ccad2f8c0f80bd3479b468920ab7d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b04d7163156ccad2f8c0f80bd3479b468920ab7d
+
+下载BT种子 [中國24省洪災近日又有南京等地被淹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d2a75dd45eec5a88dcd13b2630135a082ad817c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9d2a75dd45eec5a88dcd13b2630135a082ad817c
+
+下载BT种子 [歐盟高級代表：歐美要就香港局勢緊密合作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8983301d323e6aa571e94c72abe0ff73507a43c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8983301d323e6aa571e94c72abe0ff73507a43c2
+
+下载BT种子 [揭中共隱瞞疫情美眾院公布首份調查報告.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/478a50805a8b77bfb4812e9e4d09adab5220279d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:478a50805a8b77bfb4812e9e4d09adab5220279d
 
 下载BT种子 [《石濤.News》「新發地本名為【新墳地】」中華民國外交部通知：所有涉外人員名片不得印有【台灣】字樣「高人指點意味甚濃」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c.torrent)
 
@@ -596,38 +624,6 @@
 下载BT种子 [【中國禁聞】6月10日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b79c1b03c10b5b3c7ad7f7e3dd927d6c83698c2d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b79c1b03c10b5b3c7ad7f7e3dd927d6c83698c2d
-
-下载BT种子 [澳洲政要專訪：放棄「一帶一路」支持港人抗爭中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98ad85aa9e0a42c77938bf849944d91b4270f6eb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:98ad85aa9e0a42c77938bf849944d91b4270f6eb
-
-下载BT种子 [《石濤聚焦》「韓國瑜最後一天-揮淚「橫刀向天笑，去留肝膽兩崑崙」」習近平-中共代言者獲提名-金龍死授帥旗-連根斷「天意盡現無人隨硬靠嘴炮夢你我天意從來不隨人只有人醒拒共黨」（1106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/854572c61c09fae0e51add655036e857b5fcc405.torrent)
-
-磁力链接 magnet:?xt=urn:btih:854572c61c09fae0e51add655036e857b5fcc405
-
-下载BT种子 [《石濤聚焦》「美股忽然暴跌擔憂疫情第二次大爆發」道股跌破1500點納斯達標普破4.5%「人類至今搞不清大疫原由將出現更大更悲哀的場面」（1106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eb4dd270c1ee46e5a16295f7d833687e27785c5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3eb4dd270c1ee46e5a16295f7d833687e27785c5
-
-下载BT种子 [南美洲死亡超過7萬人歐盟籲71全開邊界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0a72ce50e0c7492d189f456980ea2ccf080c37d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e0a72ce50e0c7492d189f456980ea2ccf080c37d
-
-下载BT种子 [美國務卿蓬佩奧發布《2019年度國際宗教自由報告》（節選有關中國問題中文字幕版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09ab70d1053ce552d6335f8e828ff15141656bf7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09ab70d1053ce552d6335f8e828ff15141656bf7
-
-下载BT种子 [歐盟阻疫情假新聞點名中共俄羅斯造假.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fd213c7b18b033c9dac78416d431f94b2019be0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4fd213c7b18b033c9dac78416d431f94b2019be0
-
-下载BT种子 [「610」辦公室遍及全中國迫害仍在繼續.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d54a01142663bbd3de11a56647f4193f5abb58f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6d54a01142663bbd3de11a56647f4193f5abb58f
-
-下载BT种子 [港大研究推算：湖北220萬人曾染疫而武漢人認為感染率更高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdf685ad7fddcf2b46e0f82b064f1e36465cbd45.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bdf685ad7fddcf2b46e0f82b064f1e36465cbd45
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
