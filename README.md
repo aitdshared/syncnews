@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/spPULh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NYRykQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月16日完整版🔥中印衝突43名共軍20名印軍被殺北京確診暴增28社區封閉式管理美國立衛生院開除54學者海歸「小粉紅」女碩士慘遭滅門式打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1f206045782e37f211287cf047406c957e7c1f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d1f206045782e37f211287cf047406c957e7c1f2
 
 下载BT种子 [杨洁篪见蓬佩奥，接当头四棒！北京全城敲门行动，中共为何突表态支持川普连任！（老北京茶馆第329集20200616）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fee81d688d746475b01363129c9a7aaef11048e7.torrent)
 
@@ -620,14 +624,6 @@
 下载BT种子 [【禁聞】應對中共威脅美國會報告提史上最嚴制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b661b7d4afbd536c254662aec0ba264b16d3a7a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0b661b7d4afbd536c254662aec0ba264b16d3a7a
-
-下载BT种子 [香港國安法緣何從人大常委會六月議程中消失？中共會撤回？拖延，還是特例通過？中美對抗態勢的微妙變化（江峰漫談20200611第187期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ddc99b9b9374f30e5676d5e2f33e688bc944c840.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ddc99b9b9374f30e5676d5e2f33e688bc944c840
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/983ba605af8757eb7b2ad81d166f72f68d4f66ce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:983ba605af8757eb7b2ad81d166f72f68d4f66ce
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
