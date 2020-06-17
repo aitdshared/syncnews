@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IMZMuG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tBe9xV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [維權律師余文生遭冤判多位被拘押人士的妻子持續呼籲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edf33ffdbf77fe8a07639b41b2add2434fbc0ea7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:edf33ffdbf77fe8a07639b41b2add2434fbc0ea7
 
 下载BT种子 [《石濤.News》「網傳：北京旅遊返鄉突發病死長途車上」6天爆137例確診！北京疾控坦言：疫情處於「上升期」渣打銀行首席丁爽示警：第2波大流行風險顯現（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e64fdd0ed2515e37568eca5ab15357647b17b3d.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [习近平秘带此人外出，又要整人？清查海外关系，亲共分子悬了！各国加紧围猎土共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c14bb8373e4099c6c0b6174a3e3fcd0d032156d2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c14bb8373e4099c6c0b6174a3e3fcd0d032156d2
-
-下载BT种子 [【環球直擊】廣西水庫無預警洩洪死傷無數Zoom承認聽從中共指揮(6月12日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b00df0d3b962528dabf092356c56fa30a5c26ec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2b00df0d3b962528dabf092356c56fa30a5c26ec
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
