@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZRcuQr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bjyCjA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中印邊境急升溫，45年來最嚴重；中印之戰會再現？被玩砸的重大戰略（文昭談古論今20200616第771期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b366f2dee15ecf1724eb27b0765de216e4dda4c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3b366f2dee15ecf1724eb27b0765de216e4dda4c
 
 下载BT种子 [半个北京沦陷！习家军高官罕见免职。党媒忽然唱好中美关系。中印冲突酿重大伤亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e84e2793a2ad159abdb72e6a4b1106c42238ed30.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [國際刑事法庭威脅主權美國實施嚴厲制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a8134d1b8e977b86a022941eb78c932dde81f97.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7a8134d1b8e977b86a022941eb78c932dde81f97
-
-下载BT种子 [「向伟大过渡」川普推四步驟重建社區安全.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e787b66739d7c3349e83b0217ec62f151439950.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e787b66739d7c3349e83b0217ec62f151439950
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
