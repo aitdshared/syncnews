@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2WIScr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZRcuQr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [半个北京沦陷！习家军高官罕见免职。党媒忽然唱好中美关系。中印冲突酿重大伤亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e84e2793a2ad159abdb72e6a4b1106c42238ed30.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e84e2793a2ad159abdb72e6a4b1106c42238ed30
 
 下载BT种子 [全球超過806萬人確診感染南美洲病例激增英國5.2萬人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/116568a944c64637020cbc7f797b7eadae8fe847.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [「向伟大过渡」川普推四步驟重建社區安全.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e787b66739d7c3349e83b0217ec62f151439950.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9e787b66739d7c3349e83b0217ec62f151439950
-
-下载BT种子 [事情大了！习近平这张照片真的刷屏了！日本盛传某人雅号。土共超限战：盗疫苗印假钞。巴西怒责世卫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/334c034ca574cd2f52fe7b978ebc41ba1ff517ae.torrent)
-
-磁力链接 magnet:?xt=urn:btih:334c034ca574cd2f52fe7b978ebc41ba1ff517ae
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
