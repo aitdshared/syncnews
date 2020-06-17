@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Kw9jbE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/viwftI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中印軍人衝突雙死傷數十人美國密切關注中共仍未公布中方的傷亡數字.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9905d4fdf0d483cfe17c79a9820bb0c73e2bd091.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9905d4fdf0d483cfe17c79a9820bb0c73e2bd091
+
+下载BT种子 [于文生遭冤判律師和詩人妻子持續呼籲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ecd5e3786f719058881c5cada5e82410db413ad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ecd5e3786f719058881c5cada5e82410db413ad
+
+下载BT种子 [朝鮮揚言邊境軍演韓國警告美軍機監控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f1d8321ac44370759c8eb52ea3a707f150c5f62.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f1d8321ac44370759c8eb52ea3a707f150c5f62
+
+下载BT种子 [北京疫情迅猛爆發交通大規模停運禁重點人員離開北京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f567315681979304113451fe52886de1143cdc1b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f567315681979304113451fe52886de1143cdc1b
 
 下载BT种子 [《石濤.News》「網傳：北京旅遊返鄉突發病死長途車上」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9572f1b85d5dddb1172654f6ac4f08802459c3e.torrent)
 
@@ -604,10 +620,6 @@
 下载BT种子 [荔浦災民：水庫無預警洩洪成災沖走很多人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0
-
-下载BT种子 [【環球直擊】水庫無預警洩洪沖走很多人失業寒冬與經濟困頓疫情危機中提振經濟(6月12日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ff67060298f8295c75d4edfc26228bcf72639fa0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ff67060298f8295c75d4edfc26228bcf72639fa0
 
 下载BT种子 [【瘟疫與中共】大公司為中共輸血新澤西州成重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9.torrent)
 
