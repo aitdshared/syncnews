@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tBe9xV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kPJkRB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月16日完整版（字幕）🔥中印衝突43名共軍20名印軍被殺北京確診暴增28社區封閉式管理美國立衛生院開除54學者海歸「小粉紅」女碩士慘遭滅門式打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b3dfef9516448771456b2d5fc3d3f1324e5faf2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1b3dfef9516448771456b2d5fc3d3f1324e5faf2
 
 下载BT种子 [維權律師余文生遭冤判多位被拘押人士的妻子持續呼籲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/edf33ffdbf77fe8a07639b41b2add2434fbc0ea7.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「美財長：正在準備限制美元進出香港」港版國安法一通過川普金融核彈就引爆（1206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cefc5c6df45e47973aae31fffac8c8ae71d84e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3cefc5c6df45e47973aae31fffac8c8ae71d84e7
-
-下载BT种子 [习近平秘带此人外出，又要整人？清查海外关系，亲共分子悬了！各国加紧围猎土共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c14bb8373e4099c6c0b6174a3e3fcd0d032156d2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c14bb8373e4099c6c0b6174a3e3fcd0d032156d2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
