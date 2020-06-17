@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oAIwkz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IoQL9m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國議員提案禁中共黨員獲綠卡公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/762f8f263c9cb1b22f5e26ffffeb096d32ba9ce2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:762f8f263c9cb1b22f5e26ffffeb096d32ba9ce2
 
 下载BT种子 [中印邊境急升溫，45年來最嚴重；中印之戰會再現？被玩砸的重大戰略（文昭談古論今20200616第771期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b366f2dee15ecf1724eb27b0765de216e4dda4c.torrent)
 
