@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p1a8Cz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VqD4ot)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7801033b08d8116a0242073633d1070a99e8c69d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7801033b08d8116a0242073633d1070a99e8c69d
 
 下载BT种子 [党媒刊出重量级文章，考验习近平的时候到了；北韩问题看似复杂，但核心就一点.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f9588b25a89ec6cd76dee759eea9df21bef9be0.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤.News》「郝海東葉釗穎首次美媒專訪：中共國體制泯滅人性」郝海東說：中共對人的思想禁錮被領導安排入黨親屬“你們瘋了嗎？”國內財產可能完了兒子合約到期「我們問心無愧可以承受所有結果」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e9ed24ab697d38f0dcfba5bffee4e1f942172ab.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7e9ed24ab697d38f0dcfba5bffee4e1f942172ab
-
-下载BT种子 [唐浩去哪裡了？你看見嗎，未來有哪些重要國際趨勢？（2020.06.12)｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b531ca47242af44d515a266c5c6232d42814bd4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b531ca47242af44d515a266c5c6232d42814bd4
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
