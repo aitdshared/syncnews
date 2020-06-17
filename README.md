@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X1VBIj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YtoN5j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [德政要各界撐香港民運批德政府態度軟弱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5caebcf8d295e7a59608e6809ecffb66d28862a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5caebcf8d295e7a59608e6809ecffb66d28862a6
+
+下载BT种子 [【瘟疫與中共】善意鋪就險途新澤西製藥的不幸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a8aafa66175b96cf91471c7a09d306152dccbc0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a8aafa66175b96cf91471c7a09d306152dccbc0
+
+下载BT种子 [疫情爆發半年全球感染及死亡人數激增.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19d2743b282254de28931b042143c089a65d6b00.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19d2743b282254de28931b042143c089a65d6b00
 
 下载BT种子 [中印軍人衝突雙死傷數十人美國密切關注中共仍未公布中方的傷亡數字.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9905d4fdf0d483cfe17c79a9820bb0c73e2bd091.torrent)
 
@@ -613,10 +625,6 @@
 
 磁力链接 magnet:?xt=urn:btih:2b00df0d3b962528dabf092356c56fa30a5c26ec
 
-下载BT种子 [Zoom承認按照中共要求關閉了紀念六四的海外賬戶美議員發聲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/768b53a7a469d2806316a171f39bac8523f0b92f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:768b53a7a469d2806316a171f39bac8523f0b92f
-
 下载BT种子 [荔浦災民：水庫無預警洩洪成災沖走很多人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0
@@ -624,10 +632,6 @@
 下载BT种子 [【瘟疫與中共】大公司為中共輸血新澤西州成重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9
-
-下载BT种子 [【新唐人重播】美國副總統彭斯參加信仰和社區領袖懇談會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc7481657fe09ebd4fddcb5cbb38a103a65c79ef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc7481657fe09ebd4fddcb5cbb38a103a65c79ef
 
 下载BT种子 [韓國危機管理教授預測：由於疫情影響經濟危機即將到來武漢肺炎影響長久.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2acbda4748355a3462d59c7e34745e4d2c327941.torrent)
 
