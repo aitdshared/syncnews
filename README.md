@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/POxu0K)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/U5QXKU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美聯儲主席﹕經濟已反彈疫情陰影仍在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89613aa0eb2c80ae9d32f60e8367258081e4ad51.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89613aa0eb2c80ae9d32f60e8367258081e4ad51
+
+下载BT种子 [川普總統簽署行政令促美國警察執法改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/527e6f2a6e2e1f56689b019eeb552c6092f9b620.torrent)
+
+磁力链接 magnet:?xt=urn:btih:527e6f2a6e2e1f56689b019eeb552c6092f9b620
+
+下载BT种子 [大陸五毛漲薪曇花一現變為二毛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfabcbb03264786f050e236d4196c50c27636ecc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cfabcbb03264786f050e236d4196c50c27636ecc
+
+下载BT种子 [好萊塢重啟「侏羅紀世界」續集開工製作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5b253413fd433fa6405c15f7279f880b794e1a6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a5b253413fd433fa6405c15f7279f880b794e1a6
+
+下载BT种子 [53年來首次中印兩軍邊境激鬥數十死傷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91b0b3234f977794d4ec2377d382f6802d5b9915.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91b0b3234f977794d4ec2377d382f6802d5b9915
 
 下载BT种子 [美國議員提案禁中共黨員獲綠卡公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/762f8f263c9cb1b22f5e26ffffeb096d32ba9ce2.torrent)
 
@@ -604,30 +624,6 @@
 下载BT种子 [【禁聞】中共發留學預警澳總理強硬回應.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8abd89148d4c4e96f4e3424ae905f7d6bc7bfcad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8abd89148d4c4e96f4e3424ae905f7d6bc7bfcad
-
-下载BT种子 [高曉松評希特勒，寓意深刻？「新八國聯軍」來襲，官媒不忘扣帽子；川普不忍了，韓正危險了！澳洲強硬政策不下跪；遮天蔽日！數千億蝗蟲真的來了！南方洪災破紀錄，超過北京半年雨【新聞看點李沐陽06.11】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fc9f9b6ae6d1b8443dfb07efc87920be4bd3c48.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4fc9f9b6ae6d1b8443dfb07efc87920be4bd3c48
-
-下载BT种子 [中國大陸以外感染上升至747萬美國國家公園開放日本確認簡化辦奧運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db0605cd7b29acafa561bf05c1df036c7a94a1c4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:db0605cd7b29acafa561bf05c1df036c7a94a1c4
-
-下载BT种子 [高科技無人機成非洲農業好幫手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea738f26a0ac1dac9f82ae78b4d6e2fac28a301f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea738f26a0ac1dac9f82ae78b4d6e2fac28a301f
-
-下载BT种子 [中共發赴澳警告澳總理﹕絕不會在中共的脅迫下犧牲澳洲价值觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f8678454adc59050b304f68576f0a42aa139f06.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3f8678454adc59050b304f68576f0a42aa139f06
-
-下载BT种子 [極左設西雅圖自治區川普促解決無政府狀態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96fe62c2e28c2efd90fc42d163a6f73ba3cf7460.torrent)
-
-磁力链接 magnet:?xt=urn:btih:96fe62c2e28c2efd90fc42d163a6f73ba3cf7460
-
-下载BT种子 [國際刑事法庭威脅主權美國實施嚴厲制裁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a8134d1b8e977b86a022941eb78c932dde81f97.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a8134d1b8e977b86a022941eb78c932dde81f97
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
