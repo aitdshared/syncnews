@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YtoN5j)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IMZMuG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「網傳：北京旅遊返鄉突發病死長途車上」6天爆137例確診！北京疾控坦言：疫情處於「上升期」渣打銀行首席丁爽示警：第2波大流行風險顯現（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e64fdd0ed2515e37568eca5ab15357647b17b3d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4e64fdd0ed2515e37568eca5ab15357647b17b3d
 
 下载BT种子 [德政要各界撐香港民運批德政府態度軟弱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5caebcf8d295e7a59608e6809ecffb66d28862a6.torrent)
 
@@ -624,22 +628,6 @@
 下载BT种子 [【環球直擊】廣西水庫無預警洩洪死傷無數Zoom承認聽從中共指揮(6月12日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b00df0d3b962528dabf092356c56fa30a5c26ec.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2b00df0d3b962528dabf092356c56fa30a5c26ec
-
-下载BT种子 [荔浦災民：水庫無預警洩洪成災沖走很多人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bd56b85f91189570ce0ef3e408c9d9fcddd8c2f0
-
-下载BT种子 [【瘟疫與中共】大公司為中共輸血新澤西州成重災區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1a046d4d6b7bf43ee9f3a737ab8ae36c72c1a8d9
-
-下载BT种子 [韓國危機管理教授預測：由於疫情影響經濟危機即將到來武漢肺炎影響長久.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2acbda4748355a3462d59c7e34745e4d2c327941.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2acbda4748355a3462d59c7e34745e4d2c327941
-
-下载BT种子 [全球感染破750萬印度單日新增首次過萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ebacae6c9ab8f084c502eca6f0d1b865ab328b4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ebacae6c9ab8f084c502eca6f0d1b865ab328b4b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
