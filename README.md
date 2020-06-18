@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/56MM61)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1UTAOW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [夏威夷密會雙方各自表述：中共漫天要價？美方以靜制動；北京疫情來勢兇猛，官方運動式應對恐加速傳播Jason橫河熱點互動06172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54837e82474ec40e4965b1d0900db6b3e664365b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:54837e82474ec40e4965b1d0900db6b3e664365b
 
 下载BT种子 [【新唐人重播】618因應「中共肺炎疫情」台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73977f06a0014d586aa4c60e44107825ef887c7.torrent)
 
@@ -624,18 +628,6 @@
 下载BT种子 [中共軍官隱瞞身份竊密美國被捕李文亮遺腹子出世中國網民再聚「哭牆」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/721e56df959dfae2d221199783f9e24bfc88ac98.torrent)
 
 磁力链接 magnet:?xt=urn:btih:721e56df959dfae2d221199783f9e24bfc88ac98
-
-下载BT种子 [歐盟：中共是「制度性競爭對手」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e5ad53e1ce629e14a6b8718c48f06c4e512b708.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9e5ad53e1ce629e14a6b8718c48f06c4e512b708
-
-下载BT种子 [紐約市重啟經濟將滿一週交通人潮持續增長.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28018c41cbd9666838d61d1afdce1759fdccf9dc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:28018c41cbd9666838d61d1afdce1759fdccf9dc
-
-下载BT种子 [一位香港青年為大紀元記者擋刀襲港台人士：香港情勢嚴峻感謝真相媒體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58c1f659848ccde2b3cb9d649ead6e0f3a749138.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58c1f659848ccde2b3cb9d649ead6e0f3a749138
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
