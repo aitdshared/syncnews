@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gHs3ZX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/V8GQ49)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紐約疫情大幅緩解洪都拉斯總統染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d0e8d4342ac46ad0f6bc355c825e6ee35337f0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9d0e8d4342ac46ad0f6bc355c825e6ee35337f0d
+
+下载BT种子 [袁弓夷：中共氣數已盡滅共才有出路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361a55f33fc643c77cccee762733f67186c71446.torrent)
+
+磁力链接 magnet:?xt=urn:btih:361a55f33fc643c77cccee762733f67186c71446
+
+下载BT种子 [美國之音正副台長辭職前主任揭示內因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/451ad6beae71913d06a10d966aadfb38d53e880e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:451ad6beae71913d06a10d966aadfb38d53e880e
+
+下载BT种子 [憨態可掬的小萌虎結交狗狗做朋友.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33a5ae9d1966172b1f0218a8984e4e7dc65f572e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:33a5ae9d1966172b1f0218a8984e4e7dc65f572e
 
 下载BT种子 [《石濤聚焦》「【國內瘋傳】黃小坤：宜昌以下跑最後說一次」宜昌-三峽水壩壩址長江之名起於此「吉林浙江雲南洱海近日魚兒🐟奮力躍出水面」大地震前兆明顯地域跨度過大（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6db80434bcdf424c4d28a79f5d99d3effbd49a65.torrent)
 
@@ -612,10 +628,6 @@
 下载BT种子 [北京連日新增確診中共肺炎疑疫情再起.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b0a8c13fc843dfa2f4aef3cf9ac1f94d01bb1b5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3b0a8c13fc843dfa2f4aef3cf9ac1f94d01bb1b5
-
-下载BT种子 [華府紀念共產受難者蓬佩奧﹕人權關鍵時刻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0800026943741a6c552c0b2caac1a6fab672f077.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0800026943741a6c552c0b2caac1a6fab672f077
 
 下载BT种子 [「彈劾紐約市長」請願逾13萬人簽名.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1711e5bda0e60d5272c75f9b2665b055560cab3f.torrent)
 
