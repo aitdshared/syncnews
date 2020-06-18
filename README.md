@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/prSX7U)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zfwo88)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京宋莊藝術家被限期搬遷或更改合同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5c9a0e3195c28bd90921c68a36500a776c1a597.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e5c9a0e3195c28bd90921c68a36500a776c1a597
+
+下载BT种子 [病毒攻入中南海，中南海大封鎖！小區全封閉，市民斷糧斷菜，焚屍工全副武裝，北京已成武漢？中印衝突王毅求和？600人肉搏6小時，印指揮官墜谷亡，傷亡數字成秘密！【新聞看點李沐陽06.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f2105109dad73002f5235e52ef75af07004f49a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f2105109dad73002f5235e52ef75af07004f49a
+
+下载BT种子 [美《凱薩法》生效制裁獨裁政權包括敘利亞獨裁者阿薩德及其妻子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/938c93dd982df74cc32813a85b6eae063cb5a7d5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:938c93dd982df74cc32813a85b6eae063cb5a7d5
 
 下载BT种子 [美國海關頒扣留令打擊中國奴工產品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e10f7bbc79915215988e98e6b1b49ba8b8dbf76e.torrent)
 
@@ -616,22 +628,6 @@
 下载BT种子 [史上最強制裁名單：兩名政治局常委韩正、汪洋，五名正省部級，港澳辦夏寶龍、中聯辦駱惠寧、公安部長趙克志、疆藏書記在列（江峰漫談20200612第188期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a47fcf961bf0fd15a34014028ea95f491ecdf63.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5a47fcf961bf0fd15a34014028ea95f491ecdf63
-
-下载BT种子 [《石濤.News》「北京最大水果海鮮-新發地武肺大爆發」數百武警進入所有從業者被公交車帶走水果蔬菜魚肉全扔掉80%北京人蔬菜水果魚肉來源之地「定數-時間是神：香港百萬遊行國歌法新發地—同日」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21955bee9d401f6417956efed499b22042632d6f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:21955bee9d401f6417956efed499b22042632d6f
-
-下载BT种子 [【全球新聞】6月12日完整版.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f1b23aefa25ce19f09433ed96ec96a2318036b3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f1b23aefa25ce19f09433ed96ec96a2318036b3
-
-下载BT种子 [推特大砍17萬帳戶；Zoom認聽命中共；「工科神器」被禁用，哈工大叫苦連天；「地毯李」遇「城管習」？疫情造假9部曲！200輛軍車將入港，中共要鎮壓？美芯片將本土化，「厲害國」怎麼厲害？【06.12】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9eac5a4636ac8a8419082f6fe07f05496bb11aa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e9eac5a4636ac8a8419082f6fe07f05496bb11aa
-
-下载BT种子 [香港大紀元記者遭人持刀襲擊疑是民建聯幹事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/72534824cbabf6d2c8d24e891aaa6bd8f2137ef7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:72534824cbabf6d2c8d24e891aaa6bd8f2137ef7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
