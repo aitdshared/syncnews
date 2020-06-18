@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pdnpN3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ekw1zL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [產銷14萬偽劣N95口罩又一中企被起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/afe42524f7f184f711c8ba8b000a3caf67cf0bec.torrent)
+
+磁力链接 magnet:?xt=urn:btih:afe42524f7f184f711c8ba8b000a3caf67cf0bec
+
+下载BT种子 [萊特希澤還原真相川普：沒人比我對中共強硬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05ddb25e399474a2d0cde36802a3f25850d65a47.torrent)
+
+磁力链接 magnet:?xt=urn:btih:05ddb25e399474a2d0cde36802a3f25850d65a47
 
 下载BT种子 [《石濤聚焦》「中共國首席專家：北京疫情擴散已被控制」但北京三類人不得出京無限期關閉北京與外省所有跨境交通7人同餐同住同確診——爆發聚集性感染（1806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c056377cef7d3b61063c4a345b41b2c21522b9c2.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [《台灣防衛法》呼之欲出，中共三十年武統台灣的軍事戰略一朝作廢；美台建交、美駐軍台灣大動作將紛至沓來；鳳凰衛視上外交使團名單影響重大（江峰漫談20200613第189期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/97ad8c02af5f810a77e2390100f6fde137dfbc72.torrent)
 
 磁力链接 magnet:?xt=urn:btih:97ad8c02af5f810a77e2390100f6fde137dfbc72
-
-下载BT种子 [《濤哥侃封神》「封神演義第七十四回哼哈二將顯神通」鄧九公陣亡黃天祥被風屍丘引原為鰻魚身陳奇卻有玄妙在「五行道術皆堪并萬劫輪回共此生」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e22556ed19414e42c6cafd884f7c35dee56def22.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e22556ed19414e42c6cafd884f7c35dee56def22
 
 下载BT种子 [【美國思想領袖】高級政策總監柯蒂斯·埃利斯：世衛一直接受中共指令，這是中共「感染」世界的經典例子！中共為何不停買空、囤積和限制醫療用品出口？為何說中國共產黨不是中國文化傳統的一部分！大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56671da7d4efd512bd70f02873ef96c6d4c39af6.torrent)
 
