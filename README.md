@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kujbBE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cRYibe)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】躲避中共迫害維權人士萬里逃亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/244800fd1c0c72bf5f255145b9d16d9416698b19.torrent)
+
+磁力链接 magnet:?xt=urn:btih:244800fd1c0c72bf5f255145b9d16d9416698b19
+
+下载BT种子 [【禁聞】WTO市場經濟地位中共悄悄放棄.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba30e2f97bd7ae39137ba93e62fcbc9db8e5cb23.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ba30e2f97bd7ae39137ba93e62fcbc9db8e5cb23
+
+下载BT种子 [【禁聞】中印衝突印度總理莫迪強硬表態北京市民做核酸檢測人擠人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae63fe3578f8a97ae25172d97f4546956a26ef73.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ae63fe3578f8a97ae25172d97f4546956a26ef73
 
 下载BT种子 [【禁聞】中印邊界衝突中共為何不提軍隊死傷？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d0480d2cc9e26a8fb89d253bda3c353cf9c4f14.torrent)
 
@@ -616,22 +628,6 @@
 下载BT种子 [隱瞞身分的中共軍官在美國搞間諜活動試圖攜帶機密離境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39a1af1be4d236286eb8f550d829ede18a1955df.torrent)
 
 磁力链接 magnet:?xt=urn:btih:39a1af1be4d236286eb8f550d829ede18a1955df
-
-下载BT种子 [謝金河警告港股中國化！港財經專家渾水談港資退場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b614bcbd4061e921bdf08f5bfc2ae384eec560e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b614bcbd4061e921bdf08f5bfc2ae384eec560e4
-
-下载BT种子 [【環球直擊】北京疫情連環爆香港青年護記者擋刀襲港財經專家談港資退場（6月13日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92644bd572f7c8fc2d51ffc15e36e15cf4de5e46.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92644bd572f7c8fc2d51ffc15e36e15cf4de5e46
-
-下载BT种子 [党媒解读南方洪水：你们看到三峡大坝危险，我看到美！香港码头货柜全消失，习近平犹豫了？（老北京茶馆第327集20200612）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d83a4030a69869c04a83e1623446a052319bd1c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6d83a4030a69869c04a83e1623446a052319bd1c
-
-下载BT种子 [🚨李克強又說實話，涉2億人溫飽；黨染指私人存款；中共開查國民海外關係；網友“道賀”李文亮；微博禁評新規；二次爆發警訊，北京新病例帶毒踏六大集市；香港驚魂一幕！郝海東：共黨退出新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4dc78e227570f2da86a8e6bb22dfb35da64a17c8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4dc78e227570f2da86a8e6bb22dfb35da64a17c8
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
