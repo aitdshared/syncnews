@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oQRoiV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dchuKV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京疫情爆發航班大減飛洛杉磯票價達上萬美元.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b9aa2c0b24c95ffe115341d96c2f151ef5e7c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d4b9aa2c0b24c95ffe115341d96c2f151ef5e7c7
+
+下载BT种子 [北京疫情大爆發新發地商戶損失慘重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58a684dac885f1384a53fab7f6fea4638b3f9ed1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:58a684dac885f1384a53fab7f6fea4638b3f9ed1
+
+下载BT种子 [蓬佩奧楊潔篪夏威夷會談川普簽法案制裁中共官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1db9e95de2975c95e9ef520f9956d2c2e4087c5f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1db9e95de2975c95e9ef520f9956d2c2e4087c5f
 
 下载BT种子 [【中國禁聞】6月17日完整版(字幕)🔥北京半封城交通大規模停運學校全面停課；中印邊界再爆衝突中共為何不提軍隊死傷？；躲避中共迫害維權人士萬里逃亡。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a8f31e9a4a6dee845de5ee10380fdae6f0b36da.torrent)
 
@@ -616,14 +628,6 @@
 下载BT种子 [《石濤聚焦》「美三大航母戰鬥群同聚太平洋針對中共國」里根號與羅斯福號同在菲律賓海南海對壘中共國威懾中共借大疫情展現非分之想作戰司令科勒「展現逢戰必勝的實力」（1306）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4dc04cdd7ce3b75cc674dd0b4eed6365476cd10c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4dc04cdd7ce3b75cc674dd0b4eed6365476cd10c
-
-下载BT种子 [税务局和央行同时出手，民众存款将被快速清空，你的钱已不再是你的钱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bfce122bad5c917ac6c9c89228abe1a1e8340d41.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bfce122bad5c917ac6c9c89228abe1a1e8340d41
-
-下载BT种子 [【中國禁聞】6月12日完整版🔥沒錢了中共推「大額現金管理」共軍少校隱瞞身份竊密洛杉磯機場被抓李文亮遺腹子出世中國網民再聚「哭牆」雲南楚雄警方搶劫王藏妻ZOOM變中共防火牆.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c78d71f4a06e519ddc910c6be62d537b57350af.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c78d71f4a06e519ddc910c6be62d537b57350af
 
 下载BT种子 [沒錢了！中共推「大額現金管理」監控百姓錢包.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/682cdc0a5a8c1a495e57fcad70d7ca23b0ab60ec.torrent)
 
