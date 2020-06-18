@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xJYYDw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/56MM61)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【新唐人重播】618因應「中共肺炎疫情」台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73977f06a0014d586aa4c60e44107825ef887c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c73977f06a0014d586aa4c60e44107825ef887c7
+
+下载BT种子 [【新唐人重播】618「十足目虹彩病毒」入侵螯蝦場台灣農委會說明疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec3ac3522703273d816a577e68938730c6e17a80.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ec3ac3522703273d816a577e68938730c6e17a80
 
 下载BT种子 [各种异象频出，不由得你不相信，最后的时间点越来越近，该清醒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07fa89e6bd96a173942c592f721aa2975bbf1b30.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [歐盟：中共是「制度性競爭對手」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e5ad53e1ce629e14a6b8718c48f06c4e512b708.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9e5ad53e1ce629e14a6b8718c48f06c4e512b708
-
-下载BT种子 [北京疫情連環爆新發地45人咽拭子陽性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecaf97dcc969c8bc7941adadec7b211e84f57d9f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecaf97dcc969c8bc7941adadec7b211e84f57d9f
 
 下载BT种子 [紐約市重啟經濟將滿一週交通人潮持續增長.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28018c41cbd9666838d61d1afdce1759fdccf9dc.torrent)
 
