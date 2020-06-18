@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wAIUjF)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/C0Os9l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第七十六回鄭倫捉將取汜水」韓榮雙子出奇兵萬仞風火催周將子牙鼠竄金雞嶺洽遇鄭倫天意明「白晝已難遮半壁黃昏安可護三鄉」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0825c4682eb1591a23b71d65ca2ecc48b5fbd464.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0825c4682eb1591a23b71d65ca2ecc48b5fbd464
 
 下载BT种子 [【禁聞】躲避中共迫害維權人士萬里逃亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/244800fd1c0c72bf5f255145b9d16d9416698b19.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [一位香港青年為大紀元記者擋刀襲港台人士：香港情勢嚴峻感謝真相媒體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58c1f659848ccde2b3cb9d649ead6e0f3a749138.torrent)
 
 磁力链接 magnet:?xt=urn:btih:58c1f659848ccde2b3cb9d649ead6e0f3a749138
-
-下载BT种子 [隱瞞身分的中共軍官在美國搞間諜活動試圖攜帶機密離境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39a1af1be4d236286eb8f550d829ede18a1955df.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39a1af1be4d236286eb8f550d829ede18a1955df
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
