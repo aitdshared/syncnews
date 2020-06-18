@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EgUkH1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Hd43yE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】全球台灣研究院高級研究員寇謐將：中共越過底線就會滅亡！中共正在滲透聯合國的每一個機構！民主國家怎麼應對威脅？如何從台灣獲得與中共打交道及控制中共病毒方面的成功經驗？｜#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7098da318d76111a96765f95db625197e6f6916a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7098da318d76111a96765f95db625197e6f6916a
 
 下载BT种子 [夏威夷密會雙方各自表述：中共漫天要價？美方以靜制動；北京疫情來勢兇猛，官方運動式應對恐加速傳播Jason橫河熱點互動06172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54837e82474ec40e4965b1d0900db6b3e664365b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [沒錢了！中共推「大額現金管理」監控百姓錢包.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/682cdc0a5a8c1a495e57fcad70d7ca23b0ab60ec.torrent)
 
 磁力链接 magnet:?xt=urn:btih:682cdc0a5a8c1a495e57fcad70d7ca23b0ab60ec
-
-下载BT种子 [中共軍官隱瞞身份竊密美國被捕李文亮遺腹子出世中國網民再聚「哭牆」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/721e56df959dfae2d221199783f9e24bfc88ac98.torrent)
-
-磁力链接 magnet:?xt=urn:btih:721e56df959dfae2d221199783f9e24bfc88ac98
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
