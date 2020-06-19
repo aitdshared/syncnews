@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VqGDSS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0DZyEm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三峡大坝吹哨人：快跑！正勒腰带，习近平又撒币了！中美夏威夷会谈无果？后果很大！（老北京茶馆第330集20200618）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f27f84276582aab9220b94dfca1028ebf850478.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f27f84276582aab9220b94dfca1028ebf850478
 
 下载BT种子 [中印邊境衝突升級到戰爭有多遠？從七千人大會的毛劉鬥到兩會的習李亂；從尼赫魯到莫迪，看來大家都準備好了。（江峰漫談20200619第191期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f72635ff198045cb005435a74d945422018d9c9.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [朝鮮威脅報復韓國韓召開緊急安全會議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6562466fac2c4ab001c17b01daeebe511cf62562.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6562466fac2c4ab001c17b01daeebe511cf62562
-
-下载BT种子 [《石濤聚焦》「北京大淪陷習近平逃亡寧夏：全城戰時狀態敲門大排查」7120社區10萬人投入封鎖21個社區9萬人79例涵蓋北京八個區「病毒可能來自假三文魚-虹鱒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f8810ef3a9f7831457c95159dd18ce15ca79665.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f8810ef3a9f7831457c95159dd18ce15ca79665
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
