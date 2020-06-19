@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lkvv78)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MZBvTo)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新聞】蓬佩奧楊潔篪夏威夷會談川普簽法案制裁中共官員北京疫情大爆發新發地商戶損失慘重（6月18日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f92618311624711a1d6ecbc74bd57d2f3767ea2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f92618311624711a1d6ecbc74bd57d2f3767ea2
+
+下载BT种子 [【619重播】台灣行政院宣布副閣揆記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9ccb43f5e9082785f0dd7dbdd5c2dbb2c78b7e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b9ccb43f5e9082785f0dd7dbdd5c2dbb2c78b7e1
 
 下载BT种子 [新發地5米一軍警，北京西紅門萬人小區400感染；三峽大壩危險，宜昌以下快跑！中共士兵用狼牙棒殺人，印度國民反共情緒高漲；中共軍機10天5侵台，中共海警船連續６５天挑釁日本【新聞看點李沐陽06.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591c5ff1d8361dfd405540a0ccb660464db63588.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [浙江油罐車大爆炸傷亡慘重官方涉瞞報？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1484b5e20f431505a97df5d19edc1db4fe241386.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1484b5e20f431505a97df5d19edc1db4fe241386
-
-下载BT种子 [《濤哥侃封神》「封神演義第七十五回土行孫盜騎陷身」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71e3fc82096c086548ef304b6c9d3288dbff4650.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71e3fc82096c086548ef304b6c9d3288dbff4650
 
 下载BT种子 [李克强辞职了？分析可能性及其影响，当下中国，一切皆有可能.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f20035dd994f469a1f6eaae52156fcd21f4f04e0.torrent)
 
