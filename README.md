@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A3xwCb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xFhhcW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月18日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda61b5ee65d432dbc48793be4e5fcbe4b04421a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cda61b5ee65d432dbc48793be4e5fcbe4b04421a
 
 下载BT种子 [【環球直擊】北京疫情蔓延多省區淪陷余文生獲刑4年許艷見7國人權官員（6月19日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16dead618c65c9fde4730321fb5421d7844e5b9f.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [華為遭棄5G將成中西方分水嶺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a6d121a8d242c6798063a24d47d3e8f6da40728.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2a6d121a8d242c6798063a24d47d3e8f6da40728
-
-下载BT种子 [54學者涉千人計劃被開除美國NIH還在查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf43b25dba5861287404319b9de99c6a5397e352.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bf43b25dba5861287404319b9de99c6a5397e352
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
