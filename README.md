@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TdpmrU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6JucV1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「印度官員：中國正副指揮官（上校）陣亡」衝突地點第14巡邏點山脊高地印度部隊堅決阻止中共國軍隊改變邊界現狀【5毛全力狙擊此話題為哪般？】（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b85231e6300089bc3c94a4328570af65a1fffec4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b85231e6300089bc3c94a4328570af65a1fffec4
 
 下载BT种子 [新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bce6a3a912d656e9f7f2f6918af59b9e3f790e94.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [市場憂二波疫情衝擊庫德洛：經濟正在反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a48c02302bf7166137b555061f6f1e0304f75e4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9a48c02302bf7166137b555061f6f1e0304f75e4
-
-下载BT种子 [世界最古老動物園倫敦動物園重新開放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/079ddf016ab464d72231a60b344801e6850097f3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:079ddf016ab464d72231a60b344801e6850097f3
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
