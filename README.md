@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ojzsr1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dnbDvE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [黃之鋒宣布參選民主派籲投票改變港命運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4482e7732ff8ef307d0ded1f1f057f741fc061be.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4482e7732ff8ef307d0ded1f1f057f741fc061be
+
+下载BT种子 [【蕭茗訪談】與獨立製片人討論中共意識形態迫害與反迫害等問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a236580e17dd4f772cc55563bd87ef93116048.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e4a236580e17dd4f772cc55563bd87ef93116048
+
+下载BT种子 [民主峰會開場發言黃之鋒籲歐盟制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2f8e41c8d24bf20a0bef838bb876b7a754a8954.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e2f8e41c8d24bf20a0bef838bb876b7a754a8954
+
+下载BT种子 [（字幕）國安法或三天通過620港罷工罷課公投抗爭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aea0d632f78c9eefc3c3eb679e2371c1c1632ef6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aea0d632f78c9eefc3c3eb679e2371c1c1632ef6
+
+下载BT种子 [美國洛縣警局公佈一段視頻男嬰吞硬幣停止了呼吸警長機智化險為夷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03874284fc93dd8a78c846299ef7c28d4b00324a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:03874284fc93dd8a78c846299ef7c28d4b00324a
 
 下载BT种子 [《石濤聚焦》「楊潔篪見面彭培奧後川普：全面與中共國脫鉤政策選項」美亞太助卿：楊潔篪態度不坦誠【中共釣魚完敗習近平完全錯判」未來數周見成效【美方明確態度與威脅】（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10066840f4989f5956373f8dafcd6b1ddbdcf4d6.torrent)
 
@@ -608,26 +628,6 @@
 下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59feb6d4734ea7dafcd38df79545e3d3a12a1cea.torrent)
 
 磁力链接 magnet:?xt=urn:btih:59feb6d4734ea7dafcd38df79545e3d3a12a1cea
-
-下载BT种子 [《石濤聚焦》「北京大淪陷習近平逃亡寧夏：全城戰時狀態敲門大排查」7120社區10萬人投入封鎖21個社區9萬人79例涵蓋八個城區病毒來自虹鱒？「天滅中共：最早感染-5.28最早發病-6.4」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/38013b32130d6e1e061763fb9ba53e3b36edf8e0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:38013b32130d6e1e061763fb9ba53e3b36edf8e0
-
-下载BT种子 [《石濤聚焦》「習近平生日過萬名香港人紀念梁凌杰逝世1周年」追加——陶傑黃耀明親臨金鐘祭壇獻花：「今晚太古廣場藍穹燈海黃花碧血遠去了的人我們想念你」習近平懼怕北京逃至甘肅（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3fdb7c35758f3c9eccdfc3bf0eaf9312e9367811.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3fdb7c35758f3c9eccdfc3bf0eaf9312e9367811
-
-下载BT种子 [聲援15位民主派人士港人悼念梁凌杰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f1cd411aa05be6bf7359cf90200183f1c82342a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f1cd411aa05be6bf7359cf90200183f1c82342a
-
-下载BT种子 [中美外交會談前蓬佩奧：中共威脅自由人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b83dbd1f1472f6de9ac2ef8c4944629f295bfe3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0b83dbd1f1472f6de9ac2ef8c4944629f295bfe3
-
-下载BT种子 [川普西點軍校2020畢業禮演說：敢做對的事.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf716614162c59e2c31b65c16547ced16271a58c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf716614162c59e2c31b65c16547ced16271a58c
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
