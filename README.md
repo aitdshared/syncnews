@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E8CeOf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P5GObC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「中印衝突56共軍陣亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e3a3d57d6233def86af5343b56475f3e9a3979d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e3a3d57d6233def86af5343b56475f3e9a3979d
 
 下载BT种子 [【中國禁聞】6月18日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda61b5ee65d432dbc48793be4e5fcbe4b04421a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [牽動美大選烏克蘭天然氣公司巨額貪腐案落幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/397e1b747627479082f851ff7e8733466c134a25.torrent)
 
 磁力链接 magnet:?xt=urn:btih:397e1b747627479082f851ff7e8733466c134a25
-
-下载BT种子 [華為遭棄5G將成中西方分水嶺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a6d121a8d242c6798063a24d47d3e8f6da40728.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2a6d121a8d242c6798063a24d47d3e8f6da40728
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
