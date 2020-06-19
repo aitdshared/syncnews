@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AHiJNv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kGfoqZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】北京成昔日武漢？斷糧斷菜網絡求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65f8fcc2f1409cda99d5ad682af730c50f27b438.torrent)
+
+磁力链接 magnet:?xt=urn:btih:65f8fcc2f1409cda99d5ad682af730c50f27b438
 
 下载BT种子 [【禁聞】暴雨洪澇泥石流三峽大壩潰恐成「黑天鵝」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a4b3f5473d7b314d2afa2645afc75c46558d88.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【美國思想領袖】美國對沖基金海曼基金創始人凱爾·巴斯：🇭🇰香港銀行危機將至！瘟疫過後，美、中、港的經濟會發生什麽？為何香港局勢格外凶險？🦠有何證據能證明中共應當為瘟疫負責？#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/135f6d451ed0f0b28927c721b950e1dcfe504ad3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:135f6d451ed0f0b28927c721b950e1dcfe504ad3
-
-下载BT种子 [北京疫情持續擴散或涉及幾十萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/904fb81b22a5035eb62e998d4ca2f0d090383d4b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:904fb81b22a5035eb62e998d4ca2f0d090383d4b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
