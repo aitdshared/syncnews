@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YSqgV5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8OsJW1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蔡英文哥本哈根演講「在疫情中捍衛民主」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39bdeb8032a12782b596c477cbc8c7553387a408.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39bdeb8032a12782b596c477cbc8c7553387a408
 
 下载BT种子 [中共審議港版國安法國際政要譴責蓬佩奧推文敦促中共重新考慮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d4666b834e743337840edd839bb90342b82cca2.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [北京與武漢「戰疫」反其道而行？「新發地」市場成漩渦；習近平全局決策的基礎坍塌；三處極不正常（文昭談古論今20200615第770期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aecf7f2d4cef50e8c3d25d16d0b75ec42b40bae9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aecf7f2d4cef50e8c3d25d16d0b75ec42b40bae9
-
-下载BT种子 [《石濤聚焦》「習近平生日：身穿黃色雨衣的梁凌杰死諫政府週年祭典」萬人聚集香江才子陶傑：今晚太古廣場藍穹燈海黃花碧血遠去了的人我們想念你（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ba89cc4e94cc068184dab9826237cd7defb4eb85.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ba89cc4e94cc068184dab9826237cd7defb4eb85
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
