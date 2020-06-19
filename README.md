@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6JucV1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qfcpJX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「見面楊潔篪後蓬佩奧首次表態：美國視香港與深圳上海一樣」美國正羅列為「港版國安法」承擔責任的中共官員名單「美國將終止一切與香港獨立簽署的條款合約」（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e72b584deb30fdcac5668d6bc5e376a3af8a1f7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8e72b584deb30fdcac5668d6bc5e376a3af8a1f7
 
 下载BT种子 [《石濤聚焦》「印度官員：中國正副指揮官（上校）陣亡」衝突地點第14巡邏點山脊高地印度部隊堅決阻止中共國軍隊改變邊界現狀【5毛全力狙擊此話題為哪般？】（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b85231e6300089bc3c94a4328570af65a1fffec4.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共跪了？楊潔篪將訪美，趙立堅態度放軟；3航母集結印太，美警告不怕開戰；袁爸爸投入「滅共行動」；李克強藉口請辭習批准？北京成疫原地，幾十萬潛在攜帶者，市民瘋狂搶購蔬菜潮！【新聞看點李沐陽06.15】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd52d4c2a9ddc9262a2b9845000e90dd057d23a9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fd52d4c2a9ddc9262a2b9845000e90dd057d23a9
-
-下载BT种子 [袁弓夷與班農聯手推「天滅中共」行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ff2247395e0edf00524c853bcf49e8082abfd68.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3ff2247395e0edf00524c853bcf49e8082abfd68
 
 下载BT种子 [市場憂二波疫情衝擊庫德洛：經濟正在反彈.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a48c02302bf7166137b555061f6f1e0304f75e4.torrent)
 
