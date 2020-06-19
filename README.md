@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6ecihJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fAd4Sl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】印度悼念死去士兵中共戰狼收斂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f4a64538b520a16fb445c10a7c9d20d093dd8fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3f4a64538b520a16fb445c10a7c9d20d093dd8fb
 
 下载BT种子 [【禁聞】上海律師彭永和脖上掛牌上街乞討中印邊境衝突中方殘暴武器曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/600563f5640a844463d19ea5eeed23cf1407f89f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁聞】法國戴高樂號為何淪為「海上瘟艦」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357
-
-下载BT种子 [【禁聞】鄭州也爆疫情？大型農貿市場突被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a5d626c8119cd3feb2d10f7928fcd0e84cd9950.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a5d626c8119cd3feb2d10f7928fcd0e84cd9950
 
 下载BT种子 [【禁聞】美國再限制4家中共官媒制裁33家實體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4b328bb4ca440f92aa071b1600bcd222b9b058.torrent)
 
