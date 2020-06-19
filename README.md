@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8OsJW1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rGUjoG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】國安法或三天通過黃之鋒籲歐盟制裁中共國際政要譴責中共審港版國安法(6月19日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92d82d365e9fa42b51872f3fff51289f1b6b331.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a92d82d365e9fa42b51872f3fff51289f1b6b331
 
 下载BT种子 [蔡英文哥本哈根演講「在疫情中捍衛民主」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39bdeb8032a12782b596c477cbc8c7553387a408.torrent)
 
