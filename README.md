@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1AEgnN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lJzf0s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中印邊境衝突升級到戰爭有多遠？從七千人大會的毛劉鬥到兩會的習李亂；從尼赫魯到莫迪，看來大家都準備好了。（江峰漫談20200619第191期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f72635ff198045cb005435a74d945422018d9c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8f72635ff198045cb005435a74d945422018d9c9
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十七回老子一爇化三清」通天教主設惡陣誅戳陷絕非道德“封神榜”上分三等或仙或神或輪迴「截闡道德皆正果方知兩教不虛傳」（上集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f5640965e3bde659c01386cfc912ca3cebcb42d.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤聚焦》「北京大淪陷習近平逃亡寧夏：全城戰時狀態敲門大排查」7120社區10萬人投入封鎖21個社區9萬人79例涵蓋北京八個區「病毒可能來自假三文魚-虹鱒」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f8810ef3a9f7831457c95159dd18ce15ca79665.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f8810ef3a9f7831457c95159dd18ce15ca79665
-
-下载BT种子 [《石濤.News》「習近平生日獲大禮：王滬寧送-21世紀馬克思主義」蔡奇-北京病毒戰時狀態美媒-生吞香港「習近平懼怕染病賊隱寧夏」比肩馬克思圈兒畫圓了——方得始終「2020天滅中共在劫難逃」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3e32b87d27a023650c3a4b1eb0537bf7b60be3f1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3e32b87d27a023650c3a4b1eb0537bf7b60be3f1
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
