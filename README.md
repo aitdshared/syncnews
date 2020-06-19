@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/R6k3YP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/adVNtr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [孟晚舟引渡案23日再開庭中共起訴2名加拿大公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ad03889b1b9810f3851205aa28a6c69ea6828a3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8ad03889b1b9810f3851205aa28a6c69ea6828a3
+
+下载BT种子 [除中國大陸外850萬感染中共病毒歐盟史上最大衰退提出一項8400億美元救援基金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ec9868627de66c15e12bd7ed9c32a84babeb656.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ec9868627de66c15e12bd7ed9c32a84babeb656
+
+下载BT种子 [中方承諾貿易履約川普：仍保留脫鉤選項.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e83ae51a4b13a2e55b5e3dcba00d0e24a1333e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e83ae51a4b13a2e55b5e3dcba00d0e24a1333e1
 
 下载BT种子 [黃之鋒宣布參選民主派籲投票改變港命運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4482e7732ff8ef307d0ded1f1f057f741fc061be.torrent)
 
@@ -616,10 +628,6 @@
 下载BT种子 [重庆出大事！陈敏尔反叛习近平？争夺接班人，习家军爆内讧。北京女高官坠楼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b4a1b722eb2e9f9cd1c16180a264a841ebae7ba.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9b4a1b722eb2e9f9cd1c16180a264a841ebae7ba
-
-下载BT种子 [【中國禁聞】6月14日完整版(字幕)🔥北京疫情持續擴散涉及幾十萬人浙江油罐車大爆炸傷亡慘重官方涉瞞報？法國戴高樂號為「海上瘟艦」鄭州也爆疫情？大型農貿市場突被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b603e1bde185cb209513a4c5b4dba898393b0c5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b603e1bde185cb209513a4c5b4dba898393b0c5
 
 下载BT种子 [《石濤聚焦》「中央統計局力挺李克強：6.1億國人月收入957.00」習近平保命離京統計局趁機報數據：總理所言據實「大家都是反習勢力？習近平另類生日快樂！」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e23f8f4cb73cb4857207c3c4f9d7dc8fb041b00e.torrent)
 
