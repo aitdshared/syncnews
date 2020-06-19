@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7L0q4o)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pINbDS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [機器人現身香港廚房拿手絕活翻滾蛋炒飯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5ddf077571c2a86b9e96f90e7134d97662efeef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a5ddf077571c2a86b9e96f90e7134d97662efeef
+
+下载BT种子 [美國不會再封閉哈薩克斯坦前總統染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51fefb8b55507385ffc9910352eb3e874cdf3f6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51fefb8b55507385ffc9910352eb3e874cdf3f6b
+
+下载BT种子 [中印衝突雙方一明一暗中共「狼牙棒」曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258
+
+下载BT种子 [美新版《國防太空戰略》：合作應對中俄威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef14c5bf3d933db458e96f4893db9ac982128099.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ef14c5bf3d933db458e96f4893db9ac982128099
+
+下载BT种子 [支持全美小企業川普指美經濟在直線復甦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ebed7dbe1e3ac5306b96ae21cfb7e9bc2fa3e59.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1ebed7dbe1e3ac5306b96ae21cfb7e9bc2fa3e59
 
 下载BT种子 [楊潔篪、彭培奧交鋒，中共要賠印度？人大常委會衝刺香港《國安法》；制裁韓正開闢權鬥新局面（文昭談古論今20200618第772期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc887762fc725361589b4b6a35651a0e9ee69a3a.torrent)
 
@@ -608,26 +628,6 @@
 下载BT种子 [【中國禁聞】6月14日完整版🔥北京疫情持續擴散涉及幾十萬人浙江油罐車大爆炸傷亡慘重官方涉瞞報？法國戴高樂號為「海上瘟艦」鄭州也爆疫情？大型農貿市場突被封.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b6c5ab626af9bdb2f67fb0ace366995778aef82.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1b6c5ab626af9bdb2f67fb0ace366995778aef82
-
-下载BT种子 [华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆第328集20200614）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6807a4fcf249e9eac17b39aa139b104081779982.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6807a4fcf249e9eac17b39aa139b104081779982
-
-下载BT种子 [【環球直擊】黑人酒駕男搶警槍被射亡亞特蘭大警方公布視頻蓬佩奧夏威夷或會晤楊潔篪（6月14日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e833cc4a3e2fa054564bed27aabfc38a63034665.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e833cc4a3e2fa054564bed27aabfc38a63034665
-
-下载BT种子 [封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重(政论天下第181集20200614)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b06e5d58821ef3f8604820370dc63565e2d7592.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b06e5d58821ef3f8604820370dc63565e2d7592
-
-下载BT种子 [习近平紧张，为此事调集大量军警！浙江出大事。特朗普西点军校演讲引热议.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a16071df9caf4afc5846cbcd03f03b270e539a7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a16071df9caf4afc5846cbcd03f03b270e539a7f
-
-下载BT种子 [《石濤聚焦》「美法庭公布機密文件吳小暉轉移資產至鄧小平家族隨後被抓」陳小魯生前授意表明吳小暉與鄧小平家族-利益共同「密件要求不得洩漏給習近平王岐山與常委家人」頂級紅二代衝突劇烈（1406）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/34a89513264c5451a177b085d162a954c19f36b4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:34a89513264c5451a177b085d162a954c19f36b4
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
