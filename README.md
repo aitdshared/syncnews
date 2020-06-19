@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/byDPPK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xkArDj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「見面楊潔篪後蓬佩奧首次表態：」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/01fcf34b1f576e377c48855e951b36481a2eff34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:01fcf34b1f576e377c48855e951b36481a2eff34
 
 下载BT种子 [【環球直擊】國安法或三天通過黃之鋒籲歐盟制裁中共國際政要譴責中共審港版國安法(6月19日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a92d82d365e9fa42b51872f3fff51289f1b6b331.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [世界最古老動物園倫敦動物園重新開放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/079ddf016ab464d72231a60b344801e6850097f3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:079ddf016ab464d72231a60b344801e6850097f3
-
-下载BT种子 [【環球直擊】北京疫情隔離數萬人浙江槽罐車爆炸中美外交會談(6月5日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6636b97167fbba13d89b0edb597b3ba63e064a0e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6636b97167fbba13d89b0edb597b3ba63e064a0e
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
