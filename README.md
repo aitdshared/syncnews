@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7pWvUr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t2DQEn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [从印度开始，中国货或遭遇全球抵制，苦了中国百姓，但习近平还在撒钱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c3f2fa775c8513d5bba7d013b7463decc798238.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c3f2fa775c8513d5bba7d013b7463decc798238
 
 下载BT种子 [杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话(政论天下第183集20200618)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b6ce1e33a9c0f9ce8bc96a2cfaf39956700a72b.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [全球近8百萬人感染中共病毒歐洲開放邊界俄羅斯、巴西等地疫情仍然嚴峻.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1441b63303579bd2098e61230822943d32dc0988.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1441b63303579bd2098e61230822943d32dc0988
-
-下载BT种子 [十國聯手抗中共百餘政要加入「跨國議會聯盟」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/036ce097a0623c70b4319fd15c588e09c5dc7f03.torrent)
-
-磁力链接 magnet:?xt=urn:btih:036ce097a0623c70b4319fd15c588e09c5dc7f03
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
