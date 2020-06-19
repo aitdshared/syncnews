@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/adVNtr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BIEkDV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [澳洲遭黑客網攻中共被指幕後黑手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/333fd9c4aaec0d1f36fcea6984fb21eafe4231dd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:333fd9c4aaec0d1f36fcea6984fb21eafe4231dd
 
 下载BT种子 [孟晚舟引渡案23日再開庭中共起訴2名加拿大公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ad03889b1b9810f3851205aa28a6c69ea6828a3.torrent)
 
@@ -624,18 +628,6 @@
 下载BT种子 [《石濤.News》「習近平生日禮讚“21世紀馬克思主義”」蔡奇贈送“全城戰時狀態”習近平領情早早藏到甘肅「中南海-玉泉山已成最危險地段」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d68c40844135d9c9ad394e5ceaef8ee05409ebb.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7d68c40844135d9c9ad394e5ceaef8ee05409ebb
-
-下载BT种子 [重庆出大事！陈敏尔反叛习近平？争夺接班人，习家军爆内讧。北京女高官坠楼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b4a1b722eb2e9f9cd1c16180a264a841ebae7ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b4a1b722eb2e9f9cd1c16180a264a841ebae7ba
-
-下载BT种子 [《石濤聚焦》「中央統計局力挺李克強：6.1億國人月收入957.00」習近平保命離京統計局趁機報數據：總理所言據實「大家都是反習勢力？習近平另類生日快樂！」（1506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e23f8f4cb73cb4857207c3c4f9d7dc8fb041b00e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e23f8f4cb73cb4857207c3c4f9d7dc8fb041b00e
-
-下载BT种子 [《石濤聚焦》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/59feb6d4734ea7dafcd38df79545e3d3a12a1cea.torrent)
-
-磁力链接 magnet:?xt=urn:btih:59feb6d4734ea7dafcd38df79545e3d3a12a1cea
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
