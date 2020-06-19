@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UbPECl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VDRz7j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新發地5米一軍警，北京西紅門萬人小區400感染；三峽大壩危險，宜昌以下快跑！中共士兵用狼牙棒殺人，印度國民反共情緒高漲；中共軍機10天5侵台，中共海警船連續６５天挑釁日本【新聞看點李沐陽06.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591c5ff1d8361dfd405540a0ccb660464db63588.torrent)
+
+磁力链接 magnet:?xt=urn:btih:591c5ff1d8361dfd405540a0ccb660464db63588
 
 下载BT种子 [【環球直擊】蓬佩奧會晤楊潔篪北京商戶損失慘重G7外長聯合聲明（6月18日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf42b3a94898c7602856000456c64a32724af9f0.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [李克强辞职了？分析可能性及其影响，当下中国，一切皆有可能.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f20035dd994f469a1f6eaae52156fcd21f4f04e0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f20035dd994f469a1f6eaae52156fcd21f4f04e0
-
-下载BT种子 [【會員節目試看12小時限時公開】瘟疫史話之二：天要變擋不了！崇禎強國夢碎在瘟疫劫歡迎加入大宇新聞拍案驚奇「會員」（2020.06.14）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e584b754fec25a3868661622cb5c069c5bc96e49.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e584b754fec25a3868661622cb5c069c5bc96e49
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
