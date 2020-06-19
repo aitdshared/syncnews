@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3ZTCwp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hGy233)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月18日完整版💎暴雨洪澇泥石流三峽大壩潰恐成「黑天鵝」；北京成昔日武漢？斷糧斷菜網絡求救；印度悼念死去士兵中共戰狼收斂。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6727bf3b339b90a983ff8d46274e37018c9a01d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a6727bf3b339b90a983ff8d46274e37018c9a01d
+
+下载BT种子 [【禁聞】美祭最強名單制裁中共政治局委員及家屬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8259fe5833fcd98f3036418f0a068b024aba2305.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8259fe5833fcd98f3036418f0a068b024aba2305
 
 下载BT种子 [【禁聞】印度悼念死去士兵中共戰狼收斂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f4a64538b520a16fb445c10a7c9d20d093dd8fb.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [一週經濟回顧：中國地攤經濟要恢復北京城管取締地攤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6a049def3ac96c20e7ee742f0f11eead9cbd308.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e6a049def3ac96c20e7ee742f0f11eead9cbd308
-
-下载BT种子 [【禁聞】法國戴高樂號為何淪為「海上瘟艦」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4c3af3cda3a2f6f01be2c41ccf89ad5cf25dd357
-
-下载BT种子 [【禁聞】美國再限制4家中共官媒制裁33家實體.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4b328bb4ca440f92aa071b1600bcd222b9b058.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b4b328bb4ca440f92aa071b1600bcd222b9b058
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
