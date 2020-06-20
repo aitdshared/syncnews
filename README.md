@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Fh4uW0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8UsU0c)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港民間組織及學生團體舉辦「三罷公投」市民：這一刻要出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51463460de26c916f09dd3b2a4350b00003fe8b7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51463460de26c916f09dd3b2a4350b00003fe8b7
 
 下载BT种子 [中國大陸以外至少870萬人確診北京改口三文魚非源頭巴西1百萬人確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6617ede6954452579f6dc68594154a1c16418560.torrent)
 
@@ -624,26 +628,6 @@
 下载BT种子 [53年來首次中印兩軍邊境激鬥數十死傷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91b0b3234f977794d4ec2377d382f6802d5b9915.torrent)
 
 磁力链接 magnet:?xt=urn:btih:91b0b3234f977794d4ec2377d382f6802d5b9915
-
-下载BT种子 [美國議員提案禁中共黨員獲綠卡公民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/762f8f263c9cb1b22f5e26ffffeb096d32ba9ce2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:762f8f263c9cb1b22f5e26ffffeb096d32ba9ce2
-
-下载BT种子 [中印邊境急升溫，45年來最嚴重；中印之戰會再現？被玩砸的重大戰略（文昭談古論今20200616第771期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b366f2dee15ecf1724eb27b0765de216e4dda4c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b366f2dee15ecf1724eb27b0765de216e4dda4c
-
-下载BT种子 [半个北京沦陷！习家军高官罕见免职。党媒忽然唱好中美关系。中印冲突酿重大伤亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e84e2793a2ad159abdb72e6a4b1106c42238ed30.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e84e2793a2ad159abdb72e6a4b1106c42238ed30
-
-下载BT种子 [全球超過806萬人確診感染南美洲病例激增英國5.2萬人死亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/116568a944c64637020cbc7f797b7eadae8fe847.torrent)
-
-磁力链接 magnet:?xt=urn:btih:116568a944c64637020cbc7f797b7eadae8fe847
-
-下载BT种子 [全球「拒絕中共」倡議書網絡徵簽已破10萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da168d53eea7004c86185d13f31f30fc6e79fb3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:da168d53eea7004c86185d13f31f30fc6e79fb3a
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
