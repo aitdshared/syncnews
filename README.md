@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GHLWdo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Emti16)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】辯護權哪去了？上海律師掛牌討飯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dc49f561d54a96134b1047c416b29d2868e776f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2dc49f561d54a96134b1047c416b29d2868e776f
 
 下载BT种子 [北京告急！中印冲突：华为小米等500款中国货遭拒！会谈后川普致习近平：可全面脱钩！（老北京茶馆第331集20200619）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b9fd0ed0dc38e98462a1d2a55339a3be8fad8ef.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤.News》「新發地本名為【新墳地】」中華民國外交部通知：所有涉外人員名片不得印有【台灣】字樣「高人指點意味甚濃」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c
-
-下载BT种子 [《石濤聚焦》「金與正下令兩韓聯絡處被炸毀」金正恩「假神隱實則非死即殘」金與正已大權獨攬「一切都是演戲為朝鮮人接受其權力鋪墊而已」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/968968442202dd55260d1e7e419ef164ca267511.torrent)
-
-磁力链接 magnet:?xt=urn:btih:968968442202dd55260d1e7e419ef164ca267511
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
