@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hZwmBN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GhLggm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中印衝突更多慘烈細節曝光！中方使用狼牙棒，蓄意伏擊；印度全民憤怒，中印關係走向如何？夏威夷會晤後蓬佩奧強硬表態：這是在自由和暴政之間的選擇唐靖遠趙培熱點互動06192020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a86985ba4044230dcd76f9b7af2ef922b680083.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a86985ba4044230dcd76f9b7af2ef922b680083
 
 下载BT种子 [中国乱象：证明自己是自己；银行挤兑再次出现，小银行太多，央行管不过来了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf36d80421f6128f72f1ba59353dfc439b0bea57.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [全球「拒絕中共」倡議書網絡徵簽已破10萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da168d53eea7004c86185d13f31f30fc6e79fb3a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:da168d53eea7004c86185d13f31f30fc6e79fb3a
-
-下载BT种子 [北京再被揭低報確診鮭魚多地檢測陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d47b906bf8a8103ce4baa8e4195391e86a887cad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d47b906bf8a8103ce4baa8e4195391e86a887cad
 
 下载BT种子 [美國務院宗教自由會議首邀香港法輪功發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c57ebe72f0888061c5b536938b28d62594ac6e7.torrent)
 
