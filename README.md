@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wMtMRr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1WWx2B)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【華府衝擊播】專訪葉望輝：中國人應擁有自己的未來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/263b6a90726bbf54b2105de639c52745c35d2970.torrent)
+
+磁力链接 magnet:?xt=urn:btih:263b6a90726bbf54b2105de639c52745c35d2970
+
+下载BT种子 [港版國安法違法兼侵權加拿大政要籲行動七國集團需要喚醒各民主國家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b20435946bfab6dd347f146503577eb074cc61.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d0b20435946bfab6dd347f146503577eb074cc61
 
 下载BT种子 [利用疫情，此人想当副主席？习近平亲自隐瞒：共军正副指挥官遭印军....mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c2f4d3c990607e0828643e48b7003dad79a2da8.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [《石濤聚焦》「硬來突爆18日人大常委討論“港版國安法”」楊潔篪正在飛往夏威夷見彭培奧歐盟與英國相繼發飆中共國無釐頭所為——好似男人更年期？（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/476b3ee8f805a6031dd444a71906fba8c447954f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:476b3ee8f805a6031dd444a71906fba8c447954f
-
-下载BT种子 [川普總統簽署行政令促美國警察執法改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/527e6f2a6e2e1f56689b019eeb552c6092f9b620.torrent)
-
-磁力链接 magnet:?xt=urn:btih:527e6f2a6e2e1f56689b019eeb552c6092f9b620
-
-下载BT种子 [大陸五毛漲薪曇花一現變為二毛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfabcbb03264786f050e236d4196c50c27636ecc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cfabcbb03264786f050e236d4196c50c27636ecc
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
