@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wj8MGc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cGeI1y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [日環食周日現亞洲上空多地展開觀星熱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0971947afd819523d550c3b8d1773814e1ca404.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e0971947afd819523d550c3b8d1773814e1ca404
 
 下载BT种子 [三峽「吹哨人」發警告，宜昌以下有多險？洪災中三個面向看三峽大壩之危（文昭談古論今20200619第773期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/324f0f41aaf83c9fff25f06d8192716e7909ff77.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【禁聞】北京疫情升級恐有新的爆發點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4dce6d7478bb33486e6faae53fe19ad357657d7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4dce6d7478bb33486e6faae53fe19ad357657d7
-
-下载BT种子 [【微視頻】海鮮煮著吃不香嗎？中共檢測鬧笑話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493615e23a62d013eefe09973a7b3250c788bdd7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:493615e23a62d013eefe09973a7b3250c788bdd7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
