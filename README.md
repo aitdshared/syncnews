@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6BiASL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OXSjSX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [（中文字幕版）蓬佩奧在民主峰會重磅演説「中共與自由社會的挑戰」觸及中共諸多敏感問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab87d64693f4699155d6652bd1822f9929e7e143.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ab87d64693f4699155d6652bd1822f9929e7e143
 
 下载BT种子 [中印衝突更多慘烈細節曝光！中方使用狼牙棒，蓄意伏擊；印度全民憤怒，中印關係走向如何？夏威夷會晤後蓬佩奧強硬表態：這是在自由和暴政之間的選擇唐靖遠趙培熱點互動06192020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a86985ba4044230dcd76f9b7af2ef922b680083.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [中共資金滲透曝光逾70所美大學接受資助未報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/856b276e36a146c2b4e9027ead3197018ff60a41.torrent)
 
 磁力链接 magnet:?xt=urn:btih:856b276e36a146c2b4e9027ead3197018ff60a41
-
-下载BT种子 [揭中共隱瞞疫情美眾院公布首份調查報告.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/478a50805a8b77bfb4812e9e4d09adab5220279d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:478a50805a8b77bfb4812e9e4d09adab5220279d
 
 下载BT种子 [《石濤.News》「新發地本名為【新墳地】」中華民國外交部通知：所有涉外人員名片不得印有【台灣】字樣「高人指點意味甚濃」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c.torrent)
 
