@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ms8SaN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Fh4uW0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國大陸以外至少870萬人確診北京改口三文魚非源頭巴西1百萬人確診.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6617ede6954452579f6dc68594154a1c16418560.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6617ede6954452579f6dc68594154a1c16418560
+
+下载BT种子 [紐約市邁入第二階段開放更多細節出爐.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fcd43152a75e3e95e07f80518bd24b69000294d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fcd43152a75e3e95e07f80518bd24b69000294d
+
+下载BT种子 [蘇州台商企業遭到當地中共官員霸占並被當地警方威脅恐嚇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8bf9037584c8f383798f8600b35504948a2665b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c8bf9037584c8f383798f8600b35504948a2665b
+
+下载BT种子 [中共人大初審港國安法公布了草案內容國際社會「搶救」香港為港人設「救生艇」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9f92554443657c9f1c2cb68f0a004e2ee0b81f3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c9f92554443657c9f1c2cb68f0a004e2ee0b81f3
 
 下载BT种子 [印度計劃對中國的產品施加更高貿易壁壘和提高關稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a76ec0c34fc46ae7661abfaba8f14d5bcb8c993e.torrent)
 
@@ -604,10 +620,6 @@
 下载BT种子 [大陸五毛漲薪曇花一現變為二毛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cfabcbb03264786f050e236d4196c50c27636ecc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cfabcbb03264786f050e236d4196c50c27636ecc
-
-下载BT种子 [好萊塢重啟「侏羅紀世界」續集開工製作.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5b253413fd433fa6405c15f7279f880b794e1a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a5b253413fd433fa6405c15f7279f880b794e1a6
 
 下载BT种子 [53年來首次中印兩軍邊境激鬥數十死傷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91b0b3234f977794d4ec2377d382f6802d5b9915.torrent)
 
