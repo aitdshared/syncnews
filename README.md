@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8UsU0c)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qnA15F)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】港版國安法草案曝光印度擬提高中國產品關稅蘇州台商企業被霸占(完整版1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d240a0880f6b773ddbd087665597006bffa8ff40.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d240a0880f6b773ddbd087665597006bffa8ff40
 
 下载BT种子 [香港民間組織及學生團體舉辦「三罷公投」市民：這一刻要出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51463460de26c916f09dd3b2a4350b00003fe8b7.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「硬來突爆18日人大常委討論“港版國安法”」楊潔篪正在飛往夏威夷見彭培奧歐盟與英國相繼發飆中共國無釐頭所為——好似男人更年期？（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/476b3ee8f805a6031dd444a71906fba8c447954f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:476b3ee8f805a6031dd444a71906fba8c447954f
-
-下载BT种子 [美聯儲主席﹕經濟已反彈疫情陰影仍在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89613aa0eb2c80ae9d32f60e8367258081e4ad51.torrent)
-
-磁力链接 magnet:?xt=urn:btih:89613aa0eb2c80ae9d32f60e8367258081e4ad51
 
 下载BT种子 [川普總統簽署行政令促美國警察執法改革.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/527e6f2a6e2e1f56689b019eeb552c6092f9b620.torrent)
 
