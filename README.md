@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kGX18n)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OhDxM3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三峽「吹哨人」發警告，宜昌以下有多險？洪災中三個面向看三峽大壩之危（文昭談古論今20200619第773期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/324f0f41aaf83c9fff25f06d8192716e7909ff77.torrent)
+
+磁力链接 magnet:?xt=urn:btih:324f0f41aaf83c9fff25f06d8192716e7909ff77
 
 下载BT种子 [杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6299e4a662b23e05df4836178500230e82f79eb5.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【微視頻】海鮮煮著吃不香嗎？中共檢測鬧笑話.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/493615e23a62d013eefe09973a7b3250c788bdd7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:493615e23a62d013eefe09973a7b3250c788bdd7
-
-下载BT种子 [【全球新聞】北京疫情擴散數萬人隔離鄺星宇刺港大紀元記者被控三罪（6月15日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5b8740321ef69ad07f5c8f5b9074ddcdd50a80d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5b8740321ef69ad07f5c8f5b9074ddcdd50a80d
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
