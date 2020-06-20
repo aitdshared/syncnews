@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TYYC8K)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IKuU3e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [豐台瞞報中央震怒？全市啟動一級戰備；北大醫院全封閉，地壇醫院增千床；蓬佩奧寒酸招待，央視主播謾罵失誤，楊潔篪躺著中槍；川普放狠話脫鉤，全面進入新冷戰；中共4年撒幣7840億美金【新聞看點06.19】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cfebd548c547914c75aa47ef3059945f1d1022b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4cfebd548c547914c75aa47ef3059945f1d1022b
 
 下载BT种子 [美國海關宣布南加兩大港口破獲近兩萬磅走私中國肉類.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05a5ae92a101c20814f2eed9be4c11da712d77f6.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [北京是真害怕了，一篇文章信息量太大；要见彭佩奥，是不是要先道个歉啊？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/890f995a4efbdbb6cc13902f8a96166a2f4a7518.torrent)
 
 磁力链接 magnet:?xt=urn:btih:890f995a4efbdbb6cc13902f8a96166a2f4a7518
-
-下载BT种子 [【禁聞】中國南方洪災觸目驚心中共媒體視而不見只報美國暴亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a038cc4a5a9b2e31dbf0e990cb5133910514a53.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a038cc4a5a9b2e31dbf0e990cb5133910514a53
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
