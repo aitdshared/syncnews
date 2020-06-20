@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nnKWyP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QtGLOB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🚨戰時三峽是“巨型水炮”，中國四成大壩危險！北京萬人排長龍檢疫，壓垮醫院出人命，地壇添床上千；運動式防疫是政治秀？會白開！蓬佩奧：中共沒改；川普再喊決裂；郝海東受訪：親歷反送中新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b866716b45d905937d19f8cf258e8b86f13965d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b866716b45d905937d19f8cf258e8b86f13965d0
 
 下载BT种子 [【美國思想領袖】羅斯林‧萊頓：面對中共科技威脅，把華為禁了不等於萬事大吉，美國還存在很多來自中共的技術風險😓製藥公司和金融服務公司正在經受黑客的攻擊！哪些公司最危險、需要引起重視？｜#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c71e5c0ab4992ecc9861b3e733f477338460856f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [《石濤聚焦》「中印邊界軍人大衝突：印度3死中共國5死11傷」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/afa24e3e7ae973f07a2698af0887f0ae583bb0e2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:afa24e3e7ae973f07a2698af0887f0ae583bb0e2
-
-下载BT种子 [《石濤.News》「新發地原名新墳地不寒而慄之感」12日台灣外交部悄悄發文要求所有駐外使節名片上不得使用「台灣」兩字只有「中華民國」標誌確保「“天滅中共”後回歸大陸」之正統性（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9840f4b32ecd69536f5fbc5c31dea7c41e6c44a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9840f4b32ecd69536f5fbc5c31dea7c41e6c44a
 
 下载BT种子 [蕭茗採訪袁爸爸：中共誤判華爾街能左右川普；中美綜合國力相差懸殊，真正幹起來，中共無牌可打；班農和蓬佩奧真心幫香港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a973f3acb2bb6768d96fb58ff8b705d7a6e9559f.torrent)
 
