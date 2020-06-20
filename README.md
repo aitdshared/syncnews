@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8XgaVy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sx4BUI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京核酸檢測人山人海美國確認退出世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60070391c9a5866d751f2299ace0607e406456f8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:60070391c9a5866d751f2299ace0607e406456f8
 
 下载BT种子 [日環食周日現亞洲上空多地展開觀星熱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0971947afd819523d550c3b8d1773814e1ca404.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁聞】中國南方洪災觸目驚心中共媒體視而不見只報美國暴亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a038cc4a5a9b2e31dbf0e990cb5133910514a53.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a038cc4a5a9b2e31dbf0e990cb5133910514a53
-
-下载BT种子 [【禁聞】北京確診病例暴增數十萬人去過新發地感染者難追蹤.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c75eb47dd4f87125d3959cf7c6d40e6215384b4c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c75eb47dd4f87125d3959cf7c6d40e6215384b4c
 
 下载BT种子 [【禁聞】蓬佩奧楊潔篪將在夏威夷會晤黨媒突捧中美友誼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a14e96dc8b81f090f4bd1390e4f85a0781769752.torrent)
 
