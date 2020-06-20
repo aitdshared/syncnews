@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7xICtw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TYYC8K)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國海關宣布南加兩大港口破獲近兩萬磅走私中國肉類.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05a5ae92a101c20814f2eed9be4c11da712d77f6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:05a5ae92a101c20814f2eed9be4c11da712d77f6
+
+下载BT种子 [潮濕天氣外加疫情橙縣遭遇蚊子大爆發.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9cc597d5704ab5674d3c874a6d73e261cb37feb0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9cc597d5704ab5674d3c874a6d73e261cb37feb0
 
 下载BT种子 [北京核酸檢測人山人海美國確認退出世衛.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60070391c9a5866d751f2299ace0607e406456f8.torrent)
 
@@ -620,14 +628,6 @@
 下载BT种子 [【禁聞】中國南方洪災觸目驚心中共媒體視而不見只報美國暴亂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a038cc4a5a9b2e31dbf0e990cb5133910514a53.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8a038cc4a5a9b2e31dbf0e990cb5133910514a53
-
-下载BT种子 [【禁聞】蓬佩奧楊潔篪將在夏威夷會晤黨媒突捧中美友誼.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a14e96dc8b81f090f4bd1390e4f85a0781769752.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a14e96dc8b81f090f4bd1390e4f85a0781769752
-
-下载BT种子 [【禁聞】北京疫情升級恐有新的爆發點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4dce6d7478bb33486e6faae53fe19ad357657d7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4dce6d7478bb33486e6faae53fe19ad357657d7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
