@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SzJ5f1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ne2T68)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「港版國安法草案出籠」國安駐港拉人送中特首欽點法官審案設【駐港國安公署】【維護國家安全委員會】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/addcdcb57ce1d9122efb066f647448a92018a3df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:addcdcb57ce1d9122efb066f647448a92018a3df
 
 下载BT种子 [《石濤.Radio》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df9de157e4ea9b6109fc0639833753a92ec4de09.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [全球「拒絕中共」倡議書網絡徵簽已破10萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da168d53eea7004c86185d13f31f30fc6e79fb3a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:da168d53eea7004c86185d13f31f30fc6e79fb3a
-
-下载BT种子 [美國務院宗教自由會議首邀香港法輪功發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c57ebe72f0888061c5b536938b28d62594ac6e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3c57ebe72f0888061c5b536938b28d62594ac6e7
 
 下载BT种子 [《石濤.News》「新發地本名為【新墳地】」中華民國外交部通知：所有涉外人員名片不得印有【台灣】字樣「高人指點意味甚濃」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c.torrent)
 
