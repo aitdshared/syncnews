@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/K2yruM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hZwmBN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中国乱象：证明自己是自己；银行挤兑再次出现，小银行太多，央行管不过来了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf36d80421f6128f72f1ba59353dfc439b0bea57.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf36d80421f6128f72f1ba59353dfc439b0bea57
 
 下载BT种子 [【禁聞】三峽大壩潰壩警告頻傳專家指點逃生路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cca1cd1d39d42f96d67ce8137de90e324b9b76e0.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [中共資金滲透曝光逾70所美大學接受資助未報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/856b276e36a146c2b4e9027ead3197018ff60a41.torrent)
 
 磁力链接 magnet:?xt=urn:btih:856b276e36a146c2b4e9027ead3197018ff60a41
-
-下载BT种子 [朝鮮炸毀韓聯辦韓國：如加劇將強烈反擊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b04d7163156ccad2f8c0f80bd3479b468920ab7d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b04d7163156ccad2f8c0f80bd3479b468920ab7d
 
 下载BT种子 [揭中共隱瞞疫情美眾院公布首份調查報告.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/478a50805a8b77bfb4812e9e4d09adab5220279d.torrent)
 
