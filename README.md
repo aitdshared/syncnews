@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OXSjSX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SzJ5f1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.Radio》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df9de157e4ea9b6109fc0639833753a92ec4de09.torrent)
+
+磁力链接 magnet:?xt=urn:btih:df9de157e4ea9b6109fc0639833753a92ec4de09
 
 下载BT种子 [（中文字幕版）蓬佩奧在民主峰會重磅演説「中共與自由社會的挑戰」觸及中共諸多敏感問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ab87d64693f4699155d6652bd1822f9929e7e143.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美國務院宗教自由會議首邀香港法輪功發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c57ebe72f0888061c5b536938b28d62594ac6e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3c57ebe72f0888061c5b536938b28d62594ac6e7
-
-下载BT种子 [中共資金滲透曝光逾70所美大學接受資助未報.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/856b276e36a146c2b4e9027ead3197018ff60a41.torrent)
-
-磁力链接 magnet:?xt=urn:btih:856b276e36a146c2b4e9027ead3197018ff60a41
 
 下载BT种子 [《石濤.News》「新發地本名為【新墳地】」中華民國外交部通知：所有涉外人員名片不得印有【台灣】字樣「高人指點意味甚濃」（1606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/704a3f7f7d1e5898dad228b3dfc54fbcb20eae7c.torrent)
 
