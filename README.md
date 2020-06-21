@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0PlOfX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5i0XPi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【严真点评】外交部大实话：美中高层会谈不欢而散，欧洲欲将中共告上国际法庭。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/69b553d065efd7eb63644aec9b7ca5c4cc16b4a9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:69b553d065efd7eb63644aec9b7ca5c4cc16b4a9
 
 下载BT种子 [终结中共是习近平的宿命，他拒绝主动做，被动也得做，两者结果和时间点趋同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10c27f70a30fc6fb4d4b4b7368428717a484eba9.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [人民日报这句话暗示,杨洁篪与蓬佩奥注定谈崩;中共高层的分裂将因此加剧;中印冲突会升级吗(政论天下第182集20200616)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5216c89cbc0d188a3b674dbe1203cd4af6b114fe.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5216c89cbc0d188a3b674dbe1203cd4af6b114fe
-
-下载BT种子 [【禁聞】美國立衛生院開除54學者千人計劃再受挫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a8b9045ad0821e2e0c19d5983c9c4c5907a1652.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a8b9045ad0821e2e0c19d5983c9c4c5907a1652
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
