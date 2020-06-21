@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m2IfAQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wVFw1Y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「川普首場造勢遭遇中共-抖音摻假成功作亂」更現場喝水摔杯單腿金雞碎步搶先回答媒體質疑其身體健康「媒體是世界上最不誠實的人是壞人」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3d055d5079208ed5343de4ef51a04d8772df39.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fe3d055d5079208ed5343de4ef51a04d8772df39
 
 下载BT种子 [《石濤聚焦》「川普昨晚首場競選集會後當地發生地震-熱議」川普直言「美國的座右銘：我們相信神美國是在神引領下的國度」形容美國地區騷亂-社會主義者自由區「世界像末日一樣了」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/782252e3da2b8da763de1faf5eaa9088ac6d3ce2.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【新唐人重播】617台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/222a63c10983acb4d04aaf2b3ed58c89a2470d93.torrent)
 
 磁力链接 magnet:?xt=urn:btih:222a63c10983acb4d04aaf2b3ed58c89a2470d93
-
-下载BT种子 [【617重播】國民黨宣布通過高雄市長徵召補選辦法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b23eef794c87bc1b615e4c3179440fc6da821b27.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b23eef794c87bc1b615e4c3179440fc6da821b27
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
