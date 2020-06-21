@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mp9SAG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3N4MD9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【Jason快評】軍機擾臺，國安法細則出台，審判加國公民...總加速師，一個機會也不放過？熱點互動06202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18565432565b7d04895f33d9c48893bc1e6f4f1e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:18565432565b7d04895f33d9c48893bc1e6f4f1e
 
 下载BT种子 [【環球直擊】抗惡法！港人三罷公投市民：這一刻要出來蓬佩奧：美國還是中共歐盟須做出選擇（6月20日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0166c0a43ca3ff82d3082dd74f8c824cca21569a.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [杨洁篪见蓬佩奥，接当头四棒！北京全城敲门行动，中共为何突表态支持川普连任！（老北京茶馆第329集20200616）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fee81d688d746475b01363129c9a7aaef11048e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fee81d688d746475b01363129c9a7aaef11048e7
-
-下载BT种子 [人民日报这句话暗示，杨洁篪与蓬佩奥注定谈崩；中共高层的分裂将因此加剧；中印冲突不会升级的三个理由（政论天下第182集20200616）天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/278af48d9991a2d54c7388430b8266da9a7d0267.torrent)
-
-磁力链接 magnet:?xt=urn:btih:278af48d9991a2d54c7388430b8266da9a7d0267
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
