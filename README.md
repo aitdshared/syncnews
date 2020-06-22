@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JfGVxt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gZaKry)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -624,10 +624,6 @@
 下载BT种子 [病毒攻入中南海，中南海大封鎖！小區全封閉，市民斷糧斷菜，焚屍工全副武裝，北京已成武漢？中印衝突王毅求和？600人肉搏6小時，印指揮官墜谷亡，傷亡數字成秘密！【新聞看點李沐陽06.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f2105109dad73002f5235e52ef75af07004f49a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9f2105109dad73002f5235e52ef75af07004f49a
-
-下载BT种子 [美《凱薩法》生效制裁獨裁政權包括敘利亞獨裁者阿薩德及其妻子.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/938c93dd982df74cc32813a85b6eae063cb5a7d5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:938c93dd982df74cc32813a85b6eae063cb5a7d5
 
 下载BT种子 [美國海關頒扣留令打擊中國奴工產品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e10f7bbc79915215988e98e6b1b49ba8b8dbf76e.torrent)
 
