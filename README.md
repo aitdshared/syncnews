@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gZaKry)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ug4MWS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美俄恢復中斷一年多的核裁軍談判北京拒絕出席.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6816aef9c263fa296950af8000b7b289c90a6327.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6816aef9c263fa296950af8000b7b289c90a6327
+
+下载BT种子 [報導武漢疫情公民記者張展被批捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80fb1aa5f5bd422721e27d39e905d7969b574b0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:80fb1aa5f5bd422721e27d39e905d7969b574b0d
+
+下载BT种子 [兩會後北京爆百人確診公衛學者：耐人尋味.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/add6ce65779b394b3733100eef18e9ef3a846aca.torrent)
+
+磁力链接 magnet:?xt=urn:btih:add6ce65779b394b3733100eef18e9ef3a846aca
+
+下载BT种子 [625韓戰70週年不能忽視中共的威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b5b8c5c6cbb823a062711610bbaea9ef844cde3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4b5b8c5c6cbb823a062711610bbaea9ef844cde3
 
 下载BT种子 [【環球直擊】北京40小區封禁王全璋披露遭酷刑美將擴大簽證限制（6月21日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a5f7074db5c446f532c39664debe052966d793b.torrent)
 
@@ -601,29 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:ae63fe3578f8a97ae25172d97f4546956a26ef73
 
-下载BT种子 [【禁聞】中印邊界衝突中共為何不提軍隊死傷？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d0480d2cc9e26a8fb89d253bda3c353cf9c4f14.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8d0480d2cc9e26a8fb89d253bda3c353cf9c4f14
-
 下载BT种子 [【禁聞】北京半封城交通大規模停運學校全面停課.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/741de6856b59e1b32898e5177f75b9cbd544121f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:741de6856b59e1b32898e5177f75b9cbd544121f
-
-下载BT种子 [【全球新聞】北京疫情迅猛爆發交通大規模停運朝鮮揚言邊境軍演韓國警告美軍機監控（6月17日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/441754c4c37148fe968bac231832849bd57ee4ff.torrent)
-
-磁力链接 magnet:?xt=urn:btih:441754c4c37148fe968bac231832849bd57ee4ff
-
-下载BT种子 [【中國禁聞】6月17日完整版🔥北京半封城交通大規模停運學校全面停課；中印邊界再爆衝突中共為何不提軍隊死傷？；躲避中共迫害維權人士萬里逃亡。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90dc06d12f6e94950564f1580a836ac9bb0b66e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:90dc06d12f6e94950564f1580a836ac9bb0b66e5
-
-下载BT种子 [北京宋莊藝術家被限期搬遷或更改合同.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e5c9a0e3195c28bd90921c68a36500a776c1a597.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e5c9a0e3195c28bd90921c68a36500a776c1a597
-
-下载BT种子 [病毒攻入中南海，中南海大封鎖！小區全封閉，市民斷糧斷菜，焚屍工全副武裝，北京已成武漢？中印衝突王毅求和？600人肉搏6小時，印指揮官墜谷亡，傷亡數字成秘密！【新聞看點李沐陽06.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f2105109dad73002f5235e52ef75af07004f49a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f2105109dad73002f5235e52ef75af07004f49a
 
 下载BT种子 [美國海關頒扣留令打擊中國奴工產品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e10f7bbc79915215988e98e6b1b49ba8b8dbf76e.torrent)
 
