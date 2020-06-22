@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RsAHHR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DssQwT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國左派抖音曝光：預訂川普集會門票卻不到場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c762390a8cba5d5f76257bc781eb703f0b5f4c3f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c762390a8cba5d5f76257bc781eb703f0b5f4c3f
 
 下载BT种子 [《石濤聚焦》「原水利部長錢正英：三峽大壩沒有我們說的那麼好速度太快了」居住德國專家王維洛：沒有防洪功能一旦潰壩直衝上海「重慶綦江正遭遇80年最大洪峰水位暴漲可達11米」（2206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d69fd7305170abe9139887c86c10cefa5e8cffa4.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁聞】躲避中共迫害維權人士萬里逃亡.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/244800fd1c0c72bf5f255145b9d16d9416698b19.torrent)
 
 磁力链接 magnet:?xt=urn:btih:244800fd1c0c72bf5f255145b9d16d9416698b19
-
-下载BT种子 [【禁聞】中印衝突印度總理莫迪強硬表態北京市民做核酸檢測人擠人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ae63fe3578f8a97ae25172d97f4546956a26ef73.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ae63fe3578f8a97ae25172d97f4546956a26ef73
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
