@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VncQCh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JZapzr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】黨媒承認了！三峽庫區水位持續上漲超出防洪限制2米印度官員中印衝突中方至少損失40名軍人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b43c034b2c1c28595bb0ce9529769226eddb1d8c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b43c034b2c1c28595bb0ce9529769226eddb1d8c
+
+下载BT种子 [【禁聞】港版國安法細節曝光顛覆香港司法獨立.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32e6864fb32d74e2b084f9cfdfe83009c24e50e3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:32e6864fb32d74e2b084f9cfdfe83009c24e50e3
+
+下载BT种子 [【禁聞】中共免除非洲國家債務專家揭背後真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8df623b496d5cb2fe01a72916c5f08d9b8bbda5f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8df623b496d5cb2fe01a72916c5f08d9b8bbda5f
+
+下载BT种子 [【禁聞】G7外長聯署籲棄港國安法國際孤立中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89065f2d6328b253d3ca65b289e4c41a376c59f9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89065f2d6328b253d3ca65b289e4c41a376c59f9
 
 下载BT种子 [【禁聞】北京疫情延燒多省醫療隊緊急入京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df276ed44fa8bfc32d3e011a0a40d96d9324f1d2.torrent)
 
@@ -612,14 +628,6 @@
 下载BT种子 [《石濤.News》「網傳：北京旅遊返鄉突發病死長途車上」6天爆137例確診！北京疾控坦言：疫情處於「上升期」渣打銀行首席丁爽示警：第2波大流行風險顯現（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4e64fdd0ed2515e37568eca5ab15357647b17b3d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4e64fdd0ed2515e37568eca5ab15357647b17b3d
-
-下载BT种子 [德政要各界撐香港民運批德政府態度軟弱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5caebcf8d295e7a59608e6809ecffb66d28862a6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5caebcf8d295e7a59608e6809ecffb66d28862a6
-
-下载BT种子 [【瘟疫與中共】善意鋪就險途新澤西製藥的不幸.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a8aafa66175b96cf91471c7a09d306152dccbc0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a8aafa66175b96cf91471c7a09d306152dccbc0
 
 下载BT种子 [疫情爆發半年全球感染及死亡人數激增.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19d2743b282254de28931b042143c089a65d6b00.torrent)
 
