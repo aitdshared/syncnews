@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JbI2KZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VwL16m)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee2d2a41a6888ef000e1ee4a469af64b31eb5330.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee2d2a41a6888ef000e1ee4a469af64b31eb5330
 
 下载BT种子 [《石濤聚焦》「川普首場造勢遭遇中共-抖音摻假成功作亂」更現場喝水摔杯單腿金雞碎步搶先回答媒體質疑其身體健康「媒體是世界上最不誠實的人是壞人」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3d055d5079208ed5343de4ef51a04d8772df39.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [【環球直擊】北京疫情迅猛爆發交通大規模停運美國議員提案禁中共黨員獲綠卡公民（6月17日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b212d5051156b9a34742b382a3f661fe4960e026.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b212d5051156b9a34742b382a3f661fe4960e026
-
-下载BT种子 [【新唐人重播】617台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/222a63c10983acb4d04aaf2b3ed58c89a2470d93.torrent)
-
-磁力链接 magnet:?xt=urn:btih:222a63c10983acb4d04aaf2b3ed58c89a2470d93
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
