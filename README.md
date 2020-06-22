@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7C9aoX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mrozz3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】北京40小區封禁百事可樂工廠現感染停工維權律師王全璋披露拘押時遭酷刑被迫認罪（6月21日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aee1c8059a43c2620c1990bdc7fc3ee2ff46595a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aee1c8059a43c2620c1990bdc7fc3ee2ff46595a
 
 下载BT种子 [【622重播】空軍新式高教機首飛！蔡英文出席漢翔沙鹿廠區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c847a9c4c877359e2df15743642309ae70a10f7d.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [美國之音正副台長辭職前主任揭示內因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/451ad6beae71913d06a10d966aadfb38d53e880e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:451ad6beae71913d06a10d966aadfb38d53e880e
-
-下载BT种子 [憨態可掬的小萌虎結交狗狗做朋友.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33a5ae9d1966172b1f0218a8984e4e7dc65f572e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:33a5ae9d1966172b1f0218a8984e4e7dc65f572e
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
