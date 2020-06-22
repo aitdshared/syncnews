@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HXtiX5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Sef3GM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「博爾頓明日出書揭謎川普全球菁英媒體翹首以待」注定川普正在被塑造成「美國歷史上最偉大的總統之一」當真兌現著「被選擇的人」必然經歷的過程（2206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b205ece1ae3f83acfc49e9b49bb22ee394fe5c0b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b205ece1ae3f83acfc49e9b49bb22ee394fe5c0b
 
 下载BT种子 [【中國禁聞】6月21日完整版字幕）🔥黨媒承認了！三峽庫區水位超出防洪限制2米印度官員：中印衝突中方至少損失40人北京疫情延燒多省醫療隊緊急入京中共免除非洲國家債務專家揭背後真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45a4dcc2ee06aa33d806e6c13fdb6aca47e0079c.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [yuanxiansheng.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00a5fd1927d92a428c7279d962d0408d5d71366a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:00a5fd1927d92a428c7279d962d0408d5d71366a
-
-下载BT种子 [紐約疫情大幅緩解洪都拉斯總統染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d0e8d4342ac46ad0f6bc355c825e6ee35337f0d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d0e8d4342ac46ad0f6bc355c825e6ee35337f0d
 
 下载BT种子 [袁弓夷：中共氣數已盡滅共才有出路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361a55f33fc643c77cccee762733f67186c71446.torrent)
 
