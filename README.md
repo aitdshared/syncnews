@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ntgl1i)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ix3lCJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第七十九回穿云關四將被擒」法戒根深不在劫準提出手道因由龍安怪手擒四將哪吒隨即送西天「幾多險處仍須吉若許能時總是空」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acaf0d0ca479057336cbd0cb754b65ef89ddf8df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:acaf0d0ca479057336cbd0cb754b65ef89ddf8df
 
 下载BT种子 [【美國思想領袖】美國國會議員格雷格·斯托伯：撤回供應鏈，中共要為大流行負責！《中共政府2019冠狀病毒疾病問責法案》幫助美國從大瘟疫中恢復？中共病毒讓美國人意識到中國共產黨的威脅？｜#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e27ef345de3824b94106fba5a552ef0c682ec87f.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [于文生遭冤判律師和詩人妻子持續呼籲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ecd5e3786f719058881c5cada5e82410db413ad.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6ecd5e3786f719058881c5cada5e82410db413ad
-
-下载BT种子 [朝鮮揚言邊境軍演韓國警告美軍機監控.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f1d8321ac44370759c8eb52ea3a707f150c5f62.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1f1d8321ac44370759c8eb52ea3a707f150c5f62
 
 下载BT种子 [北京疫情迅猛爆發交通大規模停運禁重點人員離開北京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f567315681979304113451fe52886de1143cdc1b.torrent)
 
