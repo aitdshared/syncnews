@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6ywhjW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7C9aoX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【622重播】空軍新式高教機首飛！蔡英文出席漢翔沙鹿廠區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c847a9c4c877359e2df15743642309ae70a10f7d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c847a9c4c877359e2df15743642309ae70a10f7d
+
+下载BT种子 [【622重播】台監察院第6屆監察委員被提名人介紹記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39da9f9349372a0837185baaf6481d5f27a2fb17.torrent)
+
+磁力链接 magnet:?xt=urn:btih:39da9f9349372a0837185baaf6481d5f27a2fb17
+
+下载BT种子 [【環球直擊】北京疫情陷失控？現行措施類似武漢疫情后首個競選集會川普塔爾薩演講引共鳴（6月21日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2daa9e3adcdd947503202025f5237c462f284559.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2daa9e3adcdd947503202025f5237c462f284559
 
 下载BT种子 [🔥鄧小平“呼籲”打倒中共！港國安法：特首港警成太保，設“東廠西廠”；湖北援北京防疫；阻出京特急通知！共機再侵台領空，俄賣武器給印度；地質災害預警，網議三峽逃命攻略；夏至日環食新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c2dbf781f2a143cefb6f66b37b14be53fad0b5e.torrent)
 
@@ -612,18 +624,6 @@
 下载BT种子 [憨態可掬的小萌虎結交狗狗做朋友.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33a5ae9d1966172b1f0218a8984e4e7dc65f572e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:33a5ae9d1966172b1f0218a8984e4e7dc65f572e
-
-下载BT种子 [《石濤聚焦》「【國內瘋傳】黃小坤：宜昌以下跑最後說一次」宜昌-三峽水壩壩址長江之名起於此「吉林浙江雲南洱海近日魚兒🐟奮力躍出水面」大地震前兆明顯地域跨度過大（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6db80434bcdf424c4d28a79f5d99d3effbd49a65.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6db80434bcdf424c4d28a79f5d99d3effbd49a65
-
-下载BT种子 [中印交手，后果二比一！中方不敢提。轰平韩朝办公室，这个女人演的是哪一出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b874e340a2b1cbb33075197db0e56f6016aa0057.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b874e340a2b1cbb33075197db0e56f6016aa0057
-
-下载BT种子 [【中國禁聞】6月16日完整版（字幕）🔥中印衝突43名共軍20名印軍被殺北京確診暴增28社區封閉式管理美國立衛生院開除54學者海歸「小粉紅」女碩士慘遭滅門式打壓.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b3dfef9516448771456b2d5fc3d3f1324e5faf2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1b3dfef9516448771456b2d5fc3d3f1324e5faf2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
