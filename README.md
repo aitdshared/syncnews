@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mrozz3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HXtiX5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月21日完整版字幕）🔥黨媒承認了！三峽庫區水位超出防洪限制2米印度官員：中印衝突中方至少損失40人北京疫情延燒多省醫療隊緊急入京中共免除非洲國家債務專家揭背後真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45a4dcc2ee06aa33d806e6c13fdb6aca47e0079c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45a4dcc2ee06aa33d806e6c13fdb6aca47e0079c
 
 下载BT种子 [【環球直擊】北京40小區封禁百事可樂工廠現感染停工維權律師王全璋披露拘押時遭酷刑被迫認罪（6月21日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aee1c8059a43c2620c1990bdc7fc3ee2ff46595a.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [袁弓夷：中共氣數已盡滅共才有出路.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/361a55f33fc643c77cccee762733f67186c71446.torrent)
 
 磁力链接 magnet:?xt=urn:btih:361a55f33fc643c77cccee762733f67186c71446
-
-下载BT种子 [美國之音正副台長辭職前主任揭示內因.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/451ad6beae71913d06a10d966aadfb38d53e880e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:451ad6beae71913d06a10d966aadfb38d53e880e
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
