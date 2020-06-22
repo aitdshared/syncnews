@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dYG6xc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3K2siW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月21日完整版🔥黨媒承認了！三峽庫區水位超出防洪限制2米印度官員：中印衝突中方至少損失40人北京疫情延燒多省醫療隊緊急入京中共免除非洲國家債務專家揭背後真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86004fb120e68c94b3b30f10b3e007aa7bbca559.torrent)
+
+磁力链接 magnet:?xt=urn:btih:86004fb120e68c94b3b30f10b3e007aa7bbca559
 
 下载BT种子 [【微視頻】夏威夷會後中美各自理解國安法懲罰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5878b21564e9429a47be5dc3cfe85d7075aeb3cc.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [《石濤.News》「網傳：北京旅遊返鄉突發病死長途車上」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9572f1b85d5dddb1172654f6ac4f08802459c3e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e9572f1b85d5dddb1172654f6ac4f08802459c3e
-
-下载BT种子 [《石濤聚焦》「印總理莫迪：士兵的血絕不會白流外長：中共預謀策劃」中共外交部公布王毅录音为应对却掩盖45军人被石头砸死的事实（1706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a304c82f3ad9bca5cd3b01e4f14f79b36d41ff98.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a304c82f3ad9bca5cd3b01e4f14f79b36d41ff98
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
