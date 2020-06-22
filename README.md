@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eCGNEm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zrt6PL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】北京疫情延燒多省醫療隊緊急入京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df276ed44fa8bfc32d3e011a0a40d96d9324f1d2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:df276ed44fa8bfc32d3e011a0a40d96d9324f1d2
+
+下载BT种子 [2020预言兑现之穿越到香港！从推背图中走出七旬勇士：袁弓夷赴美，中共心脏偷停！（老北京茶馆第332集20200621）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9356b991a6499c762117b80e2728f3ae1782e9a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c9356b991a6499c762117b80e2728f3ae1782e9a
 
 下载BT种子 [《濤哥侃封神》「封神演義第七十九回穿云關四將被擒」法戒根深不在劫準提出手道因由龍安怪手擒四將哪吒隨即送西天「幾多險處仍須吉若許能時總是空」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acaf0d0ca479057336cbd0cb754b65ef89ddf8df.torrent)
 
@@ -616,14 +624,6 @@
 下载BT种子 [疫情爆發半年全球感染及死亡人數激增.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19d2743b282254de28931b042143c089a65d6b00.torrent)
 
 磁力链接 magnet:?xt=urn:btih:19d2743b282254de28931b042143c089a65d6b00
-
-下载BT种子 [中印軍人衝突雙死傷數十人美國密切關注中共仍未公布中方的傷亡數字.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9905d4fdf0d483cfe17c79a9820bb0c73e2bd091.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9905d4fdf0d483cfe17c79a9820bb0c73e2bd091
-
-下载BT种子 [于文生遭冤判律師和詩人妻子持續呼籲.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ecd5e3786f719058881c5cada5e82410db413ad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6ecd5e3786f719058881c5cada5e82410db413ad
 
 下载BT种子 [北京疫情迅猛爆發交通大規模停運禁重點人員離開北京.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f567315681979304113451fe52886de1143cdc1b.torrent)
 
