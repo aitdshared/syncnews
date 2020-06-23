@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XDLPsE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TiFuGx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】歐盟與李克強視頻峰會左派抖音曝光回顧625戰爭不能忽視中共的威脅(6月22日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb639d10774dd36809c827bbe18693e391a20848.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb639d10774dd36809c827bbe18693e391a20848
 
 下载BT种子 [忽然军警遍布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a1d7f3963ee9c38c614aafe02861e6a2a52cc52.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [各种异象频出，不由得你不相信，最后的时间点越来越近，该清醒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07fa89e6bd96a173942c592f721aa2975bbf1b30.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07fa89e6bd96a173942c592f721aa2975bbf1b30
-
-下载BT种子 [《濤哥侃封神》「封神演義第七十六回鄭倫捉將取汜水」韓榮雙子出奇兵萬仞風火催周將子牙鼠竄金雞嶺洽遇鄭倫天意明「白晝已難遮半壁黃昏安可護三鄉」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0825c4682eb1591a23b71d65ca2ecc48b5fbd464.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0825c4682eb1591a23b71d65ca2ecc48b5fbd464
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
