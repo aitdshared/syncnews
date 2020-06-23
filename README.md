@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TiFuGx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JhWf4B)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「博爾頓今日新書：揭密習近平台灣大敗」懼怕蔡英文訪美台灣大選結果與韓國瑜被罷免給予習近平-中共毀滅性打擊「對其死保中共最絕妙的懲罰羞辱警示」（2206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/942fb03f2dd7844a000597e435936720ce04166d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:942fb03f2dd7844a000597e435936720ce04166d
 
 下载BT种子 [【環球直擊】歐盟與李克強視頻峰會左派抖音曝光回顧625戰爭不能忽視中共的威脅(6月22日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb639d10774dd36809c827bbe18693e391a20848.torrent)
 
