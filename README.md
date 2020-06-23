@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FKDCoO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nZWcun)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [重慶接1940以來最大洪水，三峽「黑天鵝」還有第二隻；香港《國安法》或虎頭蛇尾，拖習帝下台？（文昭談古論今20200622第774期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4fb831c84408038932f5711521604f1721dcab4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4fb831c84408038932f5711521604f1721dcab4
 
 下载BT种子 [《石濤聚焦》「博爾頓今日新書：揭密習近平台灣大敗」懼怕蔡英文訪美台灣大選結果與韓國瑜被罷免給予習近平-中共毀滅性打擊「對其死保中共最絕妙的懲罰羞辱警示」（2206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/942fb03f2dd7844a000597e435936720ce04166d.torrent)
 
@@ -613,17 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:54837e82474ec40e4965b1d0900db6b3e664365b
 
-下载BT种子 [【新唐人重播】618因應「中共肺炎疫情」台灣中央疫情指揮中心記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c73977f06a0014d586aa4c60e44107825ef887c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c73977f06a0014d586aa4c60e44107825ef887c7
-
 下载BT种子 [【新唐人重播】618「十足目虹彩病毒」入侵螯蝦場台灣農委會說明疫情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec3ac3522703273d816a577e68938730c6e17a80.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ec3ac3522703273d816a577e68938730c6e17a80
-
-下载BT种子 [各种异象频出，不由得你不相信，最后的时间点越来越近，该清醒了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07fa89e6bd96a173942c592f721aa2975bbf1b30.torrent)
-
-磁力链接 magnet:?xt=urn:btih:07fa89e6bd96a173942c592f721aa2975bbf1b30
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
