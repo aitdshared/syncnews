@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RxzpGn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OnMmpG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [“習近平是斯大林的繼承者”！美國首次公開指中共領袖為暴君；《香港問責法》急出台撐香港抗爭者制裁中港官員；誰還要救孟晚舟？（江峰漫談20200626第195期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49fac4e0afef2b34ed19fb37e5d62ca19f6e3f79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:49fac4e0afef2b34ed19fb37e5d62ca19f6e3f79
 
 下载BT种子 [解放軍操控清單出爐，中共「被拉清單」；北京冠狀冰雹，武漢疫後洪水，「共產黨下課」聲此起彼伏；小粉紅回國無門，現實中沒有戰狼；三峽危急中共喪事喜辦；多國棄用華為，中共開啟新冷戰【新聞看點06.25】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dbe88db5e4209ccad2766c904ec97e311b52e4a.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《石濤聚焦》「習近平亞投行給予印度7.5億求和衝突」350中共軍人持帶釘棍棒襲擊70印度軍人共軍死傷40-56人含1名高級軍官（傳司令級別）中共軍人像臭蟲習近平不允許公布死亡名單（1806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/296d66676513117508af0898415ea7a2aa93d4e3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:296d66676513117508af0898415ea7a2aa93d4e3
-
-下载BT种子 [北京疫情爆發航班大減飛洛杉磯票價達上萬美元.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b9aa2c0b24c95ffe115341d96c2f151ef5e7c7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d4b9aa2c0b24c95ffe115341d96c2f151ef5e7c7
 
 下载BT种子 [北京疫情大爆發新發地商戶損失慘重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58a684dac885f1384a53fab7f6fea4638b3f9ed1.torrent)
 
