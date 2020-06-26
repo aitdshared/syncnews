@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KSygC5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PIUSiV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共闢謠301醫院未抓人有蹊蹺！七常委隔離避難？三峽考驗高潮未到、長江洪水厲害在後面（文昭談古論今20200624第776期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a0a5dc6e2e19ba0e29b61d1ced07069c3ad2f6d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3a0a5dc6e2e19ba0e29b61d1ced07069c3ad2f6d
 
 下载BT种子 [中南海出大事？高层会议中断！两人行踪不明。印度人是阿三？中国人是阿Q.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/83470c5dc0d25a15bfaecc52a9def9588d5859c1.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [蓬佩奧楊潔篪夏威夷會談川普簽法案制裁中共官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1db9e95de2975c95e9ef520f9956d2c2e4087c5f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1db9e95de2975c95e9ef520f9956d2c2e4087c5f
-
-下载BT种子 [【中國禁聞】6月17日完整版(字幕)🔥北京半封城交通大規模停運學校全面停課；中印邊界再爆衝突中共為何不提軍隊死傷？；躲避中共迫害維權人士萬里逃亡。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a8f31e9a4a6dee845de5ee10380fdae6f0b36da.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a8f31e9a4a6dee845de5ee10380fdae6f0b36da
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
