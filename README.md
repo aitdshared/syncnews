@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GNhUzG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XbJm2Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中印衝突後中共爲何一反「戰狼」常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd899e887b91ccd939d9e762a0f4e09dee29acce.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bd899e887b91ccd939d9e762a0f4e09dee29acce
 
 下载BT种子 [【中國禁聞】6月24日完整版(字幕)🔥洪災信息敏感發佈汛情要法辦北京變相封城高官異動301醫院急闢謠中印衝突後中共爲何一反戰狼常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/429b1c2f3586b0dac74a02ea75936af7532d8cbe.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【禁聞】暴雨洪澇泥石流三峽大壩潰恐成「黑天鵝」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8a4b3f5473d7b314d2afa2645afc75c46558d88.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f8a4b3f5473d7b314d2afa2645afc75c46558d88
-
-下载BT种子 [【全球新聞】蓬佩奧楊潔篪夏威夷會談川普簽法案制裁中共官員北京疫情大爆發新發地商戶損失慘重（6月18日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f92618311624711a1d6ecbc74bd57d2f3767ea2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9f92618311624711a1d6ecbc74bd57d2f3767ea2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
