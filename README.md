@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wRvYJV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eYapkw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美參議院通過《香港自治法案》制裁中共官員及銀行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b9e98784518e2b6217c4bc96072c25a2aa81561.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4b9e98784518e2b6217c4bc96072c25a2aa81561
+
+下载BT种子 [中共縱容人口販運再被美列為問題嚴重國家美國不會袖手旁觀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b4cece702cc79a66b1c0b3ad03ee66d11535b8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:19b4cece702cc79a66b1c0b3ad03ee66d11535b8
+
+下载BT种子 [《香港自治法》獲贊制裁涉中港官警國際銀行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/418d5f54524059ee4a8b0533995e4d0f3113ae90.torrent)
+
+磁力链接 magnet:?xt=urn:btih:418d5f54524059ee4a8b0533995e4d0f3113ae90
 
 下载BT种子 [（字幕版）蓬佩奧在布魯塞爾論壇上針對中共問題的發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/695b66ea02fb2001154239d4a99d11fef7f1b2e4.torrent)
 
@@ -608,14 +620,6 @@
 下载BT种子 [从印度开始，中国货或遭遇全球抵制，苦了中国百姓，但习近平还在撒钱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c3f2fa775c8513d5bba7d013b7463decc798238.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1c3f2fa775c8513d5bba7d013b7463decc798238
-
-下载BT种子 [杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话(政论天下第183集20200618)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b6ce1e33a9c0f9ce8bc96a2cfaf39956700a72b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3b6ce1e33a9c0f9ce8bc96a2cfaf39956700a72b
-
-下载BT种子 [三峡大坝吹哨人：快跑！正勒腰带，习近平又撒币了！中美夏威夷会谈无果？后果很大！（老北京茶馆第330集20200618）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f27f84276582aab9220b94dfca1028ebf850478.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f27f84276582aab9220b94dfca1028ebf850478
 
 下载BT种子 [中印邊境衝突升級到戰爭有多遠？從七千人大會的毛劉鬥到兩會的習李亂；從尼赫魯到莫迪，看來大家都準備好了。（江峰漫談20200619第191期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f72635ff198045cb005435a74d945422018d9c9.torrent)
 
