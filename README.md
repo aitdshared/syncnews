@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Q6xGgQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7fVo3C)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「星鏈上網，全家下崗」從中共恐惧看马斯克星链计划推翻防火墙就在眼前；北京疫情的三文鱼經驗：美国大豆即將带毒？（江峰漫談20200625第194期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3ec0bbf83a28b9748c4a67a78d1c807c6aab834f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3ec0bbf83a28b9748c4a67a78d1c807c6aab834f
 
 下载BT种子 [七常委行踪异常,也说“习帝下台不是梦”;三峡大坝还能撑多久香港国安法将于6月30日通过(政论天下第186集20200623)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5c13fd3cb0696b82ae29f3fa4b76a26289ffbb63.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [G7外長聯合聲明：促北京放棄港版國安法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df3d457d8c4aeff440065aeb7ff5900a38533142.torrent)
 
 磁力链接 magnet:?xt=urn:btih:df3d457d8c4aeff440065aeb7ff5900a38533142
-
-下载BT种子 [產銷14萬偽劣N95口罩又一中企被起訴.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/afe42524f7f184f711c8ba8b000a3caf67cf0bec.torrent)
-
-磁力链接 magnet:?xt=urn:btih:afe42524f7f184f711c8ba8b000a3caf67cf0bec
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
