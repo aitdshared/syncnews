@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8UIQJJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZcVlwB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】長江千座水庫洩洪多省洪災嚴重北京、河北端午下冰雹大如雞蛋狀似中共病毒（6月26日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1043869a8a4568bf4936b3ac8f4ad5accf1d0e71.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1043869a8a4568bf4936b3ac8f4ad5accf1d0e71
 
 下载BT种子 [長江千座水庫洩洪多省洪災嚴重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df32678da531cd14ff1bbb42cd372924b008ea01.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《石濤聚焦》「楊潔篪見面彭培奧後川普：全面與中共國脫鉤政策選項」美亞太助卿：楊潔篪態度不坦誠【中共釣魚完敗習近平完全錯判」未來數周見成效【美方明確態度與威脅】（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10066840f4989f5956373f8dafcd6b1ddbdcf4d6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:10066840f4989f5956373f8dafcd6b1ddbdcf4d6
-
-下载BT种子 [《石濤聚焦》「中印衝突56共軍陣亡」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e3a3d57d6233def86af5343b56475f3e9a3979d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e3a3d57d6233def86af5343b56475f3e9a3979d
-
-下载BT种子 [【中國禁聞】6月18日完整版（字幕）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda61b5ee65d432dbc48793be4e5fcbe4b04421a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cda61b5ee65d432dbc48793be4e5fcbe4b04421a
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
