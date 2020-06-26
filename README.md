@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7hQu9g)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xmLfOu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中印衝突細節曝光印方更強硬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8d3bffd168f8375f7313fb7dcb9c14227fba1bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e8d3bffd168f8375f7313fb7dcb9c14227fba1bf
+
+下载BT种子 [【中國禁聞】6月25日完整版🔥湖北安徽近1000座水庫泄洪中印衝突細節曝光印方更強硬疫情掩護強拆北京昌平對「榮譽中產」下手揭秘中共酷刑系列之三：水刑。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f0ce62a5befc9f65c1e49799746d7e1395f1fc5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0f0ce62a5befc9f65c1e49799746d7e1395f1fc5
+
+下载BT种子 [【禁聞】揭秘中共酷刑系列之三：水刑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0799f18d23ebaa04c1b1086e71b822e6d2c14e98.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0799f18d23ebaa04c1b1086e71b822e6d2c14e98
+
+下载BT种子 [【禁聞】湖北安徽近1000座水庫洩洪北京突降「新冠冰雹」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a197ca539468ca4e34c0f1f417895a0e92d1b445.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a197ca539468ca4e34c0f1f417895a0e92d1b445
 
 下载BT种子 [【微視頻】中共迫宗教參與政治替國安法背書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fe4cd6f0363c3c36f2d12261746c6d4dffee4b0.torrent)
 
@@ -604,26 +620,6 @@
 下载BT种子 [【619重播】台灣行政院宣布副閣揆記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9ccb43f5e9082785f0dd7dbdd5c2dbb2c78b7e1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b9ccb43f5e9082785f0dd7dbdd5c2dbb2c78b7e1
-
-下载BT种子 [新發地5米一軍警，北京西紅門萬人小區400感染；三峽大壩危險，宜昌以下快跑！中共士兵用狼牙棒殺人，印度國民反共情緒高漲；中共軍機10天5侵台，中共海警船連續６５天挑釁日本【新聞看點李沐陽06.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/591c5ff1d8361dfd405540a0ccb660464db63588.torrent)
-
-磁力链接 magnet:?xt=urn:btih:591c5ff1d8361dfd405540a0ccb660464db63588
-
-下载BT种子 [【環球直擊】蓬佩奧會晤楊潔篪北京商戶損失慘重G7外長聯合聲明（6月18日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf42b3a94898c7602856000456c64a32724af9f0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf42b3a94898c7602856000456c64a32724af9f0
-
-下载BT种子 [機器人現身香港廚房拿手絕活翻滾蛋炒飯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5ddf077571c2a86b9e96f90e7134d97662efeef.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a5ddf077571c2a86b9e96f90e7134d97662efeef
-
-下载BT种子 [美國不會再封閉哈薩克斯坦前總統染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51fefb8b55507385ffc9910352eb3e874cdf3f6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:51fefb8b55507385ffc9910352eb3e874cdf3f6b
-
-下载BT种子 [中印衝突雙方一明一暗中共「狼牙棒」曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
