@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PIUSiV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LUn0p3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [解放軍操控清單出爐，中共「被拉清單」；北京冠狀冰雹，武漢疫後洪水，「共產黨下課」聲此起彼伏；小粉紅回國無門，現實中沒有戰狼；三峽危急中共喪事喜辦；多國棄用華為，中共開啟新冷戰【新聞看點06.25】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dbe88db5e4209ccad2766c904ec97e311b52e4a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7dbe88db5e4209ccad2766c904ec97e311b52e4a
 
 下载BT种子 [中共闢謠301醫院未抓人有蹊蹺！七常委隔離避難？三峽考驗高潮未到、長江洪水厲害在後面（文昭談古論今20200624第776期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a0a5dc6e2e19ba0e29b61d1ced07069c3ad2f6d.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [北京疫情大爆發新發地商戶損失慘重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58a684dac885f1384a53fab7f6fea4638b3f9ed1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:58a684dac885f1384a53fab7f6fea4638b3f9ed1
-
-下载BT种子 [蓬佩奧楊潔篪夏威夷會談川普簽法案制裁中共官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1db9e95de2975c95e9ef520f9956d2c2e4087c5f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1db9e95de2975c95e9ef520f9956d2c2e4087c5f
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
