@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5CmB5Q)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8N7PIZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】安徽洩洪多村被淹港七一遊行反國安法五名CNN前員工為中共媒體效力(6月25日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/284a1c078389e9b5dcaa4eb118587f616f250584.torrent)
+
+磁力链接 magnet:?xt=urn:btih:284a1c078389e9b5dcaa4eb118587f616f250584
+
+下载BT种子 [美參院通過「香港問責法」嚴懲中港官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f2a7ce1bc4a2031ac2465b7fff303033922a01f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f2a7ce1bc4a2031ac2465b7fff303033922a01f
+
+下载BT种子 [歐盟政要大卫·莱加：中共利用西方善意大發橫財同時加劇壓迫自己的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd34dde21f7e66343507b735d8bbb13f7c99804.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8cd34dde21f7e66343507b735d8bbb13f7c99804
 
 下载BT种子 [美歐聯手蓬佩奧全世界都在對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9a6006df11fd1d19d2296b68ea06bef3197d23a.torrent)
 
@@ -608,18 +620,6 @@
 下载BT种子 [中印衝突雙方一明一暗中共「狼牙棒」曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cda06bc7b3c4cf5d937fabdc76f7a678fdbaf258
-
-下载BT种子 [美新版《國防太空戰略》：合作應對中俄威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef14c5bf3d933db458e96f4893db9ac982128099.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ef14c5bf3d933db458e96f4893db9ac982128099
-
-下载BT种子 [支持全美小企業川普指美經濟在直線復甦.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ebed7dbe1e3ac5306b96ae21cfb7e9bc2fa3e59.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1ebed7dbe1e3ac5306b96ae21cfb7e9bc2fa3e59
-
-下载BT种子 [楊潔篪、彭培奧交鋒，中共要賠印度？人大常委會衝刺香港《國安法》；制裁韓正開闢權鬥新局面（文昭談古論今20200618第772期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc887762fc725361589b4b6a35651a0e9ee69a3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc887762fc725361589b4b6a35651a0e9ee69a3a
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
