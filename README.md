@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eYapkw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9dCFSW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港12個工會向20國請願：全民反國安還我真香港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc67f9d8c1172a8e59c2d34107e8c4107923ccdf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc67f9d8c1172a8e59c2d34107e8c4107923ccdf
 
 下载BT种子 [美參議院通過《香港自治法案》制裁中共官員及銀行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b9e98784518e2b6217c4bc96072c25a2aa81561.torrent)
 
@@ -616,18 +620,6 @@
 下载BT种子 [【環球直擊】北京疫情蔓延多省區淪陷余文生獲刑4年許艷見7國人權官員（6月19日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16dead618c65c9fde4730321fb5421d7844e5b9f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:16dead618c65c9fde4730321fb5421d7844e5b9f
-
-下载BT种子 [从印度开始，中国货或遭遇全球抵制，苦了中国百姓，但习近平还在撒钱.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c3f2fa775c8513d5bba7d013b7463decc798238.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1c3f2fa775c8513d5bba7d013b7463decc798238
-
-下载BT种子 [中印邊境衝突升級到戰爭有多遠？從七千人大會的毛劉鬥到兩會的習李亂；從尼赫魯到莫迪，看來大家都準備好了。（江峰漫談20200619第191期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f72635ff198045cb005435a74d945422018d9c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f72635ff198045cb005435a74d945422018d9c9
-
-下载BT种子 [💢川普通共？3點證博爾頓錯了；三峽宜昌以下，多少地方有險？再“封城”，北京隔離黨校也住滿；夏威夷會，中共聲明兩處耍流氓；人大開審國安法！共軍打印軍，狠毒冷兵器！印度籲與台灣聯手新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e091b7bfb0acabe0e33bb95892e462e0fb264990.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e091b7bfb0acabe0e33bb95892e462e0fb264990
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
