@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eJQ6Xn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wPZVaY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第八十二回三教大會萬仙陣」通天教主喋不休一陣三疊混元初準提出手了前緣青白金蓮妙中玄「魚龍此際分真偽玉石從今盡脫胎」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f928d4629d2d7c3b3158dac4df2cfc96cd2996.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f6f928d4629d2d7c3b3158dac4df2cfc96cd2996
+
+下载BT种子 [《石濤聚焦》「北京301醫院闢謠實為內部通知外洩」301醫院-永定路附近砲兵大院1日確診3人該區集中軍隊大院特殊軍人群體【特通知-海淀高風險小區名單】傳：趙樂際失蹤月餘可能著道兒（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7889b196731b560b3bb7cc8d95f60fa690880c4d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7889b196731b560b3bb7cc8d95f60fa690880c4d
+
+下载BT种子 [《石濤聚焦》「美參議院全票通過-香港自治法案力圖阻止港版國安法」國務卿90天內提供破壞「港人自由與權利」責任者凍結資產與拒發簽證禁止美國銀行向其貸款【韓正栗戰書習近平在其中？】（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b54f1ea0def04b74b22cb713f8216fd8b88a0a4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5b54f1ea0def04b74b22cb713f8216fd8b88a0a4
+
+下载BT种子 [《石濤聚焦》「中共啟動研發第一艘核子動力航空母艦」中共軍網公開一項軍隊採購公告「艦船核動力系統分析模型開發項目單一來源公示」全球只有美法擁有美國有11艘（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14d76f0679869ef52958327a9cc81abaed44b184.torrent)
+
+磁力链接 magnet:?xt=urn:btih:14d76f0679869ef52958327a9cc81abaed44b184
 
 下载BT种子 [《石濤聚焦》「北京永定路70號6月24日微博紀實」該區共9個街坊第2-3-5-？都被封【高風險區】公安24小時把守地處海淀豐台石景山三區交界「社區感染實證」夫婦無源頭感染源自於此公廁—第三代.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00b310135224bdd4db0cd7cf1041c6d37993bea5.torrent)
 
@@ -601,29 +617,9 @@
 
 磁力链接 magnet:?xt=urn:btih:0e83ae51a4b13a2e55b5e3dcba00d0e24a1333e1
 
-下载BT种子 [黃之鋒宣布參選民主派籲投票改變港命運.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4482e7732ff8ef307d0ded1f1f057f741fc061be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4482e7732ff8ef307d0ded1f1f057f741fc061be
-
 下载BT种子 [【蕭茗訪談】與獨立製片人討論中共意識形態迫害與反迫害等問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a236580e17dd4f772cc55563bd87ef93116048.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e4a236580e17dd4f772cc55563bd87ef93116048
-
-下载BT种子 [民主峰會開場發言黃之鋒籲歐盟制裁中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2f8e41c8d24bf20a0bef838bb876b7a754a8954.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e2f8e41c8d24bf20a0bef838bb876b7a754a8954
-
-下载BT种子 [（字幕）國安法或三天通過620港罷工罷課公投抗爭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aea0d632f78c9eefc3c3eb679e2371c1c1632ef6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:aea0d632f78c9eefc3c3eb679e2371c1c1632ef6
-
-下载BT种子 [美國洛縣警局公佈一段視頻男嬰吞硬幣停止了呼吸警長機智化險為夷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/03874284fc93dd8a78c846299ef7c28d4b00324a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:03874284fc93dd8a78c846299ef7c28d4b00324a
-
-下载BT种子 [《石濤聚焦》「楊潔篪見面彭培奧後川普：全面與中共國脫鉤政策選項」美亞太助卿：楊潔篪態度不坦誠【中共釣魚完敗習近平完全錯判」未來數周見成效【美方明確態度與威脅】（1906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10066840f4989f5956373f8dafcd6b1ddbdcf4d6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:10066840f4989f5956373f8dafcd6b1ddbdcf4d6
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
