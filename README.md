@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wPZVaY)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rxDKit)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共高層行蹤異常？染疫還是政治鬥爭？中歐視頻峰會冷淡收場，中共再次打錯如意算盤；美政府對鳳凰衛視一抓一放，意味著什麼？橫河陳破空熱點互動06242020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43b29e2ab03a98cae6a6b92ddce8f2114aca5580.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43b29e2ab03a98cae6a6b92ddce8f2114aca5580
 
 下载BT种子 [《濤哥侃封神》「封神演義第八十二回三教大會萬仙陣」通天教主喋不休一陣三疊混元初準提出手了前緣青白金蓮妙中玄「魚龍此際分真偽玉石從今盡脫胎」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f928d4629d2d7c3b3158dac4df2cfc96cd2996.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [除中國大陸外850萬感染中共病毒歐盟史上最大衰退提出一項8400億美元救援基金.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ec9868627de66c15e12bd7ed9c32a84babeb656.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0ec9868627de66c15e12bd7ed9c32a84babeb656
-
-下载BT种子 [中方承諾貿易履約川普：仍保留脫鉤選項.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e83ae51a4b13a2e55b5e3dcba00d0e24a1333e1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e83ae51a4b13a2e55b5e3dcba00d0e24a1333e1
-
-下载BT种子 [【蕭茗訪談】與獨立製片人討論中共意識形態迫害與反迫害等問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4a236580e17dd4f772cc55563bd87ef93116048.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e4a236580e17dd4f772cc55563bd87ef93116048
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
