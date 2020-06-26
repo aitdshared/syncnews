@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YMbde0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hE66FQ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中共防火墙遭遇美国黑科技，结果几何？端午节，北京鸡蛋冰雹吓人，怎么解释？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/800f3378d9ebc8cd1c3c58d47105eb79da353c74.torrent)
+
+磁力链接 magnet:?xt=urn:btih:800f3378d9ebc8cd1c3c58d47105eb79da353c74
+
+下载BT种子 [為中共賣命，海外特務下場淒涼；揭密中共外宣滲透五大手法；人生十字路口：該不該出國留學？（2020.6.26）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06327cc4e0dbf49bd702578286796f1aca0b5422.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06327cc4e0dbf49bd702578286796f1aca0b5422
+
+下载BT种子 [❗️37萬美軍駐亞太，中共：規模空前；國安法設“專門拘留所”關港人；陳彥霖死因裁判，媽媽現身；北京要建方艙，傳病毒攻入軍隊大院；最強降雨將威脅三峽！黑龍江火山復活新聞拍案驚奇大宇6.24.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbcfd30ca402563197c647a0b7080efcce4756b7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bbcfd30ca402563197c647a0b7080efcce4756b7
 
 下载BT种子 [【禁聞】兩會感染病毒？申紀蘭病房照熱傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6693a66eb281a95500dad3e382b3a155d1344e7.torrent)
 
@@ -608,18 +620,6 @@
 下载BT种子 [【禁聞】美祭最強名單制裁中共政治局委員及家屬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8259fe5833fcd98f3036418f0a068b024aba2305.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8259fe5833fcd98f3036418f0a068b024aba2305
-
-下载BT种子 [【禁聞】印度悼念死去士兵中共戰狼收斂.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f4a64538b520a16fb445c10a7c9d20d093dd8fb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3f4a64538b520a16fb445c10a7c9d20d093dd8fb
-
-下载BT种子 [【禁聞】上海律師彭永和脖上掛牌上街乞討中印邊境衝突中方殘暴武器曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/600563f5640a844463d19ea5eeed23cf1407f89f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:600563f5640a844463d19ea5eeed23cf1407f89f
-
-下载BT种子 [【禁聞】北京成昔日武漢？斷糧斷菜網絡求救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/65f8fcc2f1409cda99d5ad682af730c50f27b438.torrent)
-
-磁力链接 magnet:?xt=urn:btih:65f8fcc2f1409cda99d5ad682af730c50f27b438
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
