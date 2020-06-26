@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UcYGnI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tBTRNN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🚨長江黃色預警！上游多支流暴漲，三峽洩洪；重慶綦江80年未遇大水；北京10萬人檢疫；稱國安法虎頭蛇尾，黎智英會遇刺？袁弓夷推動中共非法；美三航母堵中國門口；馬斯克星鏈能推牆嗎新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a592697ac1e18e5e20c140e789a0499c281ff71.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a592697ac1e18e5e20c140e789a0499c281ff71
 
 下载BT种子 [三峽大壩危殆，當局提前甩鍋；綦江水位超6米，重慶發紅色預警；豆腐渣嚴重滲漏，泥沙下來全玩完；王維洛四點忠告自救！要求習下台，魯揚許志永被捕；王全璋被用酷刑，中國脊梁掩面痛哭【新聞看點06.22】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c0d139a3976aa149f4f86791c25e0801cb6f35d.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【美國思想領袖】全球台灣研究院高級研究員寇謐將：中共越過底線就會滅亡！中共正在滲透聯合國的每一個機構！民主國家怎麼應對威脅？如何從台灣獲得與中共打交道及控制中共病毒方面的成功經驗？｜#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7098da318d76111a96765f95db625197e6f6916a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7098da318d76111a96765f95db625197e6f6916a
-
-下载BT种子 [夏威夷密會雙方各自表述：中共漫天要價？美方以靜制動；北京疫情來勢兇猛，官方運動式應對恐加速傳播Jason橫河熱點互動06172020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54837e82474ec40e4965b1d0900db6b3e664365b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:54837e82474ec40e4965b1d0900db6b3e664365b
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
