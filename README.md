@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/If0Pkj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zkTajI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [西雅圖自治區「無法無天」居民控告市府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee599a2732a1fc87abe21676661a3de1464690cb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ee599a2732a1fc87abe21676661a3de1464690cb
+
+下载BT种子 [埃菲爾鐵塔重開徒步登全歐第二高觀景臺.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d181778b5dc789c2e4a9553ec5c6e89eeb482d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8d181778b5dc789c2e4a9553ec5c6e89eeb482d8
 
 下载BT种子 [【全球新聞】美參院通過「香港問責法」嚴懲中港官員北京將建三座方艙醫院英國萬人蜂擁海灘（6月25日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f251b706758067a08ff129be8c0780372b4c5952.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [北京疫情深重，习近平躲到外地？美中闭门谈判，空军基地下马威。中印两军格斗内幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee3621749def62964f2017138d89d6a5de1a1b0f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ee3621749def62964f2017138d89d6a5de1a1b0f
-
-下载BT种子 [北京疫情深重，习近平躲到外地？美中谈判，空军基地下马威。中印两军谁更强.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f00897f566f13c4ef3c6fcf07cd29ee3744ff93a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f00897f566f13c4ef3c6fcf07cd29ee3744ff93a
-
-下载BT种子 [全球約838萬人確診感染南美洲病例數佔全球21%紐約州疫情趨緩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6ca8ab52dbe76afeccd4bbff1587e988b34d517.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6ca8ab52dbe76afeccd4bbff1587e988b34d517
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
