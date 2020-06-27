@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gQX4Ig)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TMhe3o)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [公安也要降薪了！？決戰七一，美國《香港自治法案》火速推出、啟動必殺技，劃下中美脫鉤時間大限（文昭談古論今20200626第777期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44d7ed54af385f02e309a810de73e63ac1cdc4c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:44d7ed54af385f02e309a810de73e63ac1cdc4c5
 
 下载BT种子 [真的分手了？彭丽媛联名引猜疑！习近平报复红二代。美国鉴定：他是斯大林的继承人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1334fc8e80b077b99129dcf22c1484a9cfbe7cd.torrent)
 
