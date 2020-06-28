@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vxJxt6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SAhyAG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【一週經濟回顧】川普跟中宣部對著幹以牙還牙！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c0f663dead502c55571ca51d5753ac516e39b2d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c0f663dead502c55571ca51d5753ac516e39b2d
+
+下载BT种子 [《石濤.News》「人大“活化石”申紀蘭死了」神奇：終年91唯一參加全部13次人大（13x7=91）最後投票5.28同意「港版國安法」死期6.28完成實施惡法【中共與支持獲利者壽終正寢】（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b1909c7fc028137247ab50568252a775338466.torrent)
+
+磁力链接 magnet:?xt=urn:btih:77b1909c7fc028137247ab50568252a775338466
+
+下载BT种子 [【嚴真點評】外交部大實話：習近平被稱斯大林繼任者20家共軍企業被鎖定美國拒簽中共官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ecd35cc6f3cb896f1fa5bfc805e49a1ce2a3dc5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8ecd35cc6f3cb896f1fa5bfc805e49a1ce2a3dc5
+
+下载BT种子 [《石濤聚焦》「北京第二輪擴散：雄安全封閉憑票出入10大學生24小時核酸」全球破1000萬亡50萬開啟第二輪特點：首都-東京首爾北京年輕-20-40歲本土與集聚【病毒早已存在身體取決主人善惡】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74190029b2f89a8220a70522a1ceabb989caaf6b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:74190029b2f89a8220a70522a1ceabb989caaf6b
 
 下载BT种子 [【时事小品】求仁得仁（658期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7375d1bb1c356b3e138d4d01e2c792cd5292960d.torrent)
 
@@ -524,34 +540,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第七十八回三教會破誅仙陣」三清無奈通天主西方聖人齊破陣教主嗔癡迷自我一扁一杵狼狽逃萬劫天數無人避唯有大福永生決「曾拜鴻鈞修道德方知一氣化三清」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5075ef78e679b23510eda592745e6c56173acea2.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5075ef78e679b23510eda592745e6c56173acea2
-
-下载BT种子 [【Jason快評】軍機擾臺，國安法細則出台，審判加國公民...總加速師，一個機會也不放過？熱點互動06202020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18565432565b7d04895f33d9c48893bc1e6f4f1e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:18565432565b7d04895f33d9c48893bc1e6f4f1e
-
-下载BT种子 [【環球直擊】抗惡法！港人三罷公投市民：這一刻要出來蓬佩奧：美國還是中共歐盟須做出選擇（6月20日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0166c0a43ca3ff82d3082dd74f8c824cca21569a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0166c0a43ca3ff82d3082dd74f8c824cca21569a
-
-下载BT种子 [香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集20200620)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/daf3d2660dfa4fef9ccdd7ebad36d10430b99d88.torrent)
-
-磁力链接 magnet:?xt=urn:btih:daf3d2660dfa4fef9ccdd7ebad36d10430b99d88
-
-下载BT种子 [長安街空前戒嚴，疫情之外有大戲；中共有疫苗先給非洲，加碼送600億？非洲樂當小白鼠！德醫為中共培訓「劊子手」；大眾汽車送錢給江綿恆，兩任總理迎合江澤民，默克爾怎麼走？【新聞看點06.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/79f547e099d0330facb8bf6efe66da01ddd69c25.torrent)
-
-磁力链接 magnet:?xt=urn:btih:79f547e099d0330facb8bf6efe66da01ddd69c25
-
-下载BT种子 [【預告片】最新深度報導隱形之戰中共的戰書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/417faac05d28434dca5392378db9b3ee6f1986a5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:417faac05d28434dca5392378db9b3ee6f1986a5
-
-下载BT种子 [【華府衝擊播】專訪葉望輝：中國人應擁有自己的未來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/263b6a90726bbf54b2105de639c52745c35d2970.torrent)
-
-磁力链接 magnet:?xt=urn:btih:263b6a90726bbf54b2105de639c52745c35d2970
-
-下载BT种子 [蘇州台商企業遭到當地中共官員霸占並被當地警方威脅恐嚇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8bf9037584c8f383798f8600b35504948a2665b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c8bf9037584c8f383798f8600b35504948a2665b
 
 下载BT种子 [印度計劃對中國的產品施加更高貿易壁壘和提高關稅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a76ec0c34fc46ae7661abfaba8f14d5bcb8c993e.torrent)
 
