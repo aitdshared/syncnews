@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yvkF2X)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aHU8qZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】廣西再次暴發洪災水庫洩洪沒預警全球退黨中心發起「打倒中共惡魔」徵簽（6月27日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c160c7a6fef8682ad3de7319ffaabfd68c14fc55.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c160c7a6fef8682ad3de7319ffaabfd68c14fc55
+
+下载BT种子 [大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆传奇书场蒋介石第02集20200627）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e5a7b43af4de272eb28f31c00098d51e7add6c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
 
 下载BT种子 [燕郊30万人像蝼蚁一样爬向北京，泪水与汗水交织，中国百姓的尊严在哪儿？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3f708b4a9d86cfc5d67738202fca3b8e10f1ba7.torrent)
 
@@ -532,18 +540,6 @@
 下载BT种子 [【華府衝擊播】專訪葉望輝：中國人應擁有自己的未來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/263b6a90726bbf54b2105de639c52745c35d2970.torrent)
 
 磁力链接 magnet:?xt=urn:btih:263b6a90726bbf54b2105de639c52745c35d2970
-
-下载BT种子 [港版國安法違法兼侵權加拿大政要籲行動七國集團需要喚醒各民主國家.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b20435946bfab6dd347f146503577eb074cc61.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0b20435946bfab6dd347f146503577eb074cc61
-
-下载BT种子 [利用疫情，此人想当副主席？习近平亲自隐瞒：共军正副指挥官遭印军....mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c2f4d3c990607e0828643e48b7003dad79a2da8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3c2f4d3c990607e0828643e48b7003dad79a2da8
-
-下载BT种子 [【環球直擊】港版國安法草案曝光印度擬提高中國產品關稅蘇州台商企業被霸占(完整版1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d240a0880f6b773ddbd087665597006bffa8ff40.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d240a0880f6b773ddbd087665597006bffa8ff40
 
 下载BT种子 [香港民間組織及學生團體舉辦「三罷公投」市民：這一刻要出來.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51463460de26c916f09dd3b2a4350b00003fe8b7.torrent)
 
