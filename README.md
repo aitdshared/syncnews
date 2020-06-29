@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uxHSYw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zaT8fq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「6月28日視頻實錄：新疆大雪哈爾濱【冬天大霧】宜昌大水被淹」懼怕三峽大壩潰壩故意洩洪江水倒灌宜昌後習近平親自發出最高指示「人民至上生命至上」（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf5b534dda2eca5013ecdea67ad80484981d7778.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf5b534dda2eca5013ecdea67ad80484981d7778
 
 下载BT种子 [《石濤聚焦》「紐時：港版國安法習近平個人意志羞辱林鄭凌駕法律」拋棄香港建制派侮辱港府高官嘲諷香港黑警「林鄭律政司等港府無人知道國安法細則無人打招呼更無人諮詢」（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a804bad1afd1425d2e2c7677144a6ff2d81debc3.torrent)
 
@@ -536,10 +540,6 @@
 下载BT种子 [《石濤聚焦》「北京-武漢的完美複製」來自湖北遼寧10隻檢測隊支援檢測數據見鬼了「昨天-每日50萬人今天-全市檢測能力-23萬日主管官員表示未來51混檢可以達到100萬日」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c11bab0e049fa292f9c00dba51439f367bad8125.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c11bab0e049fa292f9c00dba51439f367bad8125
-
-下载BT种子 [【时事小品】躺枪的三文鱼657期.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d18d89231eaffd4e8dda482b46c6ceadf6a850.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a9d18d89231eaffd4e8dda482b46c6ceadf6a850
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
