@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GFWujt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lWvSUH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】中共紅會救濟災民太少袁弓夷薦要贏第一場仗歐盟曾質詢習李（6月29日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f5b2b33f1bdbf1a6a10c41ef0f068ba104df2f8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1f5b2b33f1bdbf1a6a10c41ef0f068ba104df2f8
 
 下载BT种子 [这个会议不寻常，七常委凑不齐！三峡大坝高危，宜昌全城被淹。习近平决意对印度开战？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f58ad2ea3a807cd6213943d6d8b9c399505dbe6.torrent)
 
@@ -540,10 +544,6 @@
 下载BT种子 [維權律師王全璋披露拘押時遭酷刑逼供.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f779a191aa136d0054eb1ea2c055828483a36239.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f779a191aa136d0054eb1ea2c055828483a36239
-
-下载BT种子 [【中國禁聞】6月21日完整版（字幕）🔥黨媒承認了！三峽庫區水位超出防洪限制2米印度官員：中印衝突中方至少損失40人北京疫情延燒多省醫療隊緊急入京中共免除非洲國家債務專家揭背後真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cae46bb460eef8b4b00af4cf3c67f851d628779c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cae46bb460eef8b4b00af4cf3c67f851d628779c
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
