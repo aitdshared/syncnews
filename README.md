@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UG1DBo)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RAvChI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】宜昌大水淹城洪水奔湧而下商店門面被淹23市民稱與三峽大壩洩洪有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4c3e74af7375bc4bcd0387e69408d5359c8c4c3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a4c3e74af7375bc4bcd0387e69408d5359c8c4c3
+
+下载BT种子 [【禁聞】揭秘中共酷刑系列之五：龍抱柱蘇秦背劍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ea8e9db2ea41edd379455498a0ab6f77c0829b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:77ea8e9db2ea41edd379455498a0ab6f77c0829b
+
+下载BT种子 [【禁聞】反制香港國安法歐美加強施壓力道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab71b49fb4a52c6811841a8c01a97c0059039be.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fab71b49fb4a52c6811841a8c01a97c0059039be
+
+下载BT种子 [【禁聞】小粉紅被困海外哀嘆：沒有戰狼來救我.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8f100c2126d41e180822be5e611925214333a13.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b8f100c2126d41e180822be5e611925214333a13
+
+下载BT种子 [【禁聞】長江13條河水位超警戒合肥水災居民家中進水大學成汪洋北京疫情蔓延雄安新區封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7a680b959a6df6a7516645f1778d412227f168f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7a680b959a6df6a7516645f1778d412227f168f
 
 下载BT种子 [马斯克星链计划能否推倒中共防火墙中共将如何应对(政论天下第188集20200628)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/402a87f43d7b677536952adbb1c6fa7373726683.torrent)
 
@@ -520,14 +540,6 @@
 下载BT种子 [《石濤聚焦》「川普首場造勢遭遇中共-抖音摻假成功作亂」更現場喝水摔杯單腿金雞碎步搶先回答媒體質疑其身體健康「媒體是世界上最不誠實的人是壞人」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3d055d5079208ed5343de4ef51a04d8772df39.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fe3d055d5079208ed5343de4ef51a04d8772df39
-
-下载BT种子 [《石濤聚焦》「川普昨晚首場競選集會後當地發生地震-熱議」川普直言「美國的座右銘：我們相信神美國是在神引領下的國度」形容美國地區騷亂-社會主義者自由區「世界像末日一樣了」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/782252e3da2b8da763de1faf5eaa9088ac6d3ce2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:782252e3da2b8da763de1faf5eaa9088ac6d3ce2
-
-下载BT种子 [【中國禁聞】6月19日完整版(字幕)🔥傳三峽大壩將潰壩專家指點逃生路蓬佩奧楊潔篪會談不歡而散中共進退兩難辯護權被剝奪上海律師掛牌討飯.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7165b1c93d9fd4dde27c19aa2cc8a5c217928f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7165b1c93d9fd4dde27c19aa2cc8a5c217928f2
 
 下载BT种子 [《石濤聚焦》「川普昨晚首場競選集會後當地發生地震-熱議」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc8be351936e5835888ecc96f2cf8219d0f14ca3.torrent)
 
