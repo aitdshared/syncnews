@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kfSpLg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uBZLsE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [马斯克星链计划能否推倒中共防火墙中共将如何应对(政论天下第188集20200628)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/402a87f43d7b677536952adbb1c6fa7373726683.torrent)
+
+磁力链接 magnet:?xt=urn:btih:402a87f43d7b677536952adbb1c6fa7373726683
 
 下载BT种子 [申纪兰去世，党损失最重要魂器？习近平：世上再无申纪兰！网友：党跟申大妈走吧！（老北京茶馆第335集20200628）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8639c2d8cd671efe96c826339668813ba808adf.torrent)
 
@@ -536,10 +540,6 @@
 下载BT种子 [總統川普做客兒子訪談暢聊慶祝父親節.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e8de707a48d4d46d0bf5d45b843a82077a77e88.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8e8de707a48d4d46d0bf5d45b843a82077a77e88
-
-下载BT种子 [【一週經濟回顧】中共病毒在中國捲土重來封城的代價伯頓要出書引起軒然大波（2020年5月21日）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d44b2466201f7fcb4c2f24556326c33f72d97e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d44b2466201f7fcb4c2f24556326c33f72d97e4
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
