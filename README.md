@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wsg2bv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bwhLIW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【瘟疫與中共】壯大中共市場德國屠宰場疫情嚴重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc484ca39a2eff87a2e81db9c4b56b79c17acaca.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bc484ca39a2eff87a2e81db9c4b56b79c17acaca
+
+下载BT种子 [中共黨員更懼美制裁袁弓夷薦要贏第一場仗天滅中共運動進展順利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af5198db5032c9234c8d2b137fc50374902532d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:af5198db5032c9234c8d2b137fc50374902532d0
+
+下载BT种子 [憂國家安全美國促歐洲盟友勿用同方威視.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ed43a08c723cd8db2875c0c4108f57218b58ec1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ed43a08c723cd8db2875c0c4108f57218b58ec1
+
+下载BT种子 [全球逾50萬人喪生千萬人染疫日增近19萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f218ab3536f58def4bee476c4da4dd3e4458f6c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7f218ab3536f58def4bee476c4da4dd3e4458f6c
+
+下载BT种子 [彭斯演講：堅信神的意志我們會走出困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/531b5aa8825ad6657b1ab332c4b730545a7e1c02.torrent)
+
+磁力链接 magnet:?xt=urn:btih:531b5aa8825ad6657b1ab332c4b730545a7e1c02
+
+下载BT种子 [前朝鮮公使太永浩：6.25戰爭是北韓對南韓的侵略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/773017bab206c89b2fe02377d80f410c05de0405.torrent)
+
+磁力链接 magnet:?xt=urn:btih:773017bab206c89b2fe02377d80f410c05de0405
+
+下载BT种子 [疫情期間歐洲醫療系統網絡遭中共攻擊歐盟曾質詢習李疑中共竊取醫療信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/424557aacec86a829271932d8070d4ad928d1064.torrent)
+
+磁力链接 magnet:?xt=urn:btih:424557aacec86a829271932d8070d4ad928d1064
 
 下载BT种子 [中國南方洪災中共紅會救濟太少遭嘲諷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b203a0d49ee37833480f21e42f64ce8e2e566d0.torrent)
 
@@ -516,14 +544,6 @@
 下载BT种子 [【環球直擊】北京40小區封禁百事可樂工廠現感染停工維權律師王全璋披露拘押時遭酷刑被迫認罪（6月21日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aee1c8059a43c2620c1990bdc7fc3ee2ff46595a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:aee1c8059a43c2620c1990bdc7fc3ee2ff46595a
-
-下载BT种子 [【622重播】空軍新式高教機首飛！蔡英文出席漢翔沙鹿廠區.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c847a9c4c877359e2df15743642309ae70a10f7d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c847a9c4c877359e2df15743642309ae70a10f7d
-
-下载BT种子 [【622重播】台監察院第6屆監察委員被提名人介紹記者會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/39da9f9349372a0837185baaf6481d5f27a2fb17.torrent)
-
-磁力链接 magnet:?xt=urn:btih:39da9f9349372a0837185baaf6481d5f27a2fb17
 
 下载BT种子 [【環球直擊】北京疫情陷失控？現行措施類似武漢疫情后首個競選集會川普塔爾薩演講引共鳴（6月21日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2daa9e3adcdd947503202025f5237c462f284559.torrent)
 
