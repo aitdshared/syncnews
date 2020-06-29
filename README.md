@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RAvChI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eqfDDS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】6月28日完整版長江13條河水位超警戒合肥水災居民家中進水大學成汪洋宜昌大水淹城與三峽大壩洩洪有關小粉紅被困海外哀嘆「沒有戰狼來救我」揭秘中共酷刑：龍抱柱蘇秦背劍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5fb5224cb9c2eb3a50b71d6adbd0efccd85f9d0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b5fb5224cb9c2eb3a50b71d6adbd0efccd85f9d0
 
 下载BT种子 [【禁聞】宜昌大水淹城洪水奔湧而下商店門面被淹23市民稱與三峽大壩洩洪有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4c3e74af7375bc4bcd0387e69408d5359c8c4c3.torrent)
 
@@ -536,22 +540,6 @@
 下载BT种子 [三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee2d2a41a6888ef000e1ee4a469af64b31eb5330.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ee2d2a41a6888ef000e1ee4a469af64b31eb5330
-
-下载BT种子 [《石濤聚焦》「川普首場造勢遭遇中共-抖音摻假成功作亂」更現場喝水摔杯單腿金雞碎步搶先回答媒體質疑其身體健康「媒體是世界上最不誠實的人是壞人」（2106）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe3d055d5079208ed5343de4ef51a04d8772df39.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fe3d055d5079208ed5343de4ef51a04d8772df39
-
-下载BT种子 [《石濤聚焦》「川普昨晚首場競選集會後當地發生地震-熱議」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc8be351936e5835888ecc96f2cf8219d0f14ca3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc8be351936e5835888ecc96f2cf8219d0f14ca3
-
-下载BT种子 [《石濤聚焦》「三峽大壩庫區水位全面超過警戒線2米」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/076c8ab0c9b229a7229b8f02698e73af52b90b1f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:076c8ab0c9b229a7229b8f02698e73af52b90b1f
-
-下载BT种子 [總統川普做客兒子訪談暢聊慶祝父親節.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e8de707a48d4d46d0bf5d45b843a82077a77e88.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8e8de707a48d4d46d0bf5d45b843a82077a77e88
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
