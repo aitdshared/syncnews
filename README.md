@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/07O48o)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bgXwHy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國大陸以外感染人數達1,026萬北京確診病例自「打臉」印首都設血漿庫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ed1c8845068eafd0d8fa01b320fe31847a7bb01.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7ed1c8845068eafd0d8fa01b320fe31847a7bb01
+
+下载BT种子 [武漢死者家屬告政府瞞疫法院拒立案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d09f0d7df9185bcd936d2f900db5eca101a9ba6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9d09f0d7df9185bcd936d2f900db5eca101a9ba6
+
+下载BT种子 [（中文字幕）奥布莱恩針對中共重磅演講：美国已经醒来不会向中共低头川普政权会继续发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f061401771adf73013ffb11faa443426bfea41b6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f061401771adf73013ffb11faa443426bfea41b6
+
+下载BT种子 [疫情重創旅游業意大利推行新型生態旅游.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c26a865664cb787c0d4388b954b44a5a9e95cc2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c26a865664cb787c0d4388b954b44a5a9e95cc2
+
+下载BT种子 [美國會議員﹕驅逐《中國日報》停用Zoom.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c881d556eb0a6edeb4a61f7b86637f2994c1b43.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0c881d556eb0a6edeb4a61f7b86637f2994c1b43
+
+下载BT种子 [制裁升級美停止對香港出口受控國防產品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bbff6d3574f4d9de5a14aa3871a9b6ee386da79.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7bbff6d3574f4d9de5a14aa3871a9b6ee386da79
 
 下载BT种子 [紐約帝國大廈重開放未來辦公形態或改變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/243f6c712807eccb6d1dbead2984bba4d3e001ab.torrent)
 
@@ -524,30 +548,6 @@
 下载BT种子 [美國左派抖音曝光：預訂川普集會門票卻不到場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c762390a8cba5d5f76257bc781eb703f0b5f4c3f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c762390a8cba5d5f76257bc781eb703f0b5f4c3f
-
-下载BT种子 [《石濤聚焦》「原水利部長錢正英：三峽大壩沒有我們說的那麼好速度太快了」居住德國專家王維洛：沒有防洪功能一旦潰壩直衝上海「重慶綦江正遭遇80年最大洪峰水位暴漲可達11米」（2206）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d69fd7305170abe9139887c86c10cefa5e8cffa4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d69fd7305170abe9139887c86c10cefa5e8cffa4
-
-下载BT种子 [青瓦台控博爾頓新書：板門店川金會內容不實.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c7256af6d5f3aa9ee3a4ab354d3588f163ff631.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0c7256af6d5f3aa9ee3a4ab354d3588f163ff631
-
-下载BT种子 [美俄恢復中斷一年多的核裁軍談判北京拒絕出席.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6816aef9c263fa296950af8000b7b289c90a6327.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6816aef9c263fa296950af8000b7b289c90a6327
-
-下载BT种子 [報導武漢疫情公民記者張展被批捕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/80fb1aa5f5bd422721e27d39e905d7969b574b0d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:80fb1aa5f5bd422721e27d39e905d7969b574b0d
-
-下载BT种子 [兩會後北京爆百人確診公衛學者：耐人尋味.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/add6ce65779b394b3733100eef18e9ef3a846aca.torrent)
-
-磁力链接 magnet:?xt=urn:btih:add6ce65779b394b3733100eef18e9ef3a846aca
-
-下载BT种子 [625韓戰70週年不能忽視中共的威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b5b8c5c6cbb823a062711610bbaea9ef844cde3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b5b8c5c6cbb823a062711610bbaea9ef844cde3
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
