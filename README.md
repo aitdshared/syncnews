@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MDDgas)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kLjBz3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「郝海東：共產黨你們完了！」港版國安法實施前夕郝海東最新聲明：消滅中共是正義的需要中國共產黨是危害全人類的一個邪惡組織（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8a032280bb2f9a3854216047f9c3b29ff09e0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e8a032280bb2f9a3854216047f9c3b29ff09e0d
 
 下载BT种子 [溫家寶突然現身為三峽？中印降溫失效、持續增兵隨時再打；戰狼玩砸的「收復三京」（文昭談古論今20200629第778期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/252aefc439dfa879dc763bfeb892e6485d59f2bd.torrent)
 
@@ -540,10 +544,6 @@
 下载BT种子 [【環球直擊】北京40小區封禁王全璋披露遭酷刑美將擴大簽證限制（6月21日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a5f7074db5c446f532c39664debe052966d793b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1a5f7074db5c446f532c39664debe052966d793b
-
-下载BT种子 [歐盟與李克強視頻峰會美議員促聯手對中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b323f48f31071f4fea5769276093aff0e0901556.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b323f48f31071f4fea5769276093aff0e0901556
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
