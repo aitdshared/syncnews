@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bgXwHy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bZ6s3B)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [內幕：中共要犧牲下游保三峽！習近平終於「雲露面」，80年最大洪水，肆虐淹26省，七常委不視察災區？山洪暴發，旅店不通知遊客！出手豪爽救非洲，紅十字救災一人分不到「2分錢」！【新聞看點06.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a05698739197f90bac05504e477824ef51a23254.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a05698739197f90bac05504e477824ef51a23254
 
 下载BT种子 [中國大陸以外感染人數達1,026萬北京確診病例自「打臉」印首都設血漿庫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ed1c8845068eafd0d8fa01b320fe31847a7bb01.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [忽然军警遍布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a1d7f3963ee9c38c614aafe02861e6a2a52cc52.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2a1d7f3963ee9c38c614aafe02861e6a2a52cc52
-
-下载BT种子 [美國左派抖音曝光：預訂川普集會門票卻不到場.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c762390a8cba5d5f76257bc781eb703f0b5f4c3f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c762390a8cba5d5f76257bc781eb703f0b5f4c3f
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
