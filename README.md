@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bZ6s3B)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rbP5Wr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「港版國安法已全票通過大興前夜天降冰塊鋪地」美國商業部率先終止「香港特殊地位」龐皮歐終止對香港出口國防設備【習近平開啟橫掃中共國天譴之曠世巨災】（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2f795c4a358ddfd4d92c35e7f3952fdc8e06e9d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2f795c4a358ddfd4d92c35e7f3952fdc8e06e9d4
 
 下载BT种子 [內幕：中共要犧牲下游保三峽！習近平終於「雲露面」，80年最大洪水，肆虐淹26省，七常委不視察災區？山洪暴發，旅店不通知遊客！出手豪爽救非洲，紅十字救災一人分不到「2分錢」！【新聞看點06.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a05698739197f90bac05504e477824ef51a23254.torrent)
 
