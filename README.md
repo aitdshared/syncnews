@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9cgS7J)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2VgVcB)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平簽主席令《香港國安法》生效，形同對美宣戰書，港人何去何從？美國制裁是恫嚇還是實戰？美元結算系統關閉將置中共於世界經濟之外（江峰漫談20200630第196）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de1042cfb1bb6ba3ab47e930382bdc0e6d2df573.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de1042cfb1bb6ba3ab47e930382bdc0e6d2df573
 
 下载BT种子 [七一港警再現「黑」本色；美中碰撞點增加，熱戰還有多遠？北京愚蠢和恐懼，毀了香港玩死自己；華人白宮請願，籲川普推倒防火牆；澳洲撒野攪事，小粉紅遭警制服；黨員數字透天意【新聞看點07.01】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a357b33f04d451def90fb66e55039db7f81a325.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [申纪兰逆袭！潜伏一生干大事：千里送毒党中央？习近平七常委出逃避疫，北京紧急建方舱！（老北京茶馆第334集20200624）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13c720753b7102e9a1b5a25b4f7b84cf9cb8bea5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:13c720753b7102e9a1b5a25b4f7b84cf9cb8bea5
-
-下载BT种子 [【禁聞】疫情掩護下強拆北京昌平對榮譽中產下手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cf649ef99ab4faad70aaf6c60c43164f968ccf2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7cf649ef99ab4faad70aaf6c60c43164f968ccf2
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
