@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iqIGGy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YlggbH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [土共夺取香港，土法超乎想象！习近平叫板文明世界：有你无我！澳大利亚备战.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5a45eedcc03d8ecc8ac21235d1ab828fb6dc4a5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b5a45eedcc03d8ecc8ac21235d1ab828fb6dc4a5
 
 下载BT种子 [《濤哥侃封神》「封神演義第八十六回澠池縣五嶽歸天」張奎一戰壞五嶽人成神祗難言禍楊戩神功縱三界澠池小縣折周臣「丹心枉作千年計死到臨頭尚不知」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9052aa52bd28d9411523bcfdf4883b7384200b35.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [習近平等人行蹤怪異，有人染疫？美中開戰機率有多高？美國反擊大外宣，中共為何跳腳？（2020.6.24）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8b75eb781898aca0bccc4e4763f3e0d718466db.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d8b75eb781898aca0bccc4e4763f3e0d718466db
-
-下载BT种子 [“習近平是斯大林的繼承者”！美國首次公開指中共領袖為暴君；《香港問責法》急出台撐香港抗爭者制裁中港官員；誰還要救孟晚舟？（江峰漫談20200626第195期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/49fac4e0afef2b34ed19fb37e5d62ca19f6e3f79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:49fac4e0afef2b34ed19fb37e5d62ca19f6e3f79
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
