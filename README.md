@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lUQHFI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7fL26C)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】港府稱「光復香港」口號違法港民計劃成立流亡議會台灣驅逐中共媒體記者（7月3日完整版2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1eb87ac8cdee6616037f95727f078577bd1d171.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f1eb87ac8cdee6616037f95727f078577bd1d171
 
 下载BT种子 [鄧小平涉嫌煽顛，習會送他入獄嗎？惡法無阻抗議，港人智慧表心聲；惡法管轄「地球人」，班農蓬佩奧危險了；中共承認「活摘」，欲蓋彌彰卻洩底！重慶4樓以下被淹，貴州地震前有異響；【新聞看點07.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/506ce94b1cd00ccf9de0ca76fe991618320bfd91.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [北京將建三座方艙醫院英國萬人蜂擁海灘.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/28c40041120fc968cb93f3bceb277eb4ff9584d7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:28c40041120fc968cb93f3bceb277eb4ff9584d7
-
-下载BT种子 [西雅圖自治區「無法無天」居民控告市府.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ee599a2732a1fc87abe21676661a3de1464690cb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ee599a2732a1fc87abe21676661a3de1464690cb
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
