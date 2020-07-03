@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MCqL4t)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lUQHFI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [鄧小平涉嫌煽顛，習會送他入獄嗎？惡法無阻抗議，港人智慧表心聲；惡法管轄「地球人」，班農蓬佩奧危險了；中共承認「活摘」，欲蓋彌彰卻洩底！重慶4樓以下被淹，貴州地震前有異響；【新聞看點07.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/506ce94b1cd00ccf9de0ca76fe991618320bfd91.torrent)
+
+磁力链接 magnet:?xt=urn:btih:506ce94b1cd00ccf9de0ca76fe991618320bfd91
 
 下载BT种子 [国安恶法“留港不留人”,中共的算计与英美可能的误判;中、美、英三方决策心理分析,兼谈英美如何回击才能解决根本问题(政论天下第190集20200701)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc2e1a4a7f9e3561d4162e7b32465e8bc97d21be.torrent)
 
