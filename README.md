@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4qlddw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wESMt9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [除中國大陸以外全球1100萬人染疫美籲在家慶祝國慶日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f26c5d1331979db242985882b0568fcdc821d90.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5f26c5d1331979db242985882b0568fcdc821d90
+
+下载BT种子 [北京女士在麵館用餐時接確診通知當場崩潰其商場全封閉檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71441fd09a21b892e8ccc27d262a1d5cd1dce6cf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71441fd09a21b892e8ccc27d262a1d5cd1dce6cf
 
 下载BT种子 [香港民主人士計劃成立香港流亡議會保護民主火焰持續燃燒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75ac3f865e88aea8ade8bc4a2ae5df851b6e5aab.torrent)
 
@@ -540,10 +548,6 @@
 下载BT种子 [歐盟政要大卫·莱加：中共利用西方善意大發橫財同時加劇壓迫自己的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd34dde21f7e66343507b735d8bbb13f7c99804.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8cd34dde21f7e66343507b735d8bbb13f7c99804
-
-下载BT种子 [美歐聯手蓬佩奧全世界都在對抗中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f9a6006df11fd1d19d2296b68ea06bef3197d23a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f9a6006df11fd1d19d2296b68ea06bef3197d23a
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
