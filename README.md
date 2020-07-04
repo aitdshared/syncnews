@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NvT1Uk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OpA0FE)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [貴州「龍吟」是鳥叫或強震前兆？長江上游一日三震！首任駐港國安署長是他，讓人跌破眼鏡（文昭談古論今20200703第780期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a2ebc76193559b1e3219d72fc2a016832785dcd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a2ebc76193559b1e3219d72fc2a016832785dcd
 
 下载BT种子 [贵州惊现亡共巨吼！俄罗斯公开羞辱中国。印度特种部队开赴前线。赵白眼妙讽习近平.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fc122ef6e0ca34d04d879f12f633893ca659ad7.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【微視頻】中共迫宗教參與政治替國安法背書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fe4cd6f0363c3c36f2d12261746c6d4dffee4b0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9fe4cd6f0363c3c36f2d12261746c6d4dffee4b0
-
-下载BT种子 [【環球直擊】安徽洩洪多村被淹港七一遊行反國安法五名CNN前員工為中共媒體效力(6月25日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/284a1c078389e9b5dcaa4eb118587f616f250584.torrent)
-
-磁力链接 magnet:?xt=urn:btih:284a1c078389e9b5dcaa4eb118587f616f250584
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
