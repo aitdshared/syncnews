@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QvYMRj)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xd57Ab)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [国安恶法只能“选择性执法”,选谁才是问题;中共会在香港封网吗若香港自治法这一条款发威,习近平也跑不了(政论天下第191集20200702)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc8bef8246fa544a02f9bbee0d477e03b4f29ff3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc8bef8246fa544a02f9bbee0d477e03b4f29ff3
 
 下载BT种子 [习近平提最后关头，母猪言论官员空降香港！脱贫达标秘笈出炉！谭德塞反了：北京隐瞒证据！（老北京茶馆第338集20200703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/893a589003f4a24e8d1885d82ba6a06159957e9c.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁聞】兩會感染病毒？申紀蘭病房照熱傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6693a66eb281a95500dad3e382b3a155d1344e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c6693a66eb281a95500dad3e382b3a155d1344e7
-
-下载BT种子 [【禁聞】中印衝突後中共爲何一反「戰狼」常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd899e887b91ccd939d9e762a0f4e09dee29acce.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bd899e887b91ccd939d9e762a0f4e09dee29acce
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
