@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wESMt9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bXwv4e)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【瘟疫與中共】與中共往來頻繁哈薩克斯坦多名政要染疫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed8b3806aad6c6ced5744b75a0329dd85b96c848.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ed8b3806aad6c6ced5744b75a0329dd85b96c848
 
 下载BT种子 [除中國大陸以外全球1100萬人染疫美籲在家慶祝國慶日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f26c5d1331979db242985882b0568fcdc821d90.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [美參院通過「香港問責法」嚴懲中港官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f2a7ce1bc4a2031ac2465b7fff303033922a01f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f2a7ce1bc4a2031ac2465b7fff303033922a01f
-
-下载BT种子 [歐盟政要大卫·莱加：中共利用西方善意大發橫財同時加劇壓迫自己的人民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cd34dde21f7e66343507b735d8bbb13f7c99804.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8cd34dde21f7e66343507b735d8bbb13f7c99804
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
