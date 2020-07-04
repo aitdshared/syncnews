@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lStXUf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QvYMRj)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平提最后关头，母猪言论官员空降香港！脱贫达标秘笈出炉！谭德塞反了：北京隐瞒证据！（老北京茶馆第338集20200703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/893a589003f4a24e8d1885d82ba6a06159957e9c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:893a589003f4a24e8d1885d82ba6a06159957e9c
+
+下载BT种子 [【禁聞】暴雨連續襲擊湖南張家界山洪爆發數十學生被沖走內蒙古赤峰遭洪災洪水淹沒街道房屋也淹了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f739b174664fc046ab93b2d68d366339fa56bb3b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f739b174664fc046ab93b2d68d366339fa56bb3b
 
 下载BT种子 [又見活扌商器官，北京宮鬥火熱？港區國安法，藏全球超限戰；小心中共逼你當間諜（2020.7.3）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/16a062a5b78ab29a57414100fc43c629f9a67942.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [【禁聞】中印衝突後中共爲何一反「戰狼」常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd899e887b91ccd939d9e762a0f4e09dee29acce.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bd899e887b91ccd939d9e762a0f4e09dee29acce
-
-下载BT种子 [【中國禁聞】6月24日完整版(字幕)🔥洪災信息敏感發佈汛情要法辦北京變相封城高官異動301醫院急闢謠中印衝突後中共爲何一反戰狼常態.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/429b1c2f3586b0dac74a02ea75936af7532d8cbe.torrent)
-
-磁力链接 magnet:?xt=urn:btih:429b1c2f3586b0dac74a02ea75936af7532d8cbe
-
-下载BT种子 [【中國禁聞】6月25日完整版🔥湖北安徽近1000座水庫泄洪中印衝突細節曝光印方更強硬疫情掩護強拆北京昌平對「榮譽中產」下手揭秘中共酷刑系列之三：水刑。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f0ce62a5befc9f65c1e49799746d7e1395f1fc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0f0ce62a5befc9f65c1e49799746d7e1395f1fc5
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
