@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YlqvzR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ObTr5o)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [我難過，心中的東方之珠已經暗淡，但我知道，當她再次閃耀光芒的時候，一定會照耀中華大地。願榮光歸香港！（歌曲連奏20200703）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10030918bb72ca2913a3b36804c809a9c8e6b50c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:10030918bb72ca2913a3b36804c809a9c8e6b50c
 
 下载BT种子 [大饑荒要來了？美國「核彈級」制裁，中共人、財、物被包抄；習近平習仲勛父子大不同；留學生發推文，公安帶走國內家人！香港「過火」超文革，「良知」犯忌諱；洪水從三樓傾洩，水患又加重？【新聞看點07.03】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8226a1c9f81cb6af9bdb1757203890216f192c9c.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【禁聞】揭秘中共酷刑系列之三：水刑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0799f18d23ebaa04c1b1086e71b822e6d2c14e98.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0799f18d23ebaa04c1b1086e71b822e6d2c14e98
-
-下载BT种子 [【微視頻】中共迫宗教參與政治替國安法背書.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fe4cd6f0363c3c36f2d12261746c6d4dffee4b0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9fe4cd6f0363c3c36f2d12261746c6d4dffee4b0
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
