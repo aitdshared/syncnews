@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6sYk7X)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fhg2fu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [为你而来  【永恒的五十分钟】  ｜ COMING FOR Y.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23c6a98a17ada299895a211322565d74d5a540a1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:23c6a98a17ada299895a211322565d74d5a540a1
 
 下载BT种子 [“美国反共不反华,这国反华不反共”;美国面临的困境与挑战(政论天下第192集20200704)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecf3e298e11284a0a38cbdbb1c4a8e66a226a9ba.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [（字幕版）蓬佩奧在布魯塞爾論壇上針對中共問題的發言.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/695b66ea02fb2001154239d4a99d11fef7f1b2e4.torrent)
 
 磁力链接 magnet:?xt=urn:btih:695b66ea02fb2001154239d4a99d11fef7f1b2e4
-
-下载BT种子 [遇內外政治壓力加拿大總理特魯多再拒釋放孟晚舟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea6af0cef9cb16de28dc5df657aab481f3577ed8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ea6af0cef9cb16de28dc5df657aab481f3577ed8
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
