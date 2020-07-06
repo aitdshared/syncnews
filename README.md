@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2q09ri)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e1fEuO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】獨立日川普演講高揚美國精神英媒：英國5G網絡六個月內停用華為(7月5日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9d01ebb35c0601192dcca6d8c8f304b737a985d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9d01ebb35c0601192dcca6d8c8f304b737a985d
 
 下载BT种子 [疫情下美國國慶煙火首度在紐約帝國大廈綻放.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2dafa9191e014e3c8410333c44d505a34bf3a20c.torrent)
 
@@ -540,10 +544,6 @@
 下载BT种子 [香港12個工會向20國請願：全民反國安還我真香港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc67f9d8c1172a8e59c2d34107e8c4107923ccdf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dc67f9d8c1172a8e59c2d34107e8c4107923ccdf
-
-下载BT种子 [美參議院通過《香港自治法案》制裁中共官員及銀行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b9e98784518e2b6217c4bc96072c25a2aa81561.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4b9e98784518e2b6217c4bc96072c25a2aa81561
 
 下载BT种子 [《香港自治法》獲贊制裁涉中港官警國際銀行.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/418d5f54524059ee4a8b0533995e4d0f3113ae90.torrent)
 
