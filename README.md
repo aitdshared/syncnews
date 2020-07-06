@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4dzb3A)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pqC5xT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「7.4內蒙再現鼠疫」上海貴州河南糧庫相繼大火燒毀「退耕保糧」預計1959年大饑荒到來農業部猛批「豬流感病毒」（0507）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3a6b25e699d1e57fe6109213dc6b1fd362b8726.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f3a6b25e699d1e57fe6109213dc6b1fd362b8726
 
 下载BT种子 [《香港國安法》細則研讀：比送中條例更凶險，抓人直送內地；國安署等於錦衣衛，港警只能跪安；外國人在外國反共也要“抓”；“心裏想”也犯罪（江峰漫談20200702第197期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc74e06f998d1170742fd232e74cd7bed107f046.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [為中共賣命，海外特務下場淒涼；揭密中共外宣滲透五大手法；人生十字路口：該不該出國留學？（2020.6.26）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06327cc4e0dbf49bd702578286796f1aca0b5422.torrent)
 
 磁力链接 magnet:?xt=urn:btih:06327cc4e0dbf49bd702578286796f1aca0b5422
-
-下载BT种子 [❗️37萬美軍駐亞太，中共：規模空前；國安法設“專門拘留所”關港人；陳彥霖死因裁判，媽媽現身；北京要建方艙，傳病毒攻入軍隊大院；最強降雨將威脅三峽！黑龍江火山復活新聞拍案驚奇大宇6.24.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbcfd30ca402563197c647a0b7080efcce4756b7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bbcfd30ca402563197c647a0b7080efcce4756b7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
