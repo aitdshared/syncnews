@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/L5Y4pm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UXdDQx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [反制中共黨媒滲透，台灣下驅逐令；香港國安委成立，誰是太上皇？透視共產黨：中共四大話術（2020.7.4）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5178f6bda42308250d77530fd660fc24aa78ebf7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5178f6bda42308250d77530fd660fc24aa78ebf7
+
+下载BT种子 [【禁聞】世衛承認：中共並未及時通報疫情信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6a60dbde5b2c37ddb6feafc470be57fff42d102.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d6a60dbde5b2c37ddb6feafc470be57fff42d102
 
 下载BT种子 [政变惊魂，习近平下令对这个部门大清洗！王沪宁高喊刀刃向内。世卫终于承认中共隐瞒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a7c6d9558ed6e6bf0bb1c6b7b9e43be96ee64ea.torrent)
 
@@ -540,14 +548,6 @@
 下载BT种子 [【中國禁聞】6月25日完整版(字幕)🔥湖北安徽近1000座水庫泄洪中印衝突細節曝光印方更強硬疫情掩護強拆北京昌平對「榮譽中產」下手揭秘中共酷刑系列之三：水刑。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f7ae1913e9a80fc04d56ea2fefe253d1bd22386.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6f7ae1913e9a80fc04d56ea2fefe253d1bd22386
-
-下载BT种子 [《石濤聚焦》「突發事件：FBI正在調查駐美大使崔天凱」涉嫌與中共國紐約領事館聯手招募美國科學家為中共國服務（2606）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d9547bb80bfd558bc7332b560de66e2000f57b0b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d9547bb80bfd558bc7332b560de66e2000f57b0b
-
-下载BT种子 [中共防火墙遭遇美国黑科技，结果几何？端午节，北京鸡蛋冰雹吓人，怎么解释？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/800f3378d9ebc8cd1c3c58d47105eb79da353c74.torrent)
-
-磁力链接 magnet:?xt=urn:btih:800f3378d9ebc8cd1c3c58d47105eb79da353c74
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
