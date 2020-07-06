@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xd57Ab)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4dzb3A)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《香港國安法》細則研讀：比送中條例更凶險，抓人直送內地；國安署等於錦衣衛，港警只能跪安；外國人在外國反共也要“抓”；“心裏想”也犯罪（江峰漫談20200702第197期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc74e06f998d1170742fd232e74cd7bed107f046.torrent)
+
+磁力链接 magnet:?xt=urn:btih:dc74e06f998d1170742fd232e74cd7bed107f046
 
 下载BT种子 [国安恶法只能“选择性执法”,选谁才是问题;中共会在香港封网吗若香港自治法这一条款发威,习近平也跑不了(政论天下第191集20200702)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc8bef8246fa544a02f9bbee0d477e03b4f29ff3.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [❗️37萬美軍駐亞太，中共：規模空前；國安法設“專門拘留所”關港人；陳彥霖死因裁判，媽媽現身；北京要建方艙，傳病毒攻入軍隊大院；最強降雨將威脅三峽！黑龍江火山復活新聞拍案驚奇大宇6.24.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbcfd30ca402563197c647a0b7080efcce4756b7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bbcfd30ca402563197c647a0b7080efcce4756b7
-
-下载BT种子 [【禁聞】兩會感染病毒？申紀蘭病房照熱傳.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6693a66eb281a95500dad3e382b3a155d1344e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6693a66eb281a95500dad3e382b3a155d1344e7
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
