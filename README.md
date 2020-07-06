@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DnKTD2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SdqqdV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「許章潤今早以“嫖娼”之罪被成都警察從北京家中帶走」當今習近平恰似「敲骨刨婦之紂王」眾叛親離身邊只有妖精鬼魅獸——吻合「天滅中共」《踐踏斯文，必驅致一邪魅人間》洽點要害（0607）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3546fa417e9cb7e4cf8c0c673c7de286bf0484c2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3546fa417e9cb7e4cf8c0c673c7de286bf0484c2
 
 下载BT种子 [【时事小品】港版国安法志在全球第659期大陆新闻解毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/56d7f7dbf27276adb87004da21626b0fc2b2e82c.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
 磁力链接 magnet:?xt=urn:btih:55b9f2a4067d8e001c34adfa0f4b094509b5e256
-
-下载BT种子 [香港12個工會向20國請願：全民反國安還我真香港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc67f9d8c1172a8e59c2d34107e8c4107923ccdf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc67f9d8c1172a8e59c2d34107e8c4107923ccdf
 
 下载BT种子 [見證屠城拒絕遺忘六四親歷港人抗議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/010991c64f31180ab1c2bb05792b49bdfa60fb57.torrent)
 
