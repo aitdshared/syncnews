@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SdqqdV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NJIwNx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】暴雨不斷長江中下游1200公里河段水位將超警戒武漢再度被淹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89d3868f8fe90f58ff2ec1a1e600d999a91ee87f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:89d3868f8fe90f58ff2ec1a1e600d999a91ee87f
 
 下载BT种子 [《石濤聚焦》「許章潤今早以“嫖娼”之罪被成都警察從北京家中帶走」當今習近平恰似「敲骨刨婦之紂王」眾叛親離身邊只有妖精鬼魅獸——吻合「天滅中共」《踐踏斯文，必驅致一邪魅人間》洽點要害（0607）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3546fa417e9cb7e4cf8c0c673c7de286bf0484c2.torrent)
 
