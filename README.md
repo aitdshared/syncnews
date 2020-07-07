@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5g9o5s)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3gfxgy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】印度拒絕加入任何由中共主導的貿易協定孔子學院悄悄「換馬甲」中國環球電視網》（CGTN）在英國嚴重違規面臨法律制裁包括罰款和吊銷執照.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f84bd3482e16864e05d00c0eca9fab0995b8d231.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f84bd3482e16864e05d00c0eca9fab0995b8d231
 
 下载BT种子 [【禁聞】劉鶴提「經濟內循環」中共要閉關鎖國？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b34df31311bbfd5cb2faf1e90eae66923150caac.torrent)
 
@@ -536,10 +540,6 @@
 下载BT种子 [《石濤.News》『美國家報告驚人：大疫情下黑人與西班牙－拉丁裔是白人5-4倍』更出現最傳統信仰或宗教巨大差異『結論：非典3.0將直接針對所有中共信仰與獲利者』（2706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/480507cf45a158f26fffc4b6bf20ad4760782b50.torrent)
 
 磁力链接 magnet:?xt=urn:btih:480507cf45a158f26fffc4b6bf20ad4760782b50
-
-下载BT种子 [这个名女人突然病倒，对习近平打击很大？她的精彩故事。中国向美国输出神秘物质。中印大战或一触即发.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd060dc4e45d4b8fe525d71cd6c5d7e3fe3480ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cd060dc4e45d4b8fe525d71cd6c5d7e3fe3480ba
 
 下载BT种子 [調查中共干預澳州議員住宅被當局搜查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c76073510a8da822bcff6f6c783ad872c9e0c71c.torrent)
 
