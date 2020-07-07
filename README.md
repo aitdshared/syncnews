@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YFtiUS)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EtbFj1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [分析病毒扩散轨迹 发现自救之道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a3b17ee71780b913d6d9a1d44f6d632d6cb4789.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5a3b17ee71780b913d6d9a1d44f6d632d6cb4789
 
 下载BT种子 [【環球直擊】港人白紙抗中共惡法黃之鋒拒絕認罪國安法是香港悲劇（7月6日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71460388ea5e27af29b8083213c316382d7229c7.torrent)
 
