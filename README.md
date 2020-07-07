@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EtbFj1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/J05G1y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -548,10 +548,6 @@
 下载BT种子 [《石濤聚焦》「北京永定路70號6月24日微博紀實」該區共9個街坊第2-3-5-？都被封【高風險區】公安24小時把守地處海淀豐台石景山三區交界「社區感染實證」夫婦無源頭感染源自於此公廁—第三代.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00b310135224bdd4db0cd7cf1041c6d37993bea5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:00b310135224bdd4db0cd7cf1041c6d37993bea5
-
-下载BT种子 [【環球直擊】長江千座水庫洩洪多省洪災嚴重北京、河北端午下冰雹大如雞蛋狀似中共病毒（6月26日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1043869a8a4568bf4936b3ac8f4ad5accf1d0e71.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1043869a8a4568bf4936b3ac8f4ad5accf1d0e71
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
