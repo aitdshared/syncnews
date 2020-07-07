@@ -21,13 +21,37 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8q2o8K)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8Y90AX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [潰壩發洪水沖毀道路黃山景區部分關閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/390ad8d7dee3adbb7caa9b9108515ff8012dfebf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:390ad8d7dee3adbb7caa9b9108515ff8012dfebf
+
+下载BT种子 [【重播77】川普總統參加有關安全重開學校的全國對話（1）（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c2e5a99652dc274b5ddc2332f13b2d447010baae.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c2e5a99652dc274b5ddc2332f13b2d447010baae
+
+下载BT种子 [港版國安法逼台灣政黨提資料台朝野齊譴責.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4c26c25540e45d171d6dd6e2200f4634f0b75b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d4c26c25540e45d171d6dd6e2200f4634f0b75b2
+
+下载BT种子 [港圖書館下架書籍蓬佩奧批中共在香港施行「奧威爾式審查」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/601f2e7a439ce3162f029c7e7315e4e5bcaeceaa.torrent)
+
+磁力链接 magnet:?xt=urn:btih:601f2e7a439ce3162f029c7e7315e4e5bcaeceaa
+
+下载BT种子 [英外相和美參議員：中共不守承諾不可信.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f18ee82eccbd45bc2fc1731c3ce92233ec6bac76.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f18ee82eccbd45bc2fc1731c3ce92233ec6bac76
+
+下载BT种子 [洛杉磯市議員要求警察向示威者下跪也有認為當局不能強制所有人跪下.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eb6019f6b85183f1832840ae1ac42ab77dc1bcda.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eb6019f6b85183f1832840ae1ac42ab77dc1bcda
 
 下载BT种子 [病毒變異了😱傳染力高6倍！習近平親自管控疫苗，允許跳過常規3期試驗⚠️中共士兵成小白鼠❗️80%出現不良反應！清華大學許璋潤又「被」嫖娼了？真要變天？中國自然災害增加超過4成【新聞看點07.06】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7d3d374cba4a5cae3b15f22c7822c17f7f8d642.torrent)
 
@@ -552,10 +576,6 @@
 下载BT种子 [美議員﹕儘速通過《香港自治法》港人必勝.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d83dc50db1cc6fc58e2c123586f8991e00a32a5d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d83dc50db1cc6fc58e2c123586f8991e00a32a5d
-
-下载BT种子 [公安也要降薪了！？決戰七一，美國《香港自治法案》火速推出、啟動必殺技，劃下中美脫鉤時間大限（文昭談古論今20200626第777期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/44d7ed54af385f02e309a810de73e63ac1cdc4c5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:44d7ed54af385f02e309a810de73e63ac1cdc4c5
 
 下载BT种子 [真的分手了？彭丽媛联名引猜疑！习近平报复红二代。美国鉴定：他是斯大林的继承人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b1334fc8e80b077b99129dcf22c1484a9cfbe7cd.torrent)
 
