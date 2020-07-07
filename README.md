@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NJIwNx)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YFtiUS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】港人白紙抗中共惡法黃之鋒拒絕認罪國安法是香港悲劇（7月6日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71460388ea5e27af29b8083213c316382d7229c7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71460388ea5e27af29b8083213c316382d7229c7
 
 下载BT种子 [【禁聞】暴雨不斷長江中下游1200公里河段水位將超警戒武漢再度被淹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/89d3868f8fe90f58ff2ec1a1e600d999a91ee87f.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [【環球直擊】長江千座水庫洩洪多省洪災嚴重北京、河北端午下冰雹大如雞蛋狀似中共病毒（6月26日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1043869a8a4568bf4936b3ac8f4ad5accf1d0e71.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1043869a8a4568bf4936b3ac8f4ad5accf1d0e71
-
-下载BT种子 [長江千座水庫洩洪多省洪災嚴重.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/df32678da531cd14ff1bbb42cd372924b008ea01.torrent)
-
-磁力链接 magnet:?xt=urn:btih:df32678da531cd14ff1bbb42cd372924b008ea01
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
