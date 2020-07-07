@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AdN3QL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tzluru)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平的自我革命，劉鶴的內循環竟是絕望理論；許章潤風化罪？我看應該是“洩露國家機密罪”因為他洩露中共的恐懼；香港國安法對川普和約翰遜問罪？梁振英與陳文敏常識之爭（江峰漫談20200706第198期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/874501801059262d0cbe2d872a475e043db7b4df.torrent)
+
+磁力链接 magnet:?xt=urn:btih:874501801059262d0cbe2d872a475e043db7b4df
 
 下载BT种子 [A股逆天狂漲的真正秘密！劉鶴推「內循環牛」，股民日賺2萬、跑步進入地攤奇蹟20（文昭談古論今20200706第781期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13b5268d19c9ebc4e045a9e891e7bc6321dabee5.torrent)
 
@@ -540,10 +544,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第八十二回三教大會萬仙陣」通天教主喋不休一陣三疊混元初準提出手了前緣青白金蓮妙中玄「魚龍此際分真偽玉石從今盡脫胎」（下集）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f6f928d4629d2d7c3b3158dac4df2cfc96cd2996.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f6f928d4629d2d7c3b3158dac4df2cfc96cd2996
-
-下载BT种子 [《石濤聚焦》「美參議院全票通過-香港自治法案力圖阻止港版國安法」國務卿90天內提供破壞「港人自由與權利」責任者凍結資產與拒發簽證禁止美國銀行向其貸款【韓正栗戰書習近平在其中？】（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b54f1ea0def04b74b22cb713f8216fd8b88a0a4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5b54f1ea0def04b74b22cb713f8216fd8b88a0a4
 
 下载BT种子 [《石濤聚焦》「中共啟動研發第一艘核子動力航空母艦」中共軍網公開一項軍隊採購公告「艦船核動力系統分析模型開發項目單一來源公示」全球只有美法擁有美國有11艘（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14d76f0679869ef52958327a9cc81abaed44b184.torrent)
 
