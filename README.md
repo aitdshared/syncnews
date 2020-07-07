@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lUVyjn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3QkE7l)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [许章润遭隆重抓捕，原来是怕这个！中共大势已去？习近平当局急传一个神秘数字!（老北京茶馆第339集20200706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91bdce9096dbe5186843d602cce2773c5a4d101e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91bdce9096dbe5186843d602cce2773c5a4d101e
 
 下载BT种子 [【禁聞】三峽大壩洩洪武漢本地暴雨長江洪水接近警戒水位武漢再次被淹漢口江灘完全淹沒「江灘大舞台」泡在水中道路積水嚴重開車如同開船.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac97253c3cf5eb7b9983bdf9b70733ea67110d78.torrent)
 
