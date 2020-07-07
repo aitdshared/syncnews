@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aBIX69)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CJuQ7d)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [病毒變異了😱傳染力高6倍！習近平親自管控疫苗，允許跳過常規3期試驗⚠️中共士兵成小白鼠❗️80%出現不良反應！清華大學許璋潤又「被」嫖娼了？真要變天？中國自然災害增加超過4成【新聞看點07.06】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b7d3d374cba4a5cae3b15f22c7822c17f7f8d642.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b7d3d374cba4a5cae3b15f22c7822c17f7f8d642
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/26e6ab0172068e97004f3448c594ad97996a82f3.torrent)
 
