@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ITfSN7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AdN3QL)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [A股逆天狂漲的真正秘密！劉鶴推「內循環牛」，股民日賺2萬、跑步進入地攤奇蹟20（文昭談古論今20200706第781期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/13b5268d19c9ebc4e045a9e891e7bc6321dabee5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:13b5268d19c9ebc4e045a9e891e7bc6321dabee5
 
 下载BT种子 [《石濤.News》「天出異象：廣州-東莞上空新星球影像-海市蜃樓般顯現」港版國安法細則7.7公布「台灣政治組織或代理人受控該法律」習近平以法律手段實現「祖國統一偉大男人夢想—中國夢」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6cde88ae083dffabee76919c0f12403e5270ed3.torrent)
 
@@ -544,10 +548,6 @@
 下载BT种子 [《石濤聚焦》「中共啟動研發第一艘核子動力航空母艦」中共軍網公開一項軍隊採購公告「艦船核動力系統分析模型開發項目單一來源公示」全球只有美法擁有美國有11艘（2506）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/14d76f0679869ef52958327a9cc81abaed44b184.torrent)
 
 磁力链接 magnet:?xt=urn:btih:14d76f0679869ef52958327a9cc81abaed44b184
-
-下载BT种子 [《石濤聚焦》「北京永定路70號6月24日微博紀實」該區共9個街坊第2-3-5-？都被封【高風險區】公安24小時把守地處海淀豐台石景山三區交界「社區感染實證」夫婦無源頭感染源自於此公廁—第三代.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/00b310135224bdd4db0cd7cf1041c6d37993bea5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:00b310135224bdd4db0cd7cf1041c6d37993bea5
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
