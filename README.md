@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4EMfN3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5g9o5s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】劉鶴提「經濟內循環」中共要閉關鎖國？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b34df31311bbfd5cb2faf1e90eae66923150caac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b34df31311bbfd5cb2faf1e90eae66923150caac
+
+下载BT种子 [【微視頻】加暫停引渡條約香港司法死亡開始.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/70c6cb3e6414cd839f950ae7a9851f4a1400502e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:70c6cb3e6414cd839f950ae7a9851f4a1400502e
 
 下载BT种子 [【中國禁聞】7月6日完整版(字幕)🔥暴雨不停長江中下游面臨超警洪水中國多省現蝗災恐面臨糧食危機批習近平清華大學教授許章潤「被嫖娼」遭帶走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c40ba1c815b5991a34e12780878c828a927dfe68.torrent)
 
@@ -505,10 +513,6 @@
 
 磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
 
-下载BT种子 [七常委集體消失，北京上演空城計？北京病毒傳染力爆增9倍；成都瀋陽震天詭異巨響，居民嚇呆，熱搜招封殺！中共歐盟各說各話，談不攏；重慶發布「紅色預警」，緊急疏散10萬人【新聞看點李沐陽06.23】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/388387dd6b925b94d7fbec8030aa0aa14606a5e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:388387dd6b925b94d7fbec8030aa0aa14606a5e7
-
 下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f6aa7cebaef237e15026de182f2373691eaaea1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f6aa7cebaef237e15026de182f2373691eaaea1
@@ -532,14 +536,6 @@
 下载BT种子 [《石濤.News》『美國家報告驚人：大疫情下黑人與西班牙－拉丁裔是白人5-4倍』更出現最傳統信仰或宗教巨大差異『結論：非典3.0將直接針對所有中共信仰與獲利者』（2706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/480507cf45a158f26fffc4b6bf20ad4760782b50.torrent)
 
 磁力链接 magnet:?xt=urn:btih:480507cf45a158f26fffc4b6bf20ad4760782b50
-
-下载BT种子 [💢沒淹武漢先淹重慶，三峽蓄洪一大弱點！上游水壩一樣險；國安法到，中共內定“留港不留人”，以貿易脅迫美國；軍車入港帶神秘設備，手機相機失靈；北京警察不夠用，擴招維穩軍！葉釗穎罵共新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e523291400f1382b299325979ec566b45a7dfe1a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e523291400f1382b299325979ec566b45a7dfe1a
-
-下载BT种子 [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/836d214d46cbcd5335a9d47e5e694ae2b338b90e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:836d214d46cbcd5335a9d47e5e694ae2b338b90e
 
 下载BT种子 [这个名女人突然病倒，对习近平打击很大？她的精彩故事。中国向美国输出神秘物质。中印大战或一触即发.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cd060dc4e45d4b8fe525d71cd6c5d7e3fe3480ba.torrent)
 
