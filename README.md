@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3gfxgy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GI4esw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】撰文批習近平清華大學教授許章潤「被嫖娼」遭警察帶走.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8808d3748c7bfb60f3156c707644e294bf9be47f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8808d3748c7bfb60f3156c707644e294bf9be47f
 
 下载BT种子 [【禁聞】印度拒絕加入任何由中共主導的貿易協定孔子學院悄悄「換馬甲」中國環球電視網》（CGTN）在英國嚴重違規面臨法律制裁包括罰款和吊銷執照.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f84bd3482e16864e05d00c0eca9fab0995b8d231.torrent)
 
@@ -516,10 +520,6 @@
 下载BT种子 [大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆传奇书场蒋介石第02集20200627）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e5a7b43af4de272eb28f31c00098d51e7add6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
-
-下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f6aa7cebaef237e15026de182f2373691eaaea1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f6aa7cebaef237e15026de182f2373691eaaea1
 
 下载BT种子 [【環球直擊】鄭文傑談未來抗爭之路廣西再次暴發洪災中共竟要定「粽子國際標準」（6月27日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/85bde6abc2cf546bfb376fe90e073b2bb293e422.torrent)
 
