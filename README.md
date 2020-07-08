@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Tcpqu8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P0xC88)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【美國思想領袖】昆士蘭大學學生參議員柏樂志：勇者無懼！澳洲學生和平抗議卻遭誹謗，甚至面臨學校開除；大學紀律委員會聽證會為何被稱作「袋鼠法庭」？｜大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fadf905c7c8bc98bba0ac95bcd1eb1467f772bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5fadf905c7c8bc98bba0ac95bcd1eb1467f772bf
+
+下载BT种子 [中共高官罕見承認6大危機！劉鶴提「經濟內循環」，苦日子要來了？如何應對與美元脫鉤風險？人民幣國際化恐是夢Jason趙培熱點互動07062020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5cb0e8482823915d534a9124e1cae9730547b4ab.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5cb0e8482823915d534a9124e1cae9730547b4ab
 
 下载BT种子 [《石濤聚焦》「彭博：外國公司大規模加速撤離香港」上半年辦公樓空置率已達15年新高60%因海外公司變賣或退租「為川普金融核彈-禁止美元在香港流通奠定基礎」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a375c423091dcf70b8c1c44c0b413a9cd0cc004b.torrent)
 
@@ -544,10 +552,6 @@
 下载BT种子 [誤判中共90年！美終於覺醒全面反擊，重磅制裁將接踵而來；中共又要用貿易協議應對《香港自治法》？北京疫情真相被官方嚴控，病毒變異加速傳播唐靖遠蕭恩熱點互動06252020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4ed36abcf09cf2c4c09df572b006b60c6a427a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7b4ed36abcf09cf2c4c09df572b006b60c6a427a
-
-下载BT种子 [《石濤.News》『美國家報告驚人：大疫情下黑人與西班牙－拉丁裔是白人5-4倍』更出現最傳統信仰或宗教巨大差異『結論：非典3.0將直接針對所有中共信仰與獲利者』（2706）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/480507cf45a158f26fffc4b6bf20ad4760782b50.torrent)
-
-磁力链接 magnet:?xt=urn:btih:480507cf45a158f26fffc4b6bf20ad4760782b50
 
 下载BT种子 [調查中共干預澳州議員住宅被當局搜查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c76073510a8da822bcff6f6c783ad872c9e0c71c.torrent)
 
