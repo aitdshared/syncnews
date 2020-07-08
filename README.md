@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XPsKvq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T9C3CA)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中共紅媒再受打擊英國擬制裁央視海外分支.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f289e4cf2192fe848d6043255c877702470deb3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7f289e4cf2192fe848d6043255c877702470deb3
 
 下载BT种子 [「嚴厲」鼠疫捲土重來！千萬學生高考大規模群聚？仝卓自曝高考舞弊；胡锡进批苟晶炒作，崔永元怒罵「胡叼盤」；WhatsAppTelegram拒與中共合作【新聞看點07.07】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acfc830e88cb499096f40698c884f72a7c9f2a18.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆传奇书场蒋介石第02集20200627）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e5a7b43af4de272eb28f31c00098d51e7add6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
-
-下载BT种子 [調查中共干預澳州議員住宅被當局搜查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c76073510a8da822bcff6f6c783ad872c9e0c71c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c76073510a8da822bcff6f6c783ad872c9e0c71c
 
 下载BT种子 [北京疫情蔓延11區印建全球最大臨時醫院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/884530f32a3840db5e66cddb12c2459d6fe1c9d9.torrent)
 
