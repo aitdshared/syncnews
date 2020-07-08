@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1XvBzT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9e8QFm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -628,10 +628,6 @@
 下载BT种子 [《石濤.News》「人大“活化石”申紀蘭死了」神奇：終年91唯一參加全部13次人大（13x7=91）最後投票5.28同意「港版國安法」死期6.28完成實施惡法【中共與支持獲利者壽終正寢】（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b1909c7fc028137247ab50568252a775338466.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77b1909c7fc028137247ab50568252a775338466
-
-下载BT种子 [《石濤聚焦》「北京第二輪擴散：雄安全封閉憑票出入10大學生24小時核酸」全球破1000萬亡50萬開啟第二輪特點：首都-東京首爾北京年輕-20-40歲本土與集聚【病毒早已存在身體取決主人善惡】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74190029b2f89a8220a70522a1ceabb989caaf6b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:74190029b2f89a8220a70522a1ceabb989caaf6b
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
