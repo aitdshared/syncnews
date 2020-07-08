@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sIH0Jz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KMLBNO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [北京传有大人物躺倒？共谍密集，赵白眼暗示美方揭得不够。美国正式退出世卫，拜登这样表态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a6b864450e77d805923e0d540575a3e48a405e8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9a6b864450e77d805923e0d540575a3e48a405e8
+
+下载BT种子 [【重播78】川普總統與墨西哥總統簽署聯合聲明（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6bbe7646079a5bee5ef0b972e1a97ae078cf450.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a6bbe7646079a5bee5ef0b972e1a97ae078cf450
 
 下载BT种子 [【中國禁聞】7月7日完整版（字幕）🔥湖北洪災黃岡水庫壩體滑動武漢關水位超警李克強看到很多閒置廠房中共紅媒再受打擊英國擬制裁央視海外分支專訪王全璋讓製造冤假錯案的機器停止轉動。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/420804b51898c7c5dbb934c1b25b50b0e7d3854f.torrent)
 
@@ -612,14 +620,6 @@
 下载BT种子 [中國南方洪災中共紅會救濟太少遭嘲諷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b203a0d49ee37833480f21e42f64ce8e2e566d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8b203a0d49ee37833480f21e42f64ce8e2e566d0
-
-下载BT种子 [《石濤.News》「24小時內港版國安法即將通過實施」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fae84884c02c26fbba5dca1422c74b9f63ba3bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4fae84884c02c26fbba5dca1422c74b9f63ba3bd
-
-下载BT种子 [《石濤聚焦》「中共承認三峽大壩洩洪警告上海會被淹掉」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f72c79a6e8311e21297e6b2695026928caaea9f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f72c79a6e8311e21297e6b2695026928caaea9f9
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
