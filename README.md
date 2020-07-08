@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VFh12b)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1XvBzT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [❗️上海變海上；新安江壩七孔洩洪奇觀！貴州公車墜水庫悲劇；美中南海對弈備戰熱身？港國安法碰壁，推特等拒交用戶資料；美國擬禁抖音；陸內循環經濟自救；中共六準備：糧食危機、病毒長存新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8b505f5f850b3edc858e8ae38baff86c5898e82.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d8b505f5f850b3edc858e8ae38baff86c5898e82
 
 下载BT种子 [《濤哥侃封神》『封神演義第九十回子牙捉神荼郁壘』桃樹精柳樹鬼軒轅廟裡獲精靈種門聖器皆無用各自神通無奈何楊戩借得照妖鏡毀了白蛇廢蜈蚣『軒廟借靈憑鬼使棋山毓秀仗桃叢』.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/791e41bc172710b89765230e943f18f19d57d5b3.torrent)
 
