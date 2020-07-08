@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sc1AZR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UVhrKJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [兒子遭虐殺可憐母親老淚縱橫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31df52f5e1259527771437fa00cb202a45cb524f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:31df52f5e1259527771437fa00cb202a45cb524f
 
 下载BT种子 [彌賽亞要現身了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09cc8af8bc1a8b47abc522b4423718b88f3e13d7.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [北京恐怖監控！坐私家車經過新發地.隔天家門被鎖.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d31406b99858d4832afaeddc0421193ccad3937.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4d31406b99858d4832afaeddc0421193ccad3937
-
-下载BT种子 [比利時海灘重開放手機追蹤系統幫大忙.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9cfa02ecbfbd35a3629666d4ba1708796e7131a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e9cfa02ecbfbd35a3629666d4ba1708796e7131a
 
 下载BT种子 [川普動真格宣布限制中共官員及家屬簽證.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca069fe81060112227a4c1eee7f6e6572801de31.torrent)
 
