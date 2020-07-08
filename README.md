@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0UyT63)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RU1Nf9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [肉身翻牆了解真相大陸民眾公開退出中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e4d8692f3f6d43c5fbe62dabc164f6a8241cedb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7e4d8692f3f6d43c5fbe62dabc164f6a8241cedb
 
 下载BT种子 [澳洲：考慮港人庇護或中止澳港引渡條約.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05a3e1c68fe98f415b6773ed86b35248f22c3bb6.torrent)
 
@@ -620,10 +624,6 @@
 下载BT种子 [【禁聞】揭秘中共酷刑系列之五：龍抱柱蘇秦背劍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ea8e9db2ea41edd379455498a0ab6f77c0829b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77ea8e9db2ea41edd379455498a0ab6f77c0829b
-
-下载BT种子 [【禁聞】反制香港國安法歐美加強施壓力道.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab71b49fb4a52c6811841a8c01a97c0059039be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fab71b49fb4a52c6811841a8c01a97c0059039be
 
 下载BT种子 [【禁聞】小粉紅被困海外哀嘆：沒有戰狼來救我.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8f100c2126d41e180822be5e611925214333a13.torrent)
 
