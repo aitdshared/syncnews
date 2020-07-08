@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DlpYMI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FXK7jx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李克强反复刺激习近平，原因何在？“手撕大桥”成焦点，中国人有钱又如何？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9729349f82dcc53ff4a2ef0a5553c292f25ba21b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9729349f82dcc53ff4a2ef0a5553c292f25ba21b
 
 下载BT种子 [貴州巴士衝入水庫，報復社會？抖音退出香港，另有貓膩？中共處處嚴峻，習近平在哪裡？（2020.7.8）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dae1e133010d163833cf6d96e89192e857cd3a58.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [前总理突然亮相，证实高层分裂！习近平得罪了所有人。那个女人终于撒手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b55c320bda4081b0e50fa85ad1a3a6ceb3e915.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d4b55c320bda4081b0e50fa85ad1a3a6ceb3e915
-
-下载BT种子 [【一週經濟回顧】川普跟中宣部對著幹以牙還牙！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c0f663dead502c55571ca51d5753ac516e39b2d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c0f663dead502c55571ca51d5753ac516e39b2d
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
