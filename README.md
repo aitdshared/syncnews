@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JcWHkM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0UyT63)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [澳洲：考慮港人庇護或中止澳港引渡條約.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/05a3e1c68fe98f415b6773ed86b35248f22c3bb6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:05a3e1c68fe98f415b6773ed86b35248f22c3bb6
+
+下载BT种子 [美特使訪韓川普：願與金正恩再見面.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c9cd166c7f85209d6375febb772599a7610cb87d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c9cd166c7f85209d6375febb772599a7610cb87d
 
 下载BT种子 [《石濤.News》「惠州學校老師侵犯12歲女孩被父親捕獲」FBI局長：中共國用盡竊密駭客賄賂欺騙等一切非常手段完成「人類史上最大財富轉移」【習近平與這位老師皆為“性本惡”的踐行者】（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/33c681c75c2c3388c947243f07244a5a9ac19775.torrent)
 
@@ -620,10 +628,6 @@
 下载BT种子 [【禁聞】小粉紅被困海外哀嘆：沒有戰狼來救我.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8f100c2126d41e180822be5e611925214333a13.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b8f100c2126d41e180822be5e611925214333a13
-
-下载BT种子 [【禁聞】長江13條河水位超警戒合肥水災居民家中進水大學成汪洋北京疫情蔓延雄安新區封閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7a680b959a6df6a7516645f1778d412227f168f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a7a680b959a6df6a7516645f1778d412227f168f
 
 下载BT种子 [马斯克星链计划能否推倒中共防火墙中共将如何应对(政论天下第188集20200628)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/402a87f43d7b677536952adbb1c6fa7373726683.torrent)
 
