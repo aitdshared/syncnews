@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nshc8b)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vw2f7j)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播78】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45fe9973d9a97d6d0eb2590a1511e9a89a75c396.torrent)
+
+磁力链接 magnet:?xt=urn:btih:45fe9973d9a97d6d0eb2590a1511e9a89a75c396
 
 下载BT种子 [北京传有大人物躺倒？共谍密集，赵白眼暗示美方揭得不够。美国正式退出世卫，拜登这样表态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a6b864450e77d805923e0d540575a3e48a405e8.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [前朝鮮公使太永浩：6.25戰爭是北韓對南韓的侵略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/773017bab206c89b2fe02377d80f410c05de0405.torrent)
 
 磁力链接 magnet:?xt=urn:btih:773017bab206c89b2fe02377d80f410c05de0405
-
-下载BT种子 [疫情期間歐洲醫療系統網絡遭中共攻擊歐盟曾質詢習李疑中共竊取醫療信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/424557aacec86a829271932d8070d4ad928d1064.torrent)
-
-磁力链接 magnet:?xt=urn:btih:424557aacec86a829271932d8070d4ad928d1064
 
 下载BT种子 [中國南方洪災中共紅會救濟太少遭嘲諷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b203a0d49ee37833480f21e42f64ce8e2e566d0.torrent)
 
