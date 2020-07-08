@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T9C3CA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wwpFh9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李克强又泄密了！贵州安顺高考大巴翻入水库！郭于华国骂后，许章润周日回家？（老北京茶馆第340集20200707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/311c94a464712a6512fb6eb33e367bef4f1b2453.torrent)
+
+磁力链接 magnet:?xt=urn:btih:311c94a464712a6512fb6eb33e367bef4f1b2453
 
 下载BT种子 [【禁聞】中共紅媒再受打擊英國擬制裁央視海外分支.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f289e4cf2192fe848d6043255c877702470deb3.torrent)
 
