@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/P0xC88)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aI0XH9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -548,10 +548,6 @@
 下载BT种子 [大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆传奇书场蒋介石第02集20200627）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e5a7b43af4de272eb28f31c00098d51e7add6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
-
-下载BT种子 [誤判中共90年！美終於覺醒全面反擊，重磅制裁將接踵而來；中共又要用貿易協議應對《香港自治法》？北京疫情真相被官方嚴控，病毒變異加速傳播唐靖遠蕭恩熱點互動06252020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4ed36abcf09cf2c4c09df572b006b60c6a427a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b4ed36abcf09cf2c4c09df572b006b60c6a427a
 
 下载BT种子 [調查中共干預澳州議員住宅被當局搜查.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c76073510a8da822bcff6f6c783ad872c9e0c71c.torrent)
 
