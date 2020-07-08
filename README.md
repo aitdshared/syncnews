@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AOVevA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fqRrFC)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「天出異象：廣州東莞上空新星球影像-海市蜃樓般顯現」港版國安法細則7.7公布「台灣政治組織或代理人受控該法律」習近平大舉滅佛運動以法律實現「祖國統一偉大男人的中國夢」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf6602bb7016fec340ca88ce198f30794afe2bdf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf6602bb7016fec340ca88ce198f30794afe2bdf
 
 下载BT种子 [《石濤聚集》「天出異象：東廣高速上空海市蜃樓般-姊妹地球？」港版國安法細則7.7公布「台灣政治組織或代理人受控該法律」習近平大舉滅佛運動以法律實現「完成統一大業自我男人的中國夢」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88500b1824615a703693292c8218d9843f84f3eb.torrent)
 
@@ -624,14 +628,6 @@
 下载BT种子 [《石濤聚焦》「6月28日視頻實錄：新疆大雪哈爾濱【冬天大霧】宜昌大水被淹」懼怕三峽大壩潰壩故意洩洪江水倒灌宜昌後習近平親自發出最高指示「人民至上生命至上」（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf5b534dda2eca5013ecdea67ad80484981d7778.torrent)
 
 磁力链接 magnet:?xt=urn:btih:bf5b534dda2eca5013ecdea67ad80484981d7778
-
-下载BT种子 [《石濤聚焦》「紐時：港版國安法習近平個人意志羞辱林鄭凌駕法律」拋棄香港建制派侮辱港府高官嘲諷香港黑警「林鄭律政司等港府無人知道國安法細則無人打招呼更無人諮詢」（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a804bad1afd1425d2e2c7677144a6ff2d81debc3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a804bad1afd1425d2e2c7677144a6ff2d81debc3
-
-下载BT种子 [前总理突然亮相，证实高层分裂！习近平得罪了所有人。那个女人终于撒手.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d4b55c320bda4081b0e50fa85ad1a3a6ceb3e915.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d4b55c320bda4081b0e50fa85ad1a3a6ceb3e915
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
