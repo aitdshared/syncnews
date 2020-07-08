@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zQDNzX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4vuNO3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新聞】FBI局長公開揭露中共曝光秘密侵蝕手法巴西總統確診染疫歐洲經濟衰退超預期（7月7日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf2da38670aeb762b67f0d4ebf6832341a55e439.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cf2da38670aeb762b67f0d4ebf6832341a55e439
+
+下载BT种子 [FBI局長公開揭露中共曝光秘密侵蝕手法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6643cce515caf6acc01ac6f6cb310d66c46b689c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6643cce515caf6acc01ac6f6cb310d66c46b689c
 
 下载BT种子 [國安法細則出台，香港人將面臨翻牆；新浪微博退出美國股市、抖音將被禁；川普反擊大外宣乏力，美國政府對付中共防火牆的錢哪兒去了？（江峰漫談20200708第199期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b464c619dda3e073787e88ad47d0eca21a87e4c6.torrent)
 
