@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IazoIz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KymhH2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚集》「天出異象：東廣高速上空海市蜃樓般-姊妹地球？」港版國安法細則7.7公布「台灣政治組織或代理人受控該法律」習近平大舉滅佛運動以法律實現「完成統一大業自我男人的中國夢」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/88500b1824615a703693292c8218d9843f84f3eb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:88500b1824615a703693292c8218d9843f84f3eb
+
+下载BT种子 [《石濤聚焦》「7.7實施：港版國安法第43條【人質外交】法律條文」澳洲政府發出最嚴厲旅行警告「所有在中共國的澳洲國民「越快越好」離開返國澳洲人面臨任意拘留風險」【啓示錄的七頭十角：7常委+3特首】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24e2a07b25934effff6cce0fd02dcc6a7c17885c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24e2a07b25934effff6cce0fd02dcc6a7c17885c
 
 下载BT种子 [李克强反复刺激习近平，原因何在？“手撕大桥”成焦点，中国人有钱又如何？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9729349f82dcc53ff4a2ef0a5553c292f25ba21b.torrent)
 
