@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pVmNcd)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/K4m2AN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [彌賽亞要現身了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09cc8af8bc1a8b47abc522b4423718b88f3e13d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09cc8af8bc1a8b47abc522b4423718b88f3e13d7
 
 下载BT种子 [做手術上癮，他們是天使還是魔鬼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60969a04f1a651002e570eb5a982b20d11f41d9e.torrent)
 
