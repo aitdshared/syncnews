@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yw8QcX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pvryUI)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7616b1b50443f623f5b65d971d94c4a764a5a64b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7616b1b50443f623f5b65d971d94c4a764a5a64b
 
 下载BT种子 [港禁學生在校唱願榮光議員舉白紙批凌駕基本法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99606c0fc8cc365a65311f1b71c01bb7cffce413.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [【環球直擊】中國南方洪災中共紅會救濟太少遭嘲諷武漢死者家屬告政府瞞疫法院拒立案（6月29日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f69b530407fa2d53af3a6c5286cf262ec23734c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8f69b530407fa2d53af3a6c5286cf262ec23734c
-
-下载BT种子 [温家宝特殊时间点高调现身，中共官场水深难测，时局变化太快.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0de351be61cd4a6885ceb99cf9d96b208e473bf3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0de351be61cd4a6885ceb99cf9d96b208e473bf3
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
