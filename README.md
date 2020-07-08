@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Mq7rLL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hlWxWt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [法國迪奧推出2020秋冬服裝微型奇幻系列展.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1da14d13a751c4f17c76cde9c90cff02a77ceb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc1da14d13a751c4f17c76cde9c90cff02a77ceb
 
 下载BT种子 [美國全球媒體總監：對外廣播重點是中國.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f32fac589644eb58eef453611ad843249a755083.torrent)
 
@@ -604,14 +608,6 @@
 下载BT种子 [大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆传奇书场蒋介石第02集20200627）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/07e5a7b43af4de272eb28f31c00098d51e7add6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:07e5a7b43af4de272eb28f31c00098d51e7add6c
-
-下载BT种子 [北京疫情蔓延11區印建全球最大臨時醫院.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/884530f32a3840db5e66cddb12c2459d6fe1c9d9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:884530f32a3840db5e66cddb12c2459d6fe1c9d9
-
-下载BT种子 [北京恐怖監控！坐私家車經過新發地.隔天家門被鎖.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4d31406b99858d4832afaeddc0421193ccad3937.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4d31406b99858d4832afaeddc0421193ccad3937
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
