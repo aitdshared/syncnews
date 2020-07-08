@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kCMIJu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cVVfsh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -628,10 +628,6 @@
 下载BT种子 [【一週經濟回顧】川普跟中宣部對著幹以牙還牙！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c0f663dead502c55571ca51d5753ac516e39b2d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6c0f663dead502c55571ca51d5753ac516e39b2d
-
-下载BT种子 [《石濤.News》「人大“活化石”申紀蘭死了」神奇：終年91唯一參加全部13次人大（13x7=91）最後投票5.28同意「港版國安法」死期6.28完成實施惡法【中共與支持獲利者壽終正寢】（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b1909c7fc028137247ab50568252a775338466.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77b1909c7fc028137247ab50568252a775338466
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
