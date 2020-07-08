@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZeavHs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CDVhL6)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [南方洪水真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10043a73bd334b09c94864c887c90f3f97b5e764.torrent)
+
+磁力链接 magnet:?xt=urn:btih:10043a73bd334b09c94864c887c90f3f97b5e764
 
 下载BT种子 [诺查丹玛斯预言声明：“天灭中共”第一章：红龙正在被烧着.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f7d2be2073bab0ec30ed2c9ae391bcd77974498.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤.News》「人大“活化石”申紀蘭死了」神奇：終年91唯一參加全部13次人大（13x7=91）最後投票5.28同意「港版國安法」死期6.28完成實施惡法【中共與支持獲利者壽終正寢】（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77b1909c7fc028137247ab50568252a775338466.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77b1909c7fc028137247ab50568252a775338466
-
-下载BT种子 [【嚴真點評】外交部大實話：習近平被稱斯大林繼任者20家共軍企業被鎖定美國拒簽中共官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ecd35cc6f3cb896f1fa5bfc805e49a1ce2a3dc5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8ecd35cc6f3cb896f1fa5bfc805e49a1ce2a3dc5
 
 下载BT种子 [《石濤聚焦》「北京第二輪擴散：雄安全封閉憑票出入10大學生24小時核酸」全球破1000萬亡50萬開啟第二輪特點：首都-東京首爾北京年輕-20-40歲本土與集聚【病毒早已存在身體取決主人善惡】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/74190029b2f89a8220a70522a1ceabb989caaf6b.torrent)
 
