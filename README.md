@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/fqRrFC)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/b2oJft)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [郝海东中共球界要求你“学会做人”-实际上就是学会溜须拍马做奴隶.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8dd6d27c872acfcb9a96c78690ba99de6c79e0dc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8dd6d27c872acfcb9a96c78690ba99de6c79e0dc
 
 下载BT种子 [《石濤.News》「天出異象：廣州東莞上空新星球影像-海市蜃樓般顯現」港版國安法細則7.7公布「台灣政治組織或代理人受控該法律」習近平大舉滅佛運動以法律實現「祖國統一偉大男人的中國夢」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf6602bb7016fec340ca88ce198f30794afe2bdf.torrent)
 
@@ -624,10 +628,6 @@
 下载BT种子 [申纪兰去世，党损失最重要魂器？习近平：世上再无申纪兰！网友：党跟申大妈走吧！（老北京茶馆第335集20200628）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8639c2d8cd671efe96c826339668813ba808adf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d8639c2d8cd671efe96c826339668813ba808adf
-
-下载BT种子 [《石濤聚焦》「6月28日視頻實錄：新疆大雪哈爾濱【冬天大霧】宜昌大水被淹」懼怕三峽大壩潰壩故意洩洪江水倒灌宜昌後習近平親自發出最高指示「人民至上生命至上」（2806）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf5b534dda2eca5013ecdea67ad80484981d7778.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bf5b534dda2eca5013ecdea67ad80484981d7778
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
