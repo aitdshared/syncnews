@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RU1Nf9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s3xvTS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [港國安署徵用中資酒店啟動戒備外籍居民擔心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8292a319d594c760638153fcdff8bf1c78278d2e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8292a319d594c760638153fcdff8bf1c78278d2e
 
 下载BT种子 [肉身翻牆了解真相大陸民眾公開退出中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e4d8692f3f6d43c5fbe62dabc164f6a8241cedb.torrent)
 
@@ -616,18 +620,6 @@
 下载BT种子 [【中國禁聞】6月28日完整版長江13條河水位超警戒合肥水災居民家中進水大學成汪洋宜昌大水淹城與三峽大壩洩洪有關小粉紅被困海外哀嘆「沒有戰狼來救我」揭秘中共酷刑：龍抱柱蘇秦背劍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5fb5224cb9c2eb3a50b71d6adbd0efccd85f9d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b5fb5224cb9c2eb3a50b71d6adbd0efccd85f9d0
-
-下载BT种子 [【禁聞】宜昌大水淹城洪水奔湧而下商店門面被淹23市民稱與三峽大壩洩洪有關.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a4c3e74af7375bc4bcd0387e69408d5359c8c4c3.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a4c3e74af7375bc4bcd0387e69408d5359c8c4c3
-
-下载BT种子 [【禁聞】揭秘中共酷刑系列之五：龍抱柱蘇秦背劍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77ea8e9db2ea41edd379455498a0ab6f77c0829b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77ea8e9db2ea41edd379455498a0ab6f77c0829b
-
-下载BT种子 [【禁聞】小粉紅被困海外哀嘆：沒有戰狼來救我.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b8f100c2126d41e180822be5e611925214333a13.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b8f100c2126d41e180822be5e611925214333a13
 
 下载BT种子 [马斯克星链计划能否推倒中共防火墙中共将如何应对(政论天下第188集20200628)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/402a87f43d7b677536952adbb1c6fa7373726683.torrent)
 
