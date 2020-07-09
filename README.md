@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QGCF6s)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CQq793)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [「回國或自殺」，給在美華人什麼警示？美國不再配合中共「獵狐」行動！圍堵中共新冷戰，美英將再度聯手橫河蕭恩熱點互動07082020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68486def0615d090ef5aa2557eaed753f089beac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:68486def0615d090ef5aa2557eaed753f089beac
 
 下载BT种子 [馬斯克星鏈計劃能推倒中共防火牆嗎？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f99289d976c21e06811f91f90c577070a03b2156.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第八十六回澠池縣五嶽歸天」張奎一戰壞五嶽人成神祗難言禍楊戩神功縱三界澠池小縣折周臣「丹心枉作千年計死到臨頭尚不知」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9052aa52bd28d9411523bcfdf4883b7384200b35.torrent)
 
 磁力链接 magnet:?xt=urn:btih:9052aa52bd28d9411523bcfdf4883b7384200b35
-
-下载BT种子 [【禁聞】雄安新區封縣北京醫院內部數據流出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1686dba71fdc57e9dcd9dd5f77394e5ed034dc8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c1686dba71fdc57e9dcd9dd5f77394e5ed034dc8
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
