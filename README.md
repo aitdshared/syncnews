@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D6Mx2S)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TJ9Eok)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》郝海東怒批成龍：「我一腳踢死他」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f65b9919c1319e1afc008ad4844fb87dd99d9a4d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f65b9919c1319e1afc008ad4844fb87dd99d9a4d
 
 下载BT种子 [《石濤聚焦》「哈薩克斯坦爆發全新不明肺炎被稱“哈薩克肺炎”」已亡1772人上月佔13628人含中共國公民未見WHO報告今日香港第三波創紀錄34人確診中5人來自哈薩克皆男生僅43歲左右.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7d9e5a5e12aaae129f7eef35c1bf8344e54763f3.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [北京女士在麵館用餐時接確診通知當場崩潰其商場全封閉檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71441fd09a21b892e8ccc27d262a1d5cd1dce6cf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:71441fd09a21b892e8ccc27d262a1d5cd1dce6cf
-
-下载BT种子 [香港民主人士計劃成立香港流亡議會保護民主火焰持續燃燒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75ac3f865e88aea8ade8bc4a2ae5df851b6e5aab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:75ac3f865e88aea8ade8bc4a2ae5df851b6e5aab
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
