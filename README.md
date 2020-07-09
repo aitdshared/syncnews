@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m4Ny7h)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/CL7xZW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蓬佩奧批中共威脅全球透露西方百年大計.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dbbce4b6dd45052f678b5459bf083291913ad64.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6dbbce4b6dd45052f678b5459bf083291913ad64
 
 下载BT种子 [李克強再打臉一尊爆無解矛盾；習近平發信推「上山下鄉2.0」；駐英大使洩漏中共三怕（文昭談古論今20200708）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3797d675909673cb988d207940dfb8a0144b0768.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [彭斯演講：堅信神的意志我們會走出困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/531b5aa8825ad6657b1ab332c4b730545a7e1c02.torrent)
 
 磁力链接 magnet:?xt=urn:btih:531b5aa8825ad6657b1ab332c4b730545a7e1c02
-
-下载BT种子 [中國南方洪災中共紅會救濟太少遭嘲諷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b203a0d49ee37833480f21e42f64ce8e2e566d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8b203a0d49ee37833480f21e42f64ce8e2e566d0
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
