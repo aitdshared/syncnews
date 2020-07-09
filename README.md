@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kYSlK3)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PEb1A8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「郝海東最新狀況：銀行卡被凍結兒子被限制出境」葉釗穎曾寫下遺書中共已找過葉釗穎家親更找過郝海東前妻「郝海東葉釗穎反共之舉打擊習近平-中共之深痛超乎尋常」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b02865cac53416e6774c2276560371530f56570b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b02865cac53416e6774c2276560371530f56570b
 
 下载BT种子 [免費多功能太陽能站單車手機充電加消毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58ce0845eb3f4f10a47a91971155e62882d2c366.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [这个会议不寻常，七常委凑不齐！三峡大坝高危，宜昌全城被淹。习近平决意对印度开战？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f58ad2ea3a807cd6213943d6d8b9c399505dbe6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8f58ad2ea3a807cd6213943d6d8b9c399505dbe6
-
-下载BT种子 [《石濤聚焦》「美國納斯達上市武漢金凰珠寶83噸「假黃金」質押融資160億」涉及15家金融融資機構保險公司拒絕索賠「大疫情下中共國欺詐虛無會擠爆社會」（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/525b814f8d7d51fb0fab04694703273cdab0dbc9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:525b814f8d7d51fb0fab04694703273cdab0dbc9
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
