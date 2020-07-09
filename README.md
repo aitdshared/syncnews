@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Iv0Y6a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/dxoUbu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [除中國大陸以外全球1200萬染疫東京新增病例創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c3400a3832555556824e8a4519a6ade993998b2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c3400a3832555556824e8a4519a6ade993998b2
+
+下载BT种子 [香港爆第三波中共肺炎疫情今新增42例多個病例來源不明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/977200480b65d45b8737ec01c8c441f36a558ea6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:977200480b65d45b8737ec01c8c441f36a558ea6
+
+下载BT种子 [武漢死者家屬告政府瞞疫遭扣帽子迫害.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/75c23b1137b7fb75fcdd11cc8d190173c0a99b43.torrent)
+
+磁力链接 magnet:?xt=urn:btih:75c23b1137b7fb75fcdd11cc8d190173c0a99b43
+
+下载BT种子 [港泛民初選週六登場鄭達鴻籲港人團結.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0ff15be4e04c68c7925516b8ea67375717544fb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b0ff15be4e04c68c7925516b8ea67375717544fb
 
 下载BT种子 [《石濤聚焦》「四川內江再現靈異露天宵夜頭髮突豎起」三人同行宵夜忽然出現無變電站或變壓器！物理博士：雲地靜電非常危險「但為什麼第二天再去依然發生」雷雲靜電理應隨時間改變（0907）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/29775b5899fc3d4cb74b75773b7f475312306fdd.torrent)
 
@@ -600,22 +616,6 @@
 下载BT种子 [国安恶法“留港不留人”,中共的算计与英美可能的误判;中、美、英三方决策心理分析,兼谈英美如何回击才能解决根本问题(政论天下第190集20200701)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc2e1a4a7f9e3561d4162e7b32465e8bc97d21be.torrent)
 
 磁力链接 magnet:?xt=urn:btih:fc2e1a4a7f9e3561d4162e7b32465e8bc97d21be
-
-下载BT种子 [香港国安法通过，北京撕票？习近平为何瑟瑟发抖？美国动手了！民团做水，中共会赢吗？（老北京茶馆第336集20200630）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1b1afec85f3bdf3654e0535816aad516567c9de7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1b1afec85f3bdf3654e0535816aad516567c9de7
-
-下载BT种子 [【禁聞】港版國安法引強烈反彈27國聯署譴責中共與西方對抗升級將反傷自身經濟和地緣政治.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/884b7451307aca20aab727c3878ffda1d2baa785.torrent)
-
-磁力链接 magnet:?xt=urn:btih:884b7451307aca20aab727c3878ffda1d2baa785
-
-下载BT种子 [港區國安法出爐，刑罰空前嚴厲，世界都遭殃；你還能去香港嗎？北京為何急推？（2020.7.1）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5616c0d7d78c5896e001b260014e71eb4beeaa40.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5616c0d7d78c5896e001b260014e71eb4beeaa40
-
-下载BT种子 [🔥7.1槍聲大作，水炮催淚5千警上街，勇武派傘陣石磚掩護，和理非高呼光復，香港百萬遊行全記錄！國安法下，警察懷疑就拘，西人也抓；英美接納，至少300萬港人有去處；新歌《為香港》新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2fa636f8ea2348688a660d0df40d8ac9eed0d588.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2fa636f8ea2348688a660d0df40d8ac9eed0d588
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
