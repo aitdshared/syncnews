@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AMgXKT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TbbutU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「四川內江再現靈異露天宵夜頭髮突豎起」三人！物理博士：雲地靜電非常危險（0907）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa9dbebe1741dc0a230d943906dc58e4e4af0068.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa9dbebe1741dc0a230d943906dc58e4e4af0068
 
 下载BT种子 [【環球直擊】中國南方多地水災山體滑坡多村被埋武漢死者家屬告政府瞞疫遭扣帽子迫害（7月9日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/897c48db4504b44761e5a19e8727eb5a87c5b954.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [七一港警再現「黑」本色；美中碰撞點增加，熱戰還有多遠？北京愚蠢和恐懼，毀了香港玩死自己；華人白宮請願，籲川普推倒防火牆；澳洲撒野攪事，小粉紅遭警制服；黨員數字透天意【新聞看點07.01】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a357b33f04d451def90fb66e55039db7f81a325.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5a357b33f04d451def90fb66e55039db7f81a325
-
-下载BT种子 [反攻《國安法》集結號吹響；習近平「一球一制」震古鑠今！數萬港人七一上街（文昭談古論今20200701第779期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7e129941dbd78ab0f409e2ea098cd9711c40f40.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7e129941dbd78ab0f409e2ea098cd9711c40f40
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
