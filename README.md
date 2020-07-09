@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0YClkl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XNLqDR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》「封神演義第九十一回蟠龍嶺燒鄔文化」數丈身高排扒木夜襲周營屍阻渠梅山七怪豬狗羊須虎鄭倫命舛亡牛精逼得女媧現楊戩奇才獨佔螯「殺氣騰騰鎖孟津梅山妖魅亂紅塵」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/005544f3634a74a0099d08ea1bfbf2f883f1a5bf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:005544f3634a74a0099d08ea1bfbf2f883f1a5bf
 
 下载BT种子 [港国安法出来了，不管你是哪裡人，不管你在哪裡，中共都能抓你.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c83d1a08d3fa9b485845bb9253ba021e5c7f6cda.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [（中文字幕）奥布莱恩針對中共重磅演講：美国已经醒来不会向中共低头川普政权会继续发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f061401771adf73013ffb11faa443426bfea41b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f061401771adf73013ffb11faa443426bfea41b6
-
-下载BT种子 [紐約帝國大廈重開放未來辦公形態或改變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/243f6c712807eccb6d1dbead2984bba4d3e001ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:243f6c712807eccb6d1dbead2984bba4d3e001ab
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
