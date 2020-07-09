@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/md7m2F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kYSlK3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [免費多功能太陽能站單車手機充電加消毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58ce0845eb3f4f10a47a91971155e62882d2c366.torrent)
+
+磁力链接 magnet:?xt=urn:btih:58ce0845eb3f4f10a47a91971155e62882d2c366
 
 下载BT种子 [白宮警告勿投資中企更多對華制裁在路上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f502bf0501384d1065bbf12744b40cf148abb508.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《石濤聚焦》「美國納斯達上市武漢金凰珠寶83噸「假黃金」質押融資160億」涉及15家金融融資機構保險公司拒絕索賠「大疫情下中共國欺詐虛無會擠爆社會」（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/525b814f8d7d51fb0fab04694703273cdab0dbc9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:525b814f8d7d51fb0fab04694703273cdab0dbc9
-
-下载BT种子 [《石濤.News》「24小時內港版國安法即將通過實施」以內政為由宦官亂倫式強暴香港人黎智英「繼續奮鬥發行日報直到無法發行為止」（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5530f4f1c3a8ceb0be238d10ba1461b49404a1f4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5530f4f1c3a8ceb0be238d10ba1461b49404a1f4
-
-下载BT种子 [中共黨員更懼美制裁袁弓夷薦要贏第一場仗天滅中共運動進展順利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af5198db5032c9234c8d2b137fc50374902532d0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:af5198db5032c9234c8d2b137fc50374902532d0
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
