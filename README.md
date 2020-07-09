@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/G6i75H)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YhJrex)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【深度分析】A股7天爆增3.8萬億！央視大吹「牛氣」1分12秒，中共「戰略性牛市」下，工薪族將血本無歸？｜新聞看點李沐陽07.08.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a0f5db8eeca53a14bb214635fa9d6216e610b7b0.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a0f5db8eeca53a14bb214635fa9d6216e610b7b0
 
 下载BT种子 [诺查丹玛斯预言声明：“天灭中共”第二章：下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d85a0a23f55cff82283e27917b438adbb398abeb.torrent)
 
@@ -616,10 +620,6 @@
 下载BT种子 [《石濤聚焦》「印度無預警下架59款中共國App直接與習總說不」包括抖音微信微博QQ理由：威脅國家主權安全國防個人隱私視頻【習近平大戰莫迪】極端嘲諷（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35d874956a2648c4cc8255903bc0ee500ab9cb65.torrent)
 
 磁力链接 magnet:?xt=urn:btih:35d874956a2648c4cc8255903bc0ee500ab9cb65
-
-下载BT种子 [《石濤聚焦》「郝海東：共產黨你們完了！」港版國安法實施前夕郝海東最新聲明：消滅中共是正義的需要中國共產黨是危害全人類的一個邪惡組織（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8a032280bb2f9a3854216047f9c3b29ff09e0d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6e8a032280bb2f9a3854216047f9c3b29ff09e0d
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
