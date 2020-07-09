@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rRmHWZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cqz1qX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】7月8日完整版🔥洪災持續長江中下游水位全線超警戒國安法給港警無限特權大陸維穩模式移植香港709大抓捕事件五週年一手資料陸續曝光中共操控英國上層人士支持華爲情報機構點名5精英.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dae18b3580d30eb2c57e1be2cbe9d9772482aa6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7dae18b3580d30eb2c57e1be2cbe9d9772482aa6
 
 下载BT种子 [【美國思想領袖】自由大學商學院院長大衛‧布拉特：下一代必須為自由而戰！馬克思主義者的承諾永遠不會實現；中共策略之一只説美國人想聽的；利用人們的健忘，2035年奪取台灣？｜大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41bf80fc7ef426daefea411fd18a2af8429744bf.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [美國會議員﹕驅逐《中國日報》停用Zoom.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c881d556eb0a6edeb4a61f7b86637f2994c1b43.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0c881d556eb0a6edeb4a61f7b86637f2994c1b43
-
-下载BT种子 [制裁升級美停止對香港出口受控國防產品.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7bbff6d3574f4d9de5a14aa3871a9b6ee386da79.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7bbff6d3574f4d9de5a14aa3871a9b6ee386da79
 
 下载BT种子 [紐約帝國大廈重開放未來辦公形態或改變.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/243f6c712807eccb6d1dbead2984bba4d3e001ab.torrent)
 
