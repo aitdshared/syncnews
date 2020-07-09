@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TJ9Eok)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/aLT0ug)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】7月8日完整版(字幕)🔥長江中下游水位全線超警戒國安法給港警無限特權大陸維穩模式移植香港709大抓捕事件五週年一手資料陸續曝光中共操控英國上層人士支持華爲情報機構點名5精英.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ea31896a141f2fd68728e0d8935af6b3f1345d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6ea31896a141f2fd68728e0d8935af6b3f1345d7
 
 下载BT种子 [《石濤聚焦》郝海東怒批成龍：「我一腳踢死他」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f65b9919c1319e1afc008ad4844fb87dd99d9a4d.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [除中國大陸以外全球1100萬人染疫美籲在家慶祝國慶日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f26c5d1331979db242985882b0568fcdc821d90.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5f26c5d1331979db242985882b0568fcdc821d90
-
-下载BT种子 [北京女士在麵館用餐時接確診通知當場崩潰其商場全封閉檢測.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71441fd09a21b892e8ccc27d262a1d5cd1dce6cf.torrent)
-
-磁力链接 magnet:?xt=urn:btih:71441fd09a21b892e8ccc27d262a1d5cd1dce6cf
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
