@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/X6rWxX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gagJpu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [嚴防中共竊秘美國查抖音Tiktok等應用對中共對中共處理疫情不當的懲罰之一.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95d578649580baf2fdf1645957fd1890a6a43ced.torrent)
+
+磁力链接 magnet:?xt=urn:btih:95d578649580baf2fdf1645957fd1890a6a43ced
+
+下载BT种子 [江西上饒一座800年古廊橋被沖毀千島湖洩洪數十小時.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4141e9b42cb3eb863c61cbfb98818976869aebf5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4141e9b42cb3eb863c61cbfb98818976869aebf5
 
 下载BT种子 [除中國大陸以外全球1200萬染疫東京新增病例創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c3400a3832555556824e8a4519a6ade993998b2.torrent)
 
@@ -608,14 +616,6 @@
 下载BT种子 [【環球直擊】港府稱「光復香港」口號違法港民計劃成立流亡議會台灣驅逐中共媒體記者（7月3日完整版2).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1eb87ac8cdee6616037f95727f078577bd1d171.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f1eb87ac8cdee6616037f95727f078577bd1d171
-
-下载BT种子 [鄧小平涉嫌煽顛，習會送他入獄嗎？惡法無阻抗議，港人智慧表心聲；惡法管轄「地球人」，班農蓬佩奧危險了；中共承認「活摘」，欲蓋彌彰卻洩底！重慶4樓以下被淹，貴州地震前有異響；【新聞看點07.02】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/506ce94b1cd00ccf9de0ca76fe991618320bfd91.torrent)
-
-磁力链接 magnet:?xt=urn:btih:506ce94b1cd00ccf9de0ca76fe991618320bfd91
-
-下载BT种子 [国安恶法“留港不留人”,中共的算计与英美可能的误判;中、美、英三方决策心理分析,兼谈英美如何回击才能解决根本问题(政论天下第190集20200701)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc2e1a4a7f9e3561d4162e7b32465e8bc97d21be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc2e1a4a7f9e3561d4162e7b32465e8bc97d21be
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
