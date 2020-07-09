@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cqz1qX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UGDMW5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《濤哥侃封神》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6a91f072fc6878956efa34b84d1bd539c90aca4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d6a91f072fc6878956efa34b84d1bd539c90aca4
 
 下载BT种子 [【中國禁聞】7月8日完整版🔥洪災持續長江中下游水位全線超警戒國安法給港警無限特權大陸維穩模式移植香港709大抓捕事件五週年一手資料陸續曝光中共操控英國上層人士支持華爲情報機構點名5精英.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7dae18b3580d30eb2c57e1be2cbe9d9772482aa6.torrent)
 
@@ -608,10 +612,6 @@
 下载BT种子 [（中文字幕）奥布莱恩針對中共重磅演講：美国已经醒来不会向中共低头川普政权会继续发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f061401771adf73013ffb11faa443426bfea41b6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f061401771adf73013ffb11faa443426bfea41b6
-
-下载BT种子 [疫情重創旅游業意大利推行新型生態旅游.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c26a865664cb787c0d4388b954b44a5a9e95cc2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6c26a865664cb787c0d4388b954b44a5a9e95cc2
 
 下载BT种子 [美國會議員﹕驅逐《中國日報》停用Zoom.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c881d556eb0a6edeb4a61f7b86637f2994c1b43.torrent)
 
