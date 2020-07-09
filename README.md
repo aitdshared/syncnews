@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/cuZvk6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/m4Ny7h)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [李克強再打臉一尊爆無解矛盾；習近平發信推「上山下鄉2.0」；駐英大使洩漏中共三怕（文昭談古論今20200708）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3797d675909673cb988d207940dfb8a0144b0768.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3797d675909673cb988d207940dfb8a0144b0768
+
+下载BT种子 [【重播78】川普總統與墨西哥總統聯合新聞發佈會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a548a9ea9812ff53e5f4deadf72de72621b6fe5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a548a9ea9812ff53e5f4deadf72de72621b6fe5
 
 下载BT种子 [【重播78】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45fe9973d9a97d6d0eb2590a1511e9a89a75c396.torrent)
 
@@ -601,10 +609,6 @@
 
 磁力链接 magnet:?xt=urn:btih:af5198db5032c9234c8d2b137fc50374902532d0
 
-下载BT种子 [憂國家安全美國促歐洲盟友勿用同方威視.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ed43a08c723cd8db2875c0c4108f57218b58ec1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6ed43a08c723cd8db2875c0c4108f57218b58ec1
-
 下载BT种子 [全球逾50萬人喪生千萬人染疫日增近19萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f218ab3536f58def4bee476c4da4dd3e4458f6c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7f218ab3536f58def4bee476c4da4dd3e4458f6c
@@ -612,10 +616,6 @@
 下载BT种子 [彭斯演講：堅信神的意志我們會走出困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/531b5aa8825ad6657b1ab332c4b730545a7e1c02.torrent)
 
 磁力链接 magnet:?xt=urn:btih:531b5aa8825ad6657b1ab332c4b730545a7e1c02
-
-下载BT种子 [前朝鮮公使太永浩：6.25戰爭是北韓對南韓的侵略.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/773017bab206c89b2fe02377d80f410c05de0405.torrent)
-
-磁力链接 magnet:?xt=urn:btih:773017bab206c89b2fe02377d80f410c05de0405
 
 下载BT种子 [中國南方洪災中共紅會救濟太少遭嘲諷.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b203a0d49ee37833480f21e42f64ce8e2e566d0.torrent)
 
