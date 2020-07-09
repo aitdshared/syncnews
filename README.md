@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wIE2o6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pN8Swi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [暴雨6度狂襲湖北1081座水庫超警戒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8aca84d5816ae03583b0c4aad8bd61d0ea3dd8e9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8aca84d5816ae03583b0c4aad8bd61d0ea3dd8e9
+
+下载BT种子 [紐約計劃重開學校英國再拿300億救經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a390f8e8b9f5c5db3424baae7bdef617508c6f29.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a390f8e8b9f5c5db3424baae7bdef617508c6f29
+
+下载BT种子 [貴州公交沖入水庫21死司機為拆遷戶.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/810985ba175e80879e905dc397bbb8e9b5fc7fdb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:810985ba175e80879e905dc397bbb8e9b5fc7fdb
 
 下载BT种子 [蓬佩奧批中共威脅全球透露西方百年大計.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6dbbce4b6dd45052f678b5459bf083291913ad64.torrent)
 
@@ -612,14 +624,6 @@
 下载BT种子 [中共黨員更懼美制裁袁弓夷薦要贏第一場仗天滅中共運動進展順利.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af5198db5032c9234c8d2b137fc50374902532d0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:af5198db5032c9234c8d2b137fc50374902532d0
-
-下载BT种子 [全球逾50萬人喪生千萬人染疫日增近19萬.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f218ab3536f58def4bee476c4da4dd3e4458f6c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7f218ab3536f58def4bee476c4da4dd3e4458f6c
-
-下载BT种子 [彭斯演講：堅信神的意志我們會走出困境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/531b5aa8825ad6657b1ab332c4b730545a7e1c02.torrent)
-
-磁力链接 magnet:?xt=urn:btih:531b5aa8825ad6657b1ab332c4b730545a7e1c02
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
