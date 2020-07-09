@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3aIKan)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QGCF6s)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [馬斯克星鏈計劃能推倒中共防火牆嗎？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f99289d976c21e06811f91f90c577070a03b2156.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f99289d976c21e06811f91f90c577070a03b2156
 
 下载BT种子 [发布一个重要通知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1826d854a521d82e8552ae86ea88f654ce48974.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [【禁聞】雄安新區封縣北京醫院內部數據流出.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1686dba71fdc57e9dcd9dd5f77394e5ed034dc8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c1686dba71fdc57e9dcd9dd5f77394e5ed034dc8
-
-下载BT种子 [【禁聞】合肥洪水淹城海綿城市變海洋城市.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bb269773f360dcb1ee419498c3367982a698612d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:bb269773f360dcb1ee419498c3367982a698612d
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
