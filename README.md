@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lQw3Ex)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vPETUY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中美信息战已互殴三回合,四大领域中胜负手何在中共在香港也要建墙!除了拆墙,美国还需要做这件事(政论天下第194集20200708)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7521b0636fb45e2a49b498ebc334a56169c82265.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7521b0636fb45e2a49b498ebc334a56169c82265
 
 下载BT种子 [【禁聞】國安法給港警無限權力大陸維穩模式移植香港.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6155391bcab7496df0a89200df69d50cadc0e7f4.torrent)
 
@@ -612,14 +616,6 @@
 下载BT种子 [內幕：中共要犧牲下游保三峽！習近平終於「雲露面」，80年最大洪水，肆虐淹26省，七常委不視察災區？山洪暴發，旅店不通知遊客！出手豪爽救非洲，紅十字救災一人分不到「2分錢」！【新聞看點06.29】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a05698739197f90bac05504e477824ef51a23254.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a05698739197f90bac05504e477824ef51a23254
-
-下载BT种子 [中國大陸以外感染人數達1,026萬北京確診病例自「打臉」印首都設血漿庫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ed1c8845068eafd0d8fa01b320fe31847a7bb01.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7ed1c8845068eafd0d8fa01b320fe31847a7bb01
-
-下载BT种子 [武漢死者家屬告政府瞞疫法院拒立案.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d09f0d7df9185bcd936d2f900db5eca101a9ba6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9d09f0d7df9185bcd936d2f900db5eca101a9ba6
 
 下载BT种子 [（中文字幕）奥布莱恩針對中共重磅演講：美国已经醒来不会向中共低头川普政权会继续发声.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f061401771adf73013ffb11faa443426bfea41b6.torrent)
 
