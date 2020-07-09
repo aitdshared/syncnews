@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SUlQ8x)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/G6i75H)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [诺查丹玛斯预言声明：“天灭中共”第二章：下台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d85a0a23f55cff82283e27917b438adbb398abeb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d85a0a23f55cff82283e27917b438adbb398abeb
 
 下载BT种子 [《石濤聚焦》「天降異像：長江三峽四周7天14次‘極淺層地震’」6.21日環食12日後發生雲貴與川藏—三峽庫區為歐亞大陸-印度次大陸-太平洋板塊匯集【強地震帶區域】李淳風-臣殺君國必亡（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7894e5b45448ca5d8f16f1440a0e8c6826e5d8be.torrent)
 
@@ -616,14 +620,6 @@
 下载BT种子 [《石濤聚焦》「郝海東：共產黨你們完了！」港版國安法實施前夕郝海東最新聲明：消滅中共是正義的需要中國共產黨是危害全人類的一個邪惡組織（2906）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e8a032280bb2f9a3854216047f9c3b29ff09e0d.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6e8a032280bb2f9a3854216047f9c3b29ff09e0d
-
-下载BT种子 [溫家寶突然現身為三峽？中印降溫失效、持續增兵隨時再打；戰狼玩砸的「收復三京」（文昭談古論今20200629第778期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/252aefc439dfa879dc763bfeb892e6485d59f2bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:252aefc439dfa879dc763bfeb892e6485d59f2bd
-
-下载BT种子 [这个会议不寻常，七常委凑不齐！三峡大坝高危，宜昌全城被淹。习近平决意对印度开战？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f58ad2ea3a807cd6213943d6d8b9c399505dbe6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8f58ad2ea3a807cd6213943d6d8b9c399505dbe6
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
