@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rfoIRw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SUlQ8x)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「天降異像：長江三峽四周7天14次‘極淺層地震’」6.21日環食12日後發生雲貴與川藏—三峽庫區為歐亞大陸-印度次大陸-太平洋板塊匯集【強地震帶區域】李淳風-臣殺君國必亡（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7894e5b45448ca5d8f16f1440a0e8c6826e5d8be.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7894e5b45448ca5d8f16f1440a0e8c6826e5d8be
+
+下载BT种子 [《石濤聚焦》「貴州安順公交車墜湖慘案」傳司機為退伍軍人拆遷受害者女兒1年前高考失利墜湖而亡更多人以為故意為之（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/190303895d5292920df1ff5d4bfd81990366d603.torrent)
+
+磁力链接 magnet:?xt=urn:btih:190303895d5292920df1ff5d4bfd81990366d603
 
 下载BT种子 [《石濤聚焦》「郝海東最新狀況：銀行卡被凍結兒子被限制出境」葉釗穎曾寫下遺書中共已找過葉釗穎家親更找過郝海東前妻「郝海東葉釗穎反共之舉打擊習近平-中共之深痛超乎尋常」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b02865cac53416e6774c2276560371530f56570b.torrent)
 
@@ -612,10 +620,6 @@
 下载BT种子 [溫家寶突然現身為三峽？中印降溫失效、持續增兵隨時再打；戰狼玩砸的「收復三京」（文昭談古論今20200629第778期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/252aefc439dfa879dc763bfeb892e6485d59f2bd.torrent)
 
 磁力链接 magnet:?xt=urn:btih:252aefc439dfa879dc763bfeb892e6485d59f2bd
-
-下载BT种子 [【環球直擊】中共紅會救濟災民太少袁弓夷薦要贏第一場仗歐盟曾質詢習李（6月29日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f5b2b33f1bdbf1a6a10c41ef0f068ba104df2f8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1f5b2b33f1bdbf1a6a10c41ef0f068ba104df2f8
 
 下载BT种子 [这个会议不寻常，七常委凑不齐！三峡大坝高危，宜昌全城被淹。习近平决意对印度开战？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8f58ad2ea3a807cd6213943d6d8b9c399505dbe6.torrent)
 
