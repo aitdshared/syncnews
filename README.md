@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/TbbutU)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pzdp4S)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [709五週年王全璋發自辯詞美國歐盟聲援.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e06f1372583687679b4ea87691ec91a84889ac21.torrent)
+
+磁力链接 magnet:?xt=urn:btih:e06f1372583687679b4ea87691ec91a84889ac21
 
 下载BT种子 [《石濤聚焦》「四川內江再現靈異露天宵夜頭髮突豎起」三人！物理博士：雲地靜電非常危險（0907）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa9dbebe1741dc0a230d943906dc58e4e4af0068.torrent)
 
@@ -612,10 +616,6 @@
 下载BT种子 [習近平簽主席令《香港國安法》生效，形同對美宣戰書，港人何去何從？美國制裁是恫嚇還是實戰？美元結算系統關閉將置中共於世界經濟之外（江峰漫談20200630第196）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de1042cfb1bb6ba3ab47e930382bdc0e6d2df573.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de1042cfb1bb6ba3ab47e930382bdc0e6d2df573
-
-下载BT种子 [七一港警再現「黑」本色；美中碰撞點增加，熱戰還有多遠？北京愚蠢和恐懼，毀了香港玩死自己；華人白宮請願，籲川普推倒防火牆；澳洲撒野攪事，小粉紅遭警制服；黨員數字透天意【新聞看點07.01】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5a357b33f04d451def90fb66e55039db7f81a325.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5a357b33f04d451def90fb66e55039db7f81a325
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
