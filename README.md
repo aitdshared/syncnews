@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EikeZe)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WpIOnz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中港股市異常飆升中共開打金融保衛戰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ff2ad60939db992296f7d05621b1e5569759378.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0ff2ad60939db992296f7d05621b1e5569759378
+
+下载BT种子 [【禁聞】南方洪災擴大三峽大壩全力泄洪慘況空前.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8566f18d60aefc05796e4b18ea86d03f95a04c38.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8566f18d60aefc05796e4b18ea86d03f95a04c38
+
+下载BT种子 [【禁聞】軍中疫情秘而不宣？中央軍委特批軍隊試用新疫苗近半接種者出現不同副作用.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1d7eba3ea414623f10af1c4f67de06ccf7888ae6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1d7eba3ea414623f10af1c4f67de06ccf7888ae6
 
 下载BT种子 [美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对(政论天下第195集20200709)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7bedfcb84f1a57ba07d9208846db710ed3c9305.torrent)
 
