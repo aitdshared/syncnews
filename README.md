@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LtAXVJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7yK3he)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [习近平躲猫猫，被一份体检报告吓到？大水来了，人民醒了！王全璋：我是怎么一个人（老北京茶馆第341集20200709）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/087ea26b0c8e6c4991aeedfb6c45df59371e0854.torrent)
+
+磁力链接 magnet:?xt=urn:btih:087ea26b0c8e6c4991aeedfb6c45df59371e0854
 
 下载BT种子 [💥四川鞭炮廠炸成平地😱！中共內鬥逼宮，政法系統大清門戶；習近平遇威脅？李克強出絕招；川普擬禁抖音，拆中共防火牆；使用華為等產品，禁與美政府交易；許璋潤會電視認罪嗎？【新聞看點李沐陽07.09】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1cfe74b1d565f1d7fc6253a650d81d4be78c5686.torrent)
 
