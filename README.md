@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oADvN8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QzGGml)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國人，你被騙了嗎？除夕夜的天安門自焚是騙局！真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8cc34f358e041ae09604c1de5da33e4e40a19461.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8cc34f358e041ae09604c1de5da33e4e40a19461
 
 下载BT种子 [【重播79】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9bdc3f586afa87644fb2fbe8cf02a45b3d40cc40.torrent)
 
@@ -608,14 +612,6 @@
 下载BT种子 [政变惊魂，习近平下令对这个部门大清洗！王沪宁高喊刀刃向内。世卫终于承认中共隐瞒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a7c6d9558ed6e6bf0bb1c6b7b9e43be96ee64ea.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7a7c6d9558ed6e6bf0bb1c6b7b9e43be96ee64ea
-
-下载BT种子 [《石濤聚焦》「7.4內蒙再現鼠疫」上海貴州河南糧庫相繼大火燒毀「退耕保糧」預計1959年大饑荒到來農業部猛批「豬流感病毒」（0507）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f3a6b25e699d1e57fe6109213dc6b1fd362b8726.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f3a6b25e699d1e57fe6109213dc6b1fd362b8726
-
-下载BT种子 [《香港國安法》細則研讀：比送中條例更凶險，抓人直送內地；國安署等於錦衣衛，港警只能跪安；外國人在外國反共也要“抓”；“心裏想”也犯罪（江峰漫談20200702第197期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dc74e06f998d1170742fd232e74cd7bed107f046.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dc74e06f998d1170742fd232e74cd7bed107f046
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
