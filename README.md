@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vBiPgX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QVU27E)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [💥李克強突遭當面上訪；全民表態！港初選登場，警察行動詭異；港確診劇增，中共陰謀？美制裁陳全國；長江倒灌支流，武漢急加高堤防，武夷山猴困水；蝗軍侵雲南；報告：上億人面臨餓死新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d9162064bddb8ad1d828d09a8fb1684076c8abf.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6d9162064bddb8ad1d828d09a8fb1684076c8abf
 
 下载BT种子 [洪災🌊41天淹半個中國！美國制裁加碼，王毅變臉求和？中共四大銀行做最壞打算；刑上政治局委員，七常委僅半步之遙；美對台軍售「愛國者」，中共還硬碰硬？美中關係結冰，戴旭4呼想不到【新聞看點07.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc771f0929bb53973f758ed3cbbd1c79579e2aac.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [傳說的大招真發動，美國要拆「長城防火牆」！國家建牆國家拆、「星鏈」靠得住？兩條戰線的「拆牆」之爭（文昭談古論今20200707第782期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a03f51f29a9c4f860b13fa469735b795e401c3ed.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a03f51f29a9c4f860b13fa469735b795e401c3ed
-
-下载BT种子 [《石濤聚焦》「港版國安法第43條【人質外交】法律條文」澳洲最嚴厲旅行警告「所有在中共國的澳洲國民「越快越好」離開返國」「澳洲人面臨任意拘留風險」【啓示錄的七頭十角：7常委+3特首】（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ae9ee2d0382e3284d19113235dcdd0187b1f45.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f7ae9ee2d0382e3284d19113235dcdd0187b1f45
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
