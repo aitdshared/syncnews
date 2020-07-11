@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QnxZlL)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RmzgXk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [陈全国祭旗，川普迈开第二步！闫丽梦爆重磅，王毅紧急放软求和？总误判师习近平，又误判了（老北京茶馆第342集20200710）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1c4bc47deb57518cf3a9827ab2ddaf616e16358c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1c4bc47deb57518cf3a9827ab2ddaf616e16358c
 
 下载BT种子 [逃美科学家开口！中国洪水滔天，习近平拼命躲。火箭发射接连失败，原因不能说！美中最后一条纽带将绷断？中印没完又扯上第三国.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/21cd406a27f085c36e342a8e4870cd854af5a5fb.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁聞】中共紅媒再受打擊英國擬制裁央視海外分支.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f289e4cf2192fe848d6043255c877702470deb3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7f289e4cf2192fe848d6043255c877702470deb3
-
-下载BT种子 [「嚴厲」鼠疫捲土重來！千萬學生高考大規模群聚？仝卓自曝高考舞弊；胡锡进批苟晶炒作，崔永元怒罵「胡叼盤」；WhatsAppTelegram拒與中共合作【新聞看點07.07】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/acfc830e88cb499096f40698c884f72a7c9f2a18.torrent)
-
-磁力链接 magnet:?xt=urn:btih:acfc830e88cb499096f40698c884f72a7c9f2a18
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
