@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SrMDaR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/69GNhw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國鍘刀試刃，新疆3官遭制；刑上政治局委員，習近平僅半步遙；王毅求和，趙立堅放話，再施陰陽手；中共四大銀行做最壞打算；美再次對台軍售，中共敢硬碰硬？水患波及27省，水情升最高紅色【新聞看點07.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c61d7dbcc6a623aca05c5ac19a10e91e7de94f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0c61d7dbcc6a623aca05c5ac19a10e91e7de94f4
 
 下载BT种子 [吹哨人现身,多少新冠黑幕将被曝光习近平的角色更加清晰;世卫组织还有机会挽回声誉吗(政论天下第196集20200710)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/32d73cde10d9722dee9f5ddfdfc29fcc43f702c4.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [國安法細則出台，香港人將面臨翻牆；新浪微博退出美國股市、抖音將被禁；川普反擊大外宣乏力，美國政府對付中共防火牆的錢哪兒去了？（江峰漫談20200708第199期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b464c619dda3e073787e88ad47d0eca21a87e4c6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b464c619dda3e073787e88ad47d0eca21a87e4c6
-
-下载BT种子 [李克强又泄密了！贵州安顺高考大巴翻入水库！郭于华国骂后，许章润周日回家？（老北京茶馆第340集20200707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/311c94a464712a6512fb6eb33e367bef4f1b2453.torrent)
-
-磁力链接 magnet:?xt=urn:btih:311c94a464712a6512fb6eb33e367bef4f1b2453
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
