@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Qsc39F)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vBiPgX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [洪災🌊41天淹半個中國！美國制裁加碼，王毅變臉求和？中共四大銀行做最壞打算；刑上政治局委員，七常委僅半步之遙；美對台軍售「愛國者」，中共還硬碰硬？美中關係結冰，戴旭4呼想不到【新聞看點07.10】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc771f0929bb53973f758ed3cbbd1c79579e2aac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc771f0929bb53973f758ed3cbbd1c79579e2aac
 
 下载BT种子 [《石濤聚焦》「天出異象：飛鳥停於半空中」雲南滇池大批蝗蟲攻入12天已傷害10萬畝林農源自中緬邊界與桂林湖北蝗蟲「遙呼相映」（1007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6b60b0b81cc576da8eabcf07b3767fc5b2efb30c.torrent)
 
@@ -596,34 +600,6 @@
 下载BT种子 [《石濤聚焦》「港版國安法第43條【人質外交】法律條文」澳洲最嚴厲旅行警告「所有在中共國的澳洲國民「越快越好」離開返國」「澳洲人面臨任意拘留風險」【啓示錄的七頭十角：7常委+3特首】（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ae9ee2d0382e3284d19113235dcdd0187b1f45.torrent)
 
 磁力链接 magnet:?xt=urn:btih:f7ae9ee2d0382e3284d19113235dcdd0187b1f45
-
-下载BT种子 [兒子遭虐殺可憐母親老淚縱橫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/31df52f5e1259527771437fa00cb202a45cb524f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:31df52f5e1259527771437fa00cb202a45cb524f
-
-下载BT种子 [彌賽亞要現身了！.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09cc8af8bc1a8b47abc522b4423718b88f3e13d7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09cc8af8bc1a8b47abc522b4423718b88f3e13d7
-
-下载BT种子 [做手術上癮，他們是天使還是魔鬼？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/60969a04f1a651002e570eb5a982b20d11f41d9e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:60969a04f1a651002e570eb5a982b20d11f41d9e
-
-下载BT种子 [“美国反共不反华,这国反华不反共”;美国面临的困境与挑战(政论天下第192集20200704)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ecf3e298e11284a0a38cbdbb1c4a8e66a226a9ba.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ecf3e298e11284a0a38cbdbb1c4a8e66a226a9ba
-
-下载BT种子 [反制中共黨媒滲透，台灣下驅逐令；香港國安委成立，誰是太上皇？透視共產黨：中共四大話術（2020.7.4）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5178f6bda42308250d77530fd660fc24aa78ebf7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5178f6bda42308250d77530fd660fc24aa78ebf7
-
-下载BT种子 [【禁聞】世衛承認：中共並未及時通報疫情信息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d6a60dbde5b2c37ddb6feafc470be57fff42d102.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d6a60dbde5b2c37ddb6feafc470be57fff42d102
-
-下载BT种子 [政变惊魂，习近平下令对这个部门大清洗！王沪宁高喊刀刃向内。世卫终于承认中共隐瞒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7a7c6d9558ed6e6bf0bb1c6b7b9e43be96ee64ea.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7a7c6d9558ed6e6bf0bb1c6b7b9e43be96ee64ea
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
