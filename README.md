@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VvN249)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LozZtX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】港民主派初選六小時14萬人投票！盼拚立法會過半富國銀行禁止員工用Tiktok亞馬遜變卦？（7月11日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b994ba287d154cce447283432fd4bf2df02a67c5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b994ba287d154cce447283432fd4bf2df02a67c5
+
+下载BT种子 [前新浪微博審核員揭中共如何威脅自由社會以及網絡審查黑幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ccffe62c80a03f562b9401ce9a183445211bf6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8ccffe62c80a03f562b9401ce9a183445211bf6f
+
+下载BT种子 [【環球直擊】港民主派初選六小時14萬人投票武漢病毒中國研究員在美現身金門法輪功遊行(7月11日完整版}.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6f1d3fd2f66ea96e110b392b2c6f3c2b83216305.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6f1d3fd2f66ea96e110b392b2c6f3c2b83216305
 
 下载BT种子 [香港人無畏打壓，6小時近14萬投票；美國突警告中共濫捕，意味什麼？鄱陽湖將有大洪水？3000噸茶葉被水泡，茶廠老闆哭慘！太詭異！北京通報上月疫情；普京三通電話？中印關係緊張！【新聞看點07.11】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a53cae5dd7c070e5ba0b6a2284e9141d394da88.torrent)
 
@@ -581,25 +593,13 @@
 
 磁力链接 magnet:?xt=urn:btih:0d88637bd8c3c581ef0df2b26744bfb0222c37bd
 
-下载BT种子 [【禁聞】湖北洪災黃岡水庫壩體滑動長江漢口站水位超警武漢轮渡全线停航貴州大巴衝入水庫釀21人死.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3d9fac59651981a370badc8865df965b55a2763.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d3d9fac59651981a370badc8865df965b55a2763
-
 下载BT种子 [【禁聞】中共紅媒再受打擊英國擬制裁央視海外分支CGTN.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7ff80087da6436b7a13b648aa79d159345a2f6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d7ff80087da6436b7a13b648aa79d159345a2f6b
 
-下载BT种子 [【禁聞】經濟提振不佳李克強：看到很多閒置廠房.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fab42a063605f1e022d308f22878f802b58abce7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fab42a063605f1e022d308f22878f802b58abce7
-
 下载BT种子 [【禁聞】長江白鱘宣告滅絕元兇究竟是誰？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dff10c21897fd4612562dc3b4c4b5a6272862be9.torrent)
 
 磁力链接 magnet:?xt=urn:btih:dff10c21897fd4612562dc3b4c4b5a6272862be9
-
-下载BT种子 [【禁聞】「709」大抓捕事件五週年維權律師王全璋專訪要讓製造冤假錯案的機器停止轉動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45df2b7ab15791b393ff439e9dc628097e03367a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:45df2b7ab15791b393ff439e9dc628097e03367a
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
