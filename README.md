@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/H7NGL1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wVncxr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [香港人無畏打壓，6小時近14萬投票；美國突警告中共濫捕，意味什麼？鄱陽湖將有大洪水？3000噸茶葉被水泡，茶廠老闆哭慘！太詭異！北京通報上月疫情；普京三通電話？中印關係緊張！【新聞看點07.11】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a53cae5dd7c070e5ba0b6a2284e9141d394da88.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3a53cae5dd7c070e5ba0b6a2284e9141d394da88
 
 下载BT种子 [【禁聞】南方洪災持續27省3020萬人受災鄱陽多處潰堤樓房被洪水圍困居民在危樓中大聲呼救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c16114abe0486421b57f3b35129ccbc00487994.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁聞】「709」大抓捕事件五週年維權律師王全璋專訪要讓製造冤假錯案的機器停止轉動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45df2b7ab15791b393ff439e9dc628097e03367a.torrent)
 
 磁力链接 magnet:?xt=urn:btih:45df2b7ab15791b393ff439e9dc628097e03367a
-
-下载BT种子 [法國迪奧推出2020秋冬服裝微型奇幻系列展.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc1da14d13a751c4f17c76cde9c90cff02a77ceb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc1da14d13a751c4f17c76cde9c90cff02a77ceb
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
