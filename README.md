@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/T5HYyZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/l8QP6a)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】美制裁4名新疆高官凍結資產禁止入境.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f81f04938aaa7a923095d3166d84d04e75d16b5e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f81f04938aaa7a923095d3166d84d04e75d16b5e
+
+下载BT种子 [【禁聞】延安整風重來？中共政法系統「教育整頓」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2b34c284dc557f702e00f414ed82961d02784052.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2b34c284dc557f702e00f414ed82961d02784052
 
 下载BT种子 [【中國禁聞】7月10日完整版(字幕)🔥南方洪災27省3020萬人受災延安整風重來？中共政法系統「教育整頓」美制裁4名新疆高官凍結資產禁止入境中共侵害美國FBI每10小時啟動一調查。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/500b0e4304c6a82d2ec59de56eb9ea5400cc1423.torrent)
 
@@ -592,14 +600,6 @@
 下载BT种子 [對等制裁美國對中共官員實施簽證限制.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5204a5be46d51803d13b2bdf7f7107971200d515.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5204a5be46d51803d13b2bdf7f7107971200d515
-
-下载BT种子 [【全球新聞】FBI局長公開揭露中共曝光秘密侵蝕手法巴西總統確診染疫歐洲經濟衰退超預期（7月7日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf2da38670aeb762b67f0d4ebf6832341a55e439.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cf2da38670aeb762b67f0d4ebf6832341a55e439
-
-下载BT种子 [FBI局長公開揭露中共曝光秘密侵蝕手法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6643cce515caf6acc01ac6f6cb310d66c46b689c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6643cce515caf6acc01ac6f6cb310d66c46b689c
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
