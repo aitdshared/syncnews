@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LozZtX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hwrjym)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [（中文字幕版）病毒學家閆麗夢博士歷經死亡威脅出逃美國爆中共病毒驚天內幕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9955206d7e55d3a4d60072177da24b501603cf0d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9955206d7e55d3a4d60072177da24b501603cf0d
 
 下载BT种子 [【環球直擊】港民主派初選六小時14萬人投票！盼拚立法會過半富國銀行禁止員工用Tiktok亞馬遜變卦？（7月11日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b994ba287d154cce447283432fd4bf2df02a67c5.torrent)
 
@@ -596,10 +600,6 @@
 下载BT种子 [【禁聞】中共紅媒再受打擊英國擬制裁央視海外分支CGTN.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7ff80087da6436b7a13b648aa79d159345a2f6b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:d7ff80087da6436b7a13b648aa79d159345a2f6b
-
-下载BT种子 [【禁聞】長江白鱘宣告滅絕元兇究竟是誰？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dff10c21897fd4612562dc3b4c4b5a6272862be9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dff10c21897fd4612562dc3b4c4b5a6272862be9
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
