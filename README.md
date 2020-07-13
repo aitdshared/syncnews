@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hVffdt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8U9Ejc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -592,10 +592,6 @@
 下载BT种子 [诺查丹玛斯预言声明：“天灭中共”第一章：红龙正在被烧着.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1f7d2be2073bab0ec30ed2c9ae391bcd77974498.torrent)
 
 磁力链接 magnet:?xt=urn:btih:1f7d2be2073bab0ec30ed2c9ae391bcd77974498
-
-下载BT种子 [【唐靖遠快評】許章潤被嫖娼原因絕不簡單！港版國安法是“反革命罪”的現代版本；習近平“六大準備”指向下一步戰略走向熱點互動07072020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3df743661238942fa363a6bd81360661bf5b6648.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3df743661238942fa363a6bd81360661bf5b6648
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
