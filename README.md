@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1YDoQ5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PaOJlh)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [存放了大量的垃圾，中国粮库现状惊人，国储粮到底有多少成谜，最后这道防线靠得住吗？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6943e49accff7b90501bc43dff976fd872397d20.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6943e49accff7b90501bc43dff976fd872397d20
 
 下载BT种子 [【禁聞】長江流域洪水氾濫鄱陽湖水位超歷史記錄當局擬啓動「蓄洪區」引洪水淹沒湖區周邊14個鄉鎮.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96b8c064ba8c994109014b45b131c8f9f7c2d1f3.torrent)
 
@@ -580,10 +584,6 @@
 下载BT种子 [港國安署徵用中資酒店啟動戒備外籍居民擔心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8292a319d594c760638153fcdff8bf1c78278d2e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:8292a319d594c760638153fcdff8bf1c78278d2e
-
-下载BT种子 [肉身翻牆了解真相大陸民眾公開退出中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7e4d8692f3f6d43c5fbe62dabc164f6a8241cedb.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7e4d8692f3f6d43c5fbe62dabc164f6a8241cedb
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
