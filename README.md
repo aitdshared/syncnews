@@ -21,17 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qKTSsO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SmFaxY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [【一週經濟回顧】美中南海亮剑针尖对麦芒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a118c1e0b99bfada204efdfb355c54624ebc067.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0a118c1e0b99bfada204efdfb355c54624ebc067
 
 下载BT种子 [美国务院史无前例警告,一连串制裁中共大招即将登场;大洪水后,警惕瘟疫与粮荒(政论天下第197集20200712)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d7d9e5a887e3f06137c8933e6f3d082362ee110.torrent)
 
