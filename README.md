@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/72KOGW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PllumG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「7.12唐山連續33次餘震三峽大壩上游阿壩10天3次地震」皆為極淺層集中兩大地震帶：A太行山與京津唐地區B西南青藏與雲貴川交界（1207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37649411303c4cb36226290829652d2b2f5c1f40.torrent)
+
+磁力链接 magnet:?xt=urn:btih:37649411303c4cb36226290829652d2b2f5c1f40
 
 下载BT种子 [《石濤聚焦》「美國務院警告：中共國可能任意拘留美國公民延長審訊與羈押」很可能川普將簽署【香港自治法案】同時祭出超級懲罰條款—逐步承認台灣主權？（1207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/672eed264c5b31805dcf8587b568b8c7e35c35b2.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [一年倒數美國正式啟動「WHO退會程序」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a826efa01f8535218ef598d9dd2b0e5dbbac2cf.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4a826efa01f8535218ef598d9dd2b0e5dbbac2cf
-
-下载BT种子 [港國安署徵用中資酒店啟動戒備外籍居民擔心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8292a319d594c760638153fcdff8bf1c78278d2e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8292a319d594c760638153fcdff8bf1c78278d2e
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
