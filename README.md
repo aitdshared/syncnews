@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tgfRvh)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/S9iXWy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發英國首相強森宣布：全面禁用華為5G設備今年底生效」2027年所有電信商必須剔除所有華為設備原因：華為設備安全性無保障美國制裁摧毀產品鏈「倫敦-海外華為起家之地」（1407）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/600da593d1ec5c1f50440ce59b7ecc2870e963f9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:600da593d1ec5c1f50440ce59b7ecc2870e963f9
 
 下载BT种子 [《石濤.News》「郝海東閆麗夢決絕之舉劃時代」班農驚爆多名武漢實驗室科學家叛逃與FBI英國軍情五處六處正在提交中共罪證暗示法國對武漢P4實驗室監視系統「建議川普制裁習近平個人」（1207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a780631ba8b7520506e45f31fe56a35268dd7b21.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7616b1b50443f623f5b65d971d94c4a764a5a64b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7616b1b50443f623f5b65d971d94c4a764a5a64b
-
-下载BT种子 [《石濤聚焦》「川普沉默至今港版国安法-五大对决美元利息过低成命门儿」银行家：对香港贸易报复港币联系汇率逼中共國公司離開美股港交所二次上市-信譽掃地無余美元利息（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dcaeec2814bce04f360410eb21e822e0719ecb57.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dcaeec2814bce04f360410eb21e822e0719ecb57
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
