@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lbUGSb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o0QyQM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美國會要求譚德塞到國會作證」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a833e710931ed1d7969938be0eea0a5ea87a022.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4a833e710931ed1d7969938be0eea0a5ea87a022
+
+下载BT种子 [【中國禁聞】7月12日完整版(字幕)🔥三峽大壩洩洪長江流域洪水氾濫鄱陽湖水位破1998年洪災紀錄中國病毒學家揭世衛與中共聯手掩蓋疫情糧荒危機重重又現糧庫失火。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/686f66e555d7f907b9d22b5b577d7e4b2f968945.torrent)
+
+磁力链接 magnet:?xt=urn:btih:686f66e555d7f907b9d22b5b577d7e4b2f968945
+
+下载BT种子 [中國27省近3800萬人受洪災江西遇百年最大洪水貴州多地被淹.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbd5e4afd3fc8631d3c7afac9df3c4ba640d38ff.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bbd5e4afd3fc8631d3c7afac9df3c4ba640d38ff
+
+下载BT种子 [中國大陸外確診感染約1293萬人印度明星三代感染川普梅拉尼亞戴口罩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7cd7d4b53a7dc95574a29dbe43e25c51dde339e1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7cd7d4b53a7dc95574a29dbe43e25c51dde339e1
+
+下载BT种子 [香港疫情大爆發13日增52確診41是本土.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/546dd309481b3cf1241f752e91a207682b173502.torrent)
+
+磁力链接 magnet:?xt=urn:btih:546dd309481b3cf1241f752e91a207682b173502
 
 下载BT种子 [美軍兩棲攻擊艦驚傳失火21人送醫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d969c3fa316fee42eacbf07293ec519f84ab7bb.torrent)
 
