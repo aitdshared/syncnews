@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Cdrg1g)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/o27zTS)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美国突发重大宣示！南海即将开战？天时地利人和。谁又招来八国联军？共军自陷口袋阵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fce431f73413c6c0d8e12e43a4da8b1445db10c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6fce431f73413c6c0d8e12e43a4da8b1445db10c
 
 下载BT种子 [《石濤聚焦》「突發英國首相強森宣布：全面禁用華為5G設備今年底生效」2027年所有電信商必須剔除所有華為設備原因：華為設備安全性無保障美國制裁摧毀產品鏈「倫敦-海外華為起家之地」（1407）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/600da593d1ec5c1f50440ce59b7ecc2870e963f9.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風「公務員宣示效忠港警港府皆為習近平家奴」（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0330d26df8081934f1a8c77422eb62153b6af8d8.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0330d26df8081934f1a8c77422eb62153b6af8d8
-
-下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7616b1b50443f623f5b65d971d94c4a764a5a64b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7616b1b50443f623f5b65d971d94c4a764a5a64b
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
