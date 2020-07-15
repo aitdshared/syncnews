@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jU1UkG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XsthZm)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】江西遇百年最大洪水貴州多地被淹香港疫情大爆發（7月13日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f03261437e11153631875fbf14fa0dcf4716cd81.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f03261437e11153631875fbf14fa0dcf4716cd81
 
 下载BT种子 [【重播713】川普總統與因執法而受益者的圓桌會議（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f46c4ca1b346d2c87ef4306abf2e08ed315d4822.torrent)
 
