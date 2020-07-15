@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XsthZm)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/up2FHK)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美軍兩棲攻擊艦驚傳失火21人送醫.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d969c3fa316fee42eacbf07293ec519f84ab7bb.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9d969c3fa316fee42eacbf07293ec519f84ab7bb
+
+下载BT种子 [香港六四集會的13位民主派人士遭政治檢控出庭李卓人：禁不了人心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a6b84d27329a105ec9b9d7ab2ba5c710a890ca9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3a6b84d27329a105ec9b9d7ab2ba5c710a890ca9
 
 下载BT种子 [【環球直擊】江西遇百年最大洪水貴州多地被淹香港疫情大爆發（7月13日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f03261437e11153631875fbf14fa0dcf4716cd81.torrent)
 
