@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NoVRCO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F7GlOe)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「江西九江南昌決堤紀實」三峽大壩水情監控停擺6小時長江中下游、南京危險了（1307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c10657820db4ef782cee88830d2138a91950aea5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c10657820db4ef782cee88830d2138a91950aea5
+
+下载BT种子 [《石濤聚焦》「港媒習近平八字五行：燃燒虛火本命四柱火旺逾度」天水絕滅之舉——中國半壁江山大水淹「美國-五月花號香港台灣武漢皆為水」五行相剋超之可破「天滅中共——滅絕紅龍」（1307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/689ec0d13f75d857c9b672643cd6856ac5b2a5c4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:689ec0d13f75d857c9b672643cd6856ac5b2a5c4
+
+下载BT种子 [報復制裁美國、閻麗夢爆料的真正鋒芒，或使習近平惡夢成真；三峽庫區地震有多凶險？（文昭談古論今20200713第785期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9957a320df81157b1e5f4e3f4331947c982536f4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9957a320df81157b1e5f4e3f4331947c982536f4
 
 下载BT种子 [中共報復制裁美官員沒有給出具體制裁措施專家：師出無名也沒途徑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/da4c4182e3337e0d810cd715d4bfa3421a69b968.torrent)
 
@@ -572,46 +584,6 @@
 下载BT种子 [《石濤聚焦》「郝海東最新狀況：銀行卡被凍結兒子被限制出境」葉釗穎曾寫下遺書中共已找過葉釗穎家親更找過郝海東前妻「郝海東葉釗穎反共之舉打擊習近平-中共之深痛超乎尋常」（0707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b02865cac53416e6774c2276560371530f56570b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b02865cac53416e6774c2276560371530f56570b
-
-下载BT种子 [免費多功能太陽能站單車手機充電加消毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/58ce0845eb3f4f10a47a91971155e62882d2c366.torrent)
-
-磁力链接 magnet:?xt=urn:btih:58ce0845eb3f4f10a47a91971155e62882d2c366
-
-下载BT种子 [白宮警告勿投資中企更多對華制裁在路上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f502bf0501384d1065bbf12744b40cf148abb508.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f502bf0501384d1065bbf12744b40cf148abb508
-
-下载BT种子 [暴雨6度狂襲湖北1081座水庫超警戒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8aca84d5816ae03583b0c4aad8bd61d0ea3dd8e9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8aca84d5816ae03583b0c4aad8bd61d0ea3dd8e9
-
-下载BT种子 [紐約計劃重開學校英國再拿300億救經濟.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a390f8e8b9f5c5db3424baae7bdef617508c6f29.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a390f8e8b9f5c5db3424baae7bdef617508c6f29
-
-下载BT种子 [李克強再打臉一尊爆無解矛盾；習近平發信推「上山下鄉2.0」；駐英大使洩漏中共三怕（文昭談古論今20200708）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3797d675909673cb988d207940dfb8a0144b0768.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3797d675909673cb988d207940dfb8a0144b0768
-
-下载BT种子 [【重播78】川普總統與墨西哥總統聯合新聞發佈會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a548a9ea9812ff53e5f4deadf72de72621b6fe5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2a548a9ea9812ff53e5f4deadf72de72621b6fe5
-
-下载BT种子 [【重播78】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/45fe9973d9a97d6d0eb2590a1511e9a89a75c396.torrent)
-
-磁力链接 magnet:?xt=urn:btih:45fe9973d9a97d6d0eb2590a1511e9a89a75c396
-
-下载BT种子 [北京传有大人物躺倒？共谍密集，赵白眼暗示美方揭得不够。美国正式退出世卫，拜登这样表态.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9a6b864450e77d805923e0d540575a3e48a405e8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9a6b864450e77d805923e0d540575a3e48a405e8
-
-下载BT种子 [【重播78】川普總統與墨西哥總統簽署聯合聲明（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6bbe7646079a5bee5ef0b972e1a97ae078cf450.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a6bbe7646079a5bee5ef0b972e1a97ae078cf450
-
-下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風「公務員宣示效忠港警港府皆為習近平家奴」（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0330d26df8081934f1a8c77422eb62153b6af8d8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0330d26df8081934f1a8c77422eb62153b6af8d8
 
 下载BT种子 [北京、河北端午下冰雹大如雞蛋狀似中共病毒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/55b9f2a4067d8e001c34adfa0f4b094509b5e256.torrent)
 
