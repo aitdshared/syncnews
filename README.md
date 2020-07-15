@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/txzc7C)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hARftc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播713】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7692006901b55acfa0886046d3ef2e1e88c30403.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7692006901b55acfa0886046d3ef2e1e88c30403
+
+下载BT种子 [地震专家语出惊人！此事不利习近平？趁洪灾踩低李克强。土共突然对某国撒大钱。法国审判共谍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/15ff11d45fbe1af894e6b95b4b49e56a0e409af1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:15ff11d45fbe1af894e6b95b4b49e56a0e409af1
+
+下载BT种子 [八大調查指證中共活摘人體器官真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a9a285d8240c42ed41cfd29e562e35f97262b826.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a9a285d8240c42ed41cfd29e562e35f97262b826
+
+下载BT种子 [《石濤.News》「網易：三峽大壩已經盡力了！」長江防汛人員「撤離令」曝光並下令封口：不須討論發表任何洪水消息「三峽庫區同一地震帶淺層地震持續最新今晨新疆和田」（1307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51d0b775cafac00ea49924d33d71353a6ff637ef.torrent)
+
+磁力链接 magnet:?xt=urn:btih:51d0b775cafac00ea49924d33d71353a6ff637ef
+
+下载BT种子 [面對港版國安法威脅港人勇敢站出來民主派初選破60萬人.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8d343b50572483710e886c255abf22b6ff58678e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8d343b50572483710e886c255abf22b6ff58678e
+
+下载BT种子 [地震专家语出惊人！此事不利习近平？趁洪灾暗踩李克强。土共突然对某国撒大钱。法国审判共谍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c4a0ef6f12c8a80a6372ba8f1925d7c4c9e3492.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3c4a0ef6f12c8a80a6372ba8f1925d7c4c9e3492
+
+下载BT种子 [歐盟外長會面將討論反制「港版國安法」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5090e1f0186e36c4da6fb88d8796251492b93d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b5090e1f0186e36c4da6fb88d8796251492b93d7
 
 下载BT种子 [《石濤聚焦》「美國會要求譚德塞到國會作證」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a833e710931ed1d7969938be0eea0a5ea87a022.torrent)
 
