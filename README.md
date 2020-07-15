@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/t4zegl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/r8UlQq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [希臘解封海島潛水成最受歡迎旅游項目.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4fc5309bdde4b36f3014c5f307fa94d5decd3211.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4fc5309bdde4b36f3014c5f307fa94d5decd3211
+
+下载BT种子 [美國聖地亞哥軍艦起火爆炸燃燒了超過24小時.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3f2b7a4e9d90e8f54305e41cd9df716da073c540.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3f2b7a4e9d90e8f54305e41cd9df716da073c540
+
+下载BT种子 [美國洛杉磯民運人士中領館前抗議反對港版國安法.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/71c0e2020e5814ff61df17171892a444ab28bd09.torrent)
+
+磁力链接 magnet:?xt=urn:btih:71c0e2020e5814ff61df17171892a444ab28bd09
 
 下载BT种子 [美国突发重大宣示！南海即将开战？天时地利人和。谁又招来八国联军？共军自陷口袋阵.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fce431f73413c6c0d8e12e43a4da8b1445db10c.torrent)
 
@@ -576,14 +588,6 @@
 下载BT种子 [【重播78】川普總統與墨西哥總統簽署聯合聲明（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6bbe7646079a5bee5ef0b972e1a97ae078cf450.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a6bbe7646079a5bee5ef0b972e1a97ae078cf450
-
-下载BT种子 [【中國禁聞】7月7日完整版（字幕）🔥湖北洪災黃岡水庫壩體滑動武漢關水位超警李克強看到很多閒置廠房中共紅媒再受打擊英國擬制裁央視海外分支專訪王全璋讓製造冤假錯案的機器停止轉動。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/420804b51898c7c5dbb934c1b25b50b0e7d3854f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:420804b51898c7c5dbb934c1b25b50b0e7d3854f
-
-下载BT种子 [【環球直擊】中共國安機構進駐香港澳洲或終止澳港引渡條約中共深度滲透巴西（7月8日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b52dd4574f5bdf18682738b863f5e8020811c428.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b52dd4574f5bdf18682738b863f5e8020811c428
 
 下载BT种子 [《石濤聚焦》「7.7三七婆公布國安法細則實施香港爆14本土疫情」細則賦予港警7大威權哈爾濱出現極端天氣-冰雹似雪驟雨狂風「公務員宣示效忠港警港府皆為習近平家奴」（0807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0330d26df8081934f1a8c77422eb62153b6af8d8.torrent)
 
