@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/buFPx9)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eFwBHP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [歐盟外長會面將討論反制「港版國安法」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5090e1f0186e36c4da6fb88d8796251492b93d7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b5090e1f0186e36c4da6fb88d8796251492b93d7
 
 下载BT种子 [《石濤聚焦》「美國會要求譚德塞到國會作證」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a833e710931ed1d7969938be0eea0a5ea87a022.torrent)
 
