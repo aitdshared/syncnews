@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bO9QTt)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JRwTyH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [會員影片-《大疫襲來》預告片02：美東時間周六晚播給新拍會員，中文字幕版先睹為快！請留意播出時間通知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aa3c25def6dca8547cf7c56aad45f612672e472.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9aa3c25def6dca8547cf7c56aad45f612672e472
 
 下载BT种子 [《石濤聚焦》「港人偉大60萬投票向國安法說不」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/076a79c98a493c9396ef426e979f955e8c139ecb.torrent)
 
