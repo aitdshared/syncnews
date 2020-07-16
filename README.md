@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YufMLz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kcg397)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大陆律师：中共当局惧怕维权律师因为他们揭露了真相，让世界更加了解中共的罪恶真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/98bb1d5f42c1978a3fbb9f7e818c32b37646ca9b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:98bb1d5f42c1978a3fbb9f7e818c32b37646ca9b
 
 下载BT种子 [三峡泄洪一天等于往下游倾注了3023个西湖的水！这还不计下雨的量而它们把这叫天灾!真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf7da01c6c3525b2ef3d474efd38ffbaa703b98d.torrent)
 
