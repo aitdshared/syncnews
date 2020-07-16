@@ -21,25 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mkZ484)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wgAk0n)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [微信箝制言論延至海外華人集體訴訟騰訊.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/23e9dce0cbeb913842255a06f4ccb11fa201bca5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:23e9dce0cbeb913842255a06f4ccb11fa201bca5
-
-下载BT种子 [【專題系列片預告】魔鬼在統治著我們的世界.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e8fdcd755316d5a6e62f9fc1e51484494005cda4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e8fdcd755316d5a6e62f9fc1e51484494005cda4
-
-下载BT种子 [（預告片）世紀之掩蓋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0dd6d4a6dd0981953c783305d7528c5b4625bc45.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0dd6d4a6dd0981953c783305d7528c5b4625bc45
 
 下载BT种子 [會員影片-《大疫襲來》預告片02：美東時間周六晚播給新拍會員，中文字幕版先睹為快！請留意播出時間通知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9aa3c25def6dca8547cf7c56aad45f612672e472.torrent)
 
