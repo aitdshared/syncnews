@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QPzhld)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/e1TkMa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三峡泄洪一天等于往下游倾注了3023个西湖的水！这还不计下雨的量而它们把这叫天灾!真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bf7da01c6c3525b2ef3d474efd38ffbaa703b98d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bf7da01c6c3525b2ef3d474efd38ffbaa703b98d
+
+下载BT种子 [【禁聞】中國病毒學家揭世衛與中共聯手掩蓋疫情真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/36b728e73c6d731566849b9ef92305a74d5e456c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:36b728e73c6d731566849b9ef92305a74d5e456c
+
+下载BT种子 [异象：一周内发生14起地震中国将有巨变？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/034667c90f96360b1f4d8b97014f71c8a903bc40.torrent)
+
+磁力链接 magnet:?xt=urn:btih:034667c90f96360b1f4d8b97014f71c8a903bc40
+
+下载BT种子 [唐山5.1級地震北京有感再發生33次餘震真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/badca921d635f49d8a225a221a98ba1c467bec32.torrent)
+
+磁力链接 magnet:?xt=urn:btih:badca921d635f49d8a225a221a98ba1c467bec32
+
+下载BT种子 [【一周年QA（下）】國際趨勢預測；唐浩如何寫詩？美中會否斷交？台灣政客誰染紅？中國手機=監聽器？金正恩生死真相（2020.7.13）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18ea23163c1e8fb0ce3aab7fc06e03149eba793d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:18ea23163c1e8fb0ce3aab7fc06e03149eba793d
 
 下载BT种子 [大規模採集普通人DNA樣本，中共意欲何爲？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22a51e6da2dbcad1117a11fbec50b21ccf1f9f49.torrent)
 
