@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RWRaWy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zRMHTG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [大規模採集普通人DNA樣本，中共意欲何爲？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/22a51e6da2dbcad1117a11fbec50b21ccf1f9f49.torrent)
+
+磁力链接 magnet:?xt=urn:btih:22a51e6da2dbcad1117a11fbec50b21ccf1f9f49
 
 下载BT种子 [福建工廠駭人爆炸黑煙遮天當局聲稱2人失踪真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7568cb914bd5c69a58c870b4f9270f1c8e74948.torrent)
 
