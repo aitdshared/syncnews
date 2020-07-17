@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SuVjoy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xQw7al)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國或禁公務員用抖音業內人士披露風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f93dee789513b659de36e042cfe0d55c9abe825.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f93dee789513b659de36e042cfe0d55c9abe825
+
+下载BT种子 [保城市淹農村鄱陽湖「主動決堤」曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f77dba3844d73205b2d0276b38e78632ab4882ac.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f77dba3844d73205b2d0276b38e78632ab4882ac
 
 下载BT种子 [更多國家强制帶口罩香港迪士尼再次關門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a558476f5787b39ff851424b929201d74111f41c.torrent)
 
@@ -820,12 +828,4 @@
 下载BT种子 [513紐約大法弟子恭祝師尊生日快樂(2020年）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb9d3fe5d88392468c0954372077043aac70fbe5.torrent)
 
 磁力链接 magnet:?xt=urn:btih:cb9d3fe5d88392468c0954372077043aac70fbe5
-
-下载BT种子 [【环球直击】5月13日完整版（1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1d9c417c59e30156e958396419b863e49d4024b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e1d9c417c59e30156e958396419b863e49d4024b
-
-下载BT种子 [中國大陸以外感染突破380萬法國確認解封方案俄羅斯再有高官感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d0b047c15b9a6d7d722079ac4bdb9e4f43816fc6
 
