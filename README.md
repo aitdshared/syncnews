@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KsZDBW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HrIUdp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -268,10 +268,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第九十三回金吒智取遊魂關」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ef2f6c3299b51b6d1bbb35a3e83f83144f5ef502.torrent)
 
 磁力链接 magnet:?xt=urn:btih:ef2f6c3299b51b6d1bbb35a3e83f83144f5ef502
-
-下载BT种子 [大清洗有风险？习王躲起。美国每天出招整治土共！王毅忽然下软蛋。印度不放手，北京怕怕.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8bc66e3a8edc218126ea51815d6bd96872fd3b7d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8bc66e3a8edc218126ea51815d6bd96872fd3b7d
 
 下载BT种子 [泛民週末初選黃之鋒：投票率展港人決心.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10ce93d2bdcbfa55a4f11d019a91a2d37634c410.torrent)
 
