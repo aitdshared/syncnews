@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qdcc5x)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/9iOKzc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】北戴河會前北京衛戍區司令員換人王春寧卸職後去向不明.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/465bf20b067a1bf93ffce17db33ca0019bfb945e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:465bf20b067a1bf93ffce17db33ca0019bfb945e
 
 下载BT种子 [【中國禁聞】7月17日完整版🔥三峽大壩再傳警訊長江第2號洪水形成擬禁中共黨員赴美網民讚川普「反貪局局長」各國加緊反擊中共大國反共同盟雛形已現中伊秘密協議曝光引發美中關係新爆點。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9d3b06b0d8ae83ea9a25e5f8a8b056f111e734b4.torrent)
 
