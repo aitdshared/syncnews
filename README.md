@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FDUFKw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4ejZ6g)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美國南海政策突然轉向，局部戰爭可能性迅速上升，台海軍政重點南移，中共軍力部署大亂，東亞東盟齊聲反共，英國航母在路上（江峰漫談20200717第205期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a474f50a021919562a8fd123c9a592cdff02691.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8a474f50a021919562a8fd123c9a592cdff02691
 
 下载BT种子 [《濤哥侃封神》「封神演義第九十九回姜子牙歸國封神」群靈匯聚封神臺仙神人鬼皆因由根性劫運天地命萬事皆因一字私無奈無奈真無奈因果因果全因果「群仙此日皆登果列圣明朝盡返貞」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35154371f872b9588856643321174d2d6486f0fa.torrent)
 
