@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Jq8vi7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/A9uhFt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「華為在非洲納米比亞行賄被議員與半島電視台設套兒全程爆光」協助華為5G落地獲36萬美元外加210萬分紅「美絕滅式制裁華為囤積270億美元的台積電晶片」（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a7d0979690231684ef26533fa29a809e3d0e9f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a7d0979690231684ef26533fa29a809e3d0e9f2
 
 下载BT种子 [《石濤.News》「三峽大壩歷史性洪峰逼出習近平-劫運難逃」黃萬里之子斷言兌現：三峽庫區水位超160米入水量超每秒6.1萬立米湖北恩施全城被淹（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d67e919c99ac345ad38eee3c715ec9f28a990365.torrent)
 
