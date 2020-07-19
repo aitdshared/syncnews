@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yi9XuO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SGYPlJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [“40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战中国第二季度GDP到底增长多少(政论天下第200集20200718)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/db528969498f30422c1d6b8a2a17708b7ca8d08b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:db528969498f30422c1d6b8a2a17708b7ca8d08b
 
 下载BT种子 [《石濤聚焦》「中共首席美國專家時殷弘：川普瘋了顛覆共產黨」華春瑩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3841b3a8ebfdc5a9dcf9069322176f9ccb883117.torrent)
 
