@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/04glfk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Trl9q5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [🚨突爆疫情！烏魯木齊封城，搶購景象駭人；驚中央！中科院百人出走；四省暴雨紅警，山西也淹了；三萬敏感詞保習禁評；美禁共入境，官媒喊驚，“退黨”成熱搜！美再南海操練；50萬訂閱感言新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06d3f51fe98f91bc8aa2c1622b182a61b8cb5449.torrent)
+
+磁力链接 magnet:?xt=urn:btih:06d3f51fe98f91bc8aa2c1622b182a61b8cb5449
 
 下载BT种子 [驚人！伊朗2500萬染疫💥全球100小時新增100萬確診❗️新疆烏魯木齊進入「戰時狀態」；戰狼後浪來了！近七成患者家中感染？高官為何不染病？大洪水北京又甩鍋？【新聞看點07.18】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c1db6861911ce309495b3a2629a244ac565e9d3.torrent)
 
