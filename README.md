@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ee1YhX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yi9XuO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「中共首席美國專家時殷弘：川普瘋了顛覆共產黨」華春瑩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3841b3a8ebfdc5a9dcf9069322176f9ccb883117.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3841b3a8ebfdc5a9dcf9069322176f9ccb883117
 
 下载BT种子 [《石濤.News》「對中共黨員旅行禁令胡錫進狂吼比斷交還狠！」中共黨員數量9191.4萬應對天滅中共之劫運彭培奧默認決定權在總統“退黨”熱搜暴增「分辨極易」（1707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e232840898dc4e8265cb4f185a7675c5baa9ce23.torrent)
 
