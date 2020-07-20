@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Trl9q5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jkyy9d)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美軍機5天3飛中國外海；習近平突喊保黨保權？美司法部發警告：好萊塢和迪士尼向中共磕頭！地攤經濟夭折，小店經濟登場；華春瑩混淆視聽，中共偷換概念；烏魯木齊封城，下個武漢？【新聞看點李沐陽07.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/301c3e927846d639b1635c0e2a6b42c574431a52.torrent)
+
+磁力链接 magnet:?xt=urn:btih:301c3e927846d639b1635c0e2a6b42c574431a52
 
 下载BT种子 [🚨突爆疫情！烏魯木齊封城，搶購景象駭人；驚中央！中科院百人出走；四省暴雨紅警，山西也淹了；三萬敏感詞保習禁評；美禁共入境，官媒喊驚，“退黨”成熱搜！美再南海操練；50萬訂閱感言新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/06d3f51fe98f91bc8aa2c1622b182a61b8cb5449.torrent)
 
@@ -272,10 +276,6 @@
 下载BT种子 [《石濤.News》「網易：三峽大壩已經盡力了！」長江防汛人員「撤離令」曝光並下令封口：不須討論發表任何洪水消息「三峽庫區同一地震帶淺層地震持續最新今晨新疆和田」（1307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/51d0b775cafac00ea49924d33d71353a6ff637ef.torrent)
 
 磁力链接 magnet:?xt=urn:btih:51d0b775cafac00ea49924d33d71353a6ff637ef
-
-下载BT种子 [地震专家语出惊人！此事不利习近平？趁洪灾暗踩李克强。土共突然对某国撒大钱。法国审判共谍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c4a0ef6f12c8a80a6372ba8f1925d7c4c9e3492.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3c4a0ef6f12c8a80a6372ba8f1925d7c4c9e3492
 
 下载BT种子 [【中國禁聞】7月12日完整版(字幕)🔥三峽大壩洩洪長江流域洪水氾濫鄱陽湖水位破1998年洪災紀錄中國病毒學家揭世衛與中共聯手掩蓋疫情糧荒危機重重又現糧庫失火。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/686f66e555d7f907b9d22b5b577d7e4b2f968945.torrent)
 
