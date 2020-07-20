@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sxhrBn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/DsT8Iu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [外交部大實話：中共南海基地做好被強拆準備，被制裁的美國人來不了中國損失巨大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140
 
 下载BT种子 [【環球直擊】「對華政策跨國議會聯盟」聲明支持法輪功反迫害讓中共大外宣滲透課堂揭秘DC市長與中共關係(7月19日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10708304928f906b157e5a8141d3919d8cae3d6e.torrent)
 
