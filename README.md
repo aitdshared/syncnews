@@ -21,13 +21,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/YQyWig)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/62Egzr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中國遭數十年最嚴重洪災官方消極應對中共遇到比洪災更難應對的危機？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/536759a936136637668ce64a5901a70a85a7ebde.torrent)
+
+磁力链接 magnet:?xt=urn:btih:536759a936136637668ce64a5901a70a85a7ebde
+
+下载BT种子 [【禁聞】川信TOT違約信託爆雷風暴已到？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0925620b507c911f56a228bd655f74579c1289c9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0925620b507c911f56a228bd655f74579c1289c9
+
+下载BT种子 [【禁聞】新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bedee11640388cdb796b6321df10a819e039d8e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3bedee11640388cdb796b6321df10a819e039d8e
+
+下载BT种子 [【禁聞】法輪功反迫害21週年逾365萬人吁法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/130c781215a3183f0b4baa4cbc70ca5cddc80a34.torrent)
+
+磁力链接 magnet:?xt=urn:btih:130c781215a3183f0b4baa4cbc70ca5cddc80a34
 
 下载BT种子 [【環球直擊】全球疫情4天增百萬湖北恩施城區嚴重內澇香港重創人民幣國際化進程（7月18日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e664a31307cfac72254a0e0150f1fd6ec6ed1066.torrent)
 
