@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SStMNy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xMEDGw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「民調落後拜登15%川普FOX專訪憤怒失態」班農：川普應當切割中共國-禁用美元制裁習近平紐時：抗疫失敗華爾街：美企復甦無望「天意逼川普-絕滅式打擊中共抵銷一切不利大選必勝」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/057571b83f866651218a31309020583ba6b9e104.torrent)
+
+磁力链接 magnet:?xt=urn:btih:057571b83f866651218a31309020583ba6b9e104
 
 下载BT种子 [《石濤聚焦》「中共國專家再狂言：三峽大壩可擋原子彈大壩泡水100年更結實」中央氣象局：東北黃淮長江上中下游全部進入大水期21日第三次洪峰到來「五行中水為宇宙中萬物之本故為天滅中共」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d69bf3a1f499ea499abbac31b74986d0d22d1be.torrent)
 
