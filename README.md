@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GKdERg)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/h31W3C)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [前國腳郝海東滅共宣言揭秘心路歷程真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3086fbcbfd78f8d86c9bc7b951f6adf83186b5bd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3086fbcbfd78f8d86c9bc7b951f6adf83186b5bd
+
+下载BT种子 [山区小学生四年都没有吃午饭真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/391b8bd22738a5d76141b20b83d7042ec6cfb742.torrent)
+
+磁力链接 magnet:?xt=urn:btih:391b8bd22738a5d76141b20b83d7042ec6cfb742
 
 下载BT种子 [貧寒學子高考被頂替教育系統也爛透了？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09a3754bbabf759b2ecde307eecb83ef377b4a4d.torrent)
 
