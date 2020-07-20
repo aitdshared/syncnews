@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hbnOJK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jXlUIa)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [外交部急换战羊汪文斌！美防长：瞄准中共！胡锡进：非要堵死我们？美移民局咋考核退党？（老北京茶馆第346集20200719）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/68087e4991fae9a669c44aa4a11908b95b80a14d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:68087e4991fae9a669c44aa4a11908b95b80a14d
 
 下载BT种子 [肖建華明天係金融王國被全面接管，“嚴正聲明”後面的深厚背景，預示北戴河會議中共元老將集體向習近平發難（江峰漫谈20200719第206期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fad21c69280001c71df58e1190fac5db852f9c6.torrent)
 
