@@ -21,13 +21,45 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FtNq7O)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uwlmgx)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [紀念720反迫害21年全球法輪功講真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7041fbc5394425c0682ef378ed0e34bad2077912.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7041fbc5394425c0682ef378ed0e34bad2077912
+
+下载BT种子 [30國逾600政要聯署停止迫害法輪功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/668125a87ad32f9aae831caa2319c350475d5b49.torrent)
+
+磁力链接 magnet:?xt=urn:btih:668125a87ad32f9aae831caa2319c350475d5b49
+
+下载BT种子 [法輪功反迫害21年美國會議員聲援.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a340cd46cd6d945293fc613262ffbe74dbd4385.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1a340cd46cd6d945293fc613262ffbe74dbd4385
+
+下载BT种子 [美擬制裁中共黨員港學者：黨員身分已貶值.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca68fe0264e1b15c347a8ac3c206ca0f70500bb2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca68fe0264e1b15c347a8ac3c206ca0f70500bb2
+
+下载BT种子 [英國將暫停與香港的引渡條約蓬佩奧訪倫敦將討論中國和香港問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc930c5bcbfdeb37836873569dcd1a77c3eea858.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc930c5bcbfdeb37836873569dcd1a77c3eea858
+
+下载BT种子 [長江第2號洪水導致安徽災情慘重巢湖創歷史最高水位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6569674cc1241ef262bafa83903e69d5e14d6e4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c6569674cc1241ef262bafa83903e69d5e14d6e4
+
+下载BT种子 [全球逾60萬喪生港爆演藝圈群聚感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92d7a5fc16a279414b41ea80dd35793a7f820754.torrent)
+
+磁力链接 magnet:?xt=urn:btih:92d7a5fc16a279414b41ea80dd35793a7f820754
+
+下载BT种子 [黃之鋒正式登記參選不畏打壓抗爭到最後.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/090285c7baf7097810d94117ae1f83fcc209c104.torrent)
+
+磁力链接 magnet:?xt=urn:btih:090285c7baf7097810d94117ae1f83fcc209c104
 
 下载BT种子 [《石濤.News》「民調落後拜登15%川普FOX專訪憤怒失態」班農：川普應當切割中共國-禁用美元制裁習近平紐時：抗疫失敗華爾街：美企復甦無望「天意逼川普-絕滅式打擊中共抵銷一切不利大選必勝」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/057571b83f866651218a31309020583ba6b9e104.torrent)
 
