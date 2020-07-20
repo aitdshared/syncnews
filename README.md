@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/njdgJQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/840uXJ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「英國外相：無限期中止與香港引渡條約金融家巴斯：習近平外交—十足的自卑自傲」禁止向香港出口傷人武器——香港等同上海看待（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6b14981af722f2b892b744db8abff31a0176937.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b6b14981af722f2b892b744db8abff31a0176937
 
 下载BT种子 [《石濤聚焦》「中共軍人狂吼：24小時拿下台灣」台灣：美方3艘航母群一定伺候中共軍人——舒舒服服的！「台灣防空導彈系統全球少有最先進的」（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8227b5debced1f37c1ea90a168a2e95f2517fd3a.torrent)
 
