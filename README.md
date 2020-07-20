@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MS4XC4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/do2mrV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美眾議員本週討論立法授權總統直接向中共國動武」在台灣遭到中共國攻擊時「防止台灣遭進犯法案」授予總統開戰權力胡錫進：今年聽過最大的笑話（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a57d98340a93e95d70de9f4a9df9fa0df19eec60.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a57d98340a93e95d70de9f4a9df9fa0df19eec60
 
 下载BT种子 [【中國禁聞】7月19日完整版（字幕）🔥三峽洩洪加劇下游災情安徽半夜炸壩洩洪法輪功反迫害21年720悼念燭光遍及各地中國遭遇數十年最嚴重洪災中共消極應對新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64af53b4ebd81fac13fd17571f16b7c5a97b797b.torrent)
 
