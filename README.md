@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Wzw6b6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sxhrBn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【環球直擊】「對華政策跨國議會聯盟」聲明支持法輪功反迫害讓中共大外宣滲透課堂揭秘DC市長與中共關係(7月19日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10708304928f906b157e5a8141d3919d8cae3d6e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:10708304928f906b157e5a8141d3919d8cae3d6e
+
+下载BT种子 [【时事小品】隔空嫖娼（660期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dbe1721daaa67269ef1ec8d3e3fa62da583586e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5dbe1721daaa67269ef1ec8d3e3fa62da583586e
 
 下载BT种子 [前國腳郝海東滅共宣言揭秘心路歷程真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3086fbcbfd78f8d86c9bc7b951f6adf83186b5bd.torrent)
 
