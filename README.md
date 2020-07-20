@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/66biZu)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AcLKQO)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [習近平「攬炒」沒收高層家族錢袋子；核研究所近百科學家集體辭職，有內幕更有嚴重問題（文昭談古論今20200720第788期） (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7de8e02763f16c275f1ef6db204eb80c696bef8a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7de8e02763f16c275f1ef6db204eb80c696bef8a
+
+下载BT种子 [習近平「攬炒」沒收高層家族錢袋子；核研究所近百科學家集體辭職，有內幕更有嚴重問題（文昭談古論今20200720第788期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a65b7012a5079f22cbfcc601c254229294c3fe1f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a65b7012a5079f22cbfcc601c254229294c3fe1f
 
 下载BT种子 [美国军机飞越北京上空？习近平神隐另有玄机！英国奋起。王毅玩起高级黑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169844adba3dee22b72e6cd449e17e7186884078.torrent)
 
@@ -452,10 +460,6 @@
 下载BT种子 [【環球直擊】疫情下空置房大增中國房東擺攤招租中儲糧直屬糧庫再爆「碩鼠」事件（7月13日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40579916d80ae8eaf91807204fb8cd7fe4b33107.torrent)
 
 磁力链接 magnet:?xt=urn:btih:40579916d80ae8eaf91807204fb8cd7fe4b33107
-
-下载BT种子 [【重播713】美國白宮發言人媒體簡報會（同聲翻譯）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7692006901b55acfa0886046d3ef2e1e88c30403.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7692006901b55acfa0886046d3ef2e1e88c30403
 
 下载BT种子 [【環球直擊】江西遇百年最大洪水貴州多地被淹香港疫情大爆發（7月13日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f03261437e11153631875fbf14fa0dcf4716cd81.torrent)
 
