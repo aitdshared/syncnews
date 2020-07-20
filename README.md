@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5kFwuO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HjHVXy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美防長：美軍挺身而出捍衛國際通航自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e1915fc1a6cddb1e948a4e52decc2604a6f9097.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0e1915fc1a6cddb1e948a4e52decc2604a6f9097
 
 下载BT种子 [蓬佩奧出席「家庭領袖峰會」：用行動反制中共威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0deba3380770ecde56ef9f65d95b47fd8c5573b3.torrent)
 
@@ -316,10 +320,6 @@
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:90204483cc09197b457dd77bd8270868f1759af0
-
-下载BT种子 [地震摇撼北京！冲着习近平而来？港人踊跃。德国收捕共谍。耿爽真的爽了 (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/96e44882c30a23dd26ed1dfa91b5e9a6acbfa90a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:96e44882c30a23dd26ed1dfa91b5e9a6acbfa90a
 
 下载BT种子 [【一周年QA（下）】國際趨勢預測；唐浩如何寫詩？美中會否斷交？台灣政客誰染紅？中國手機=監聽器？金正恩生死真相（2020.7.13）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/18ea23163c1e8fb0ce3aab7fc06e03149eba793d.torrent)
 
