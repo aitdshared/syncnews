@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lF8WBD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2dAJ3z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [港版國安法七大特權魔鬼藏於細節真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d7c0871ba950a0078b5e84813de97a8ce7453249.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d7c0871ba950a0078b5e84813de97a8ce7453249
 
 下载BT种子 [蕭茗採訪袁弓夷：川普行政令將做一件前所未有的事；中美會在南中國海開戰嗎？會在台海開戰嗎？香港接下來會如何？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7194a45ea65c27163ebcf740e70e4509d113bf58.torrent)
 
