@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Phc8Vp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SibZ1A)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「英外相：無限期中止與香港引渡條約禁止向香港出口傷人武器」金融家巴斯：習近平外交—十足的自卑自傲（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47c2d6a389af8921c49bd011cafaf70ea2076919.torrent)
+
+磁力链接 magnet:?xt=urn:btih:47c2d6a389af8921c49bd011cafaf70ea2076919
+
+下载BT种子 [（中文字幕）美國國際宗教委鮑爾：中共對這個世界的宗教信仰自由構成了最嚴重的威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/303f441bd3321eb9f8e1b8e7a0873c5428a04029.torrent)
+
+磁力链接 magnet:?xt=urn:btih:303f441bd3321eb9f8e1b8e7a0873c5428a04029
 
 下载BT种子 [魔鬼在統治著我們的世界-預告.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f0b7ac06d38b8cab7265349eefd1b3eb9d5c557.torrent)
 
