@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xdXw05)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xM9ye8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「突發：美國司法部起訴2名中共國人盜竊美國疫苗資訊」起訴書：習近平主席帶領他黑客日夜盜竊每一個國家所有資訊「白宮傾盡一切打擊習近平中共已為國策」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11f32a96de5dbd3d86f980313ed4a64c0d629b1a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:11f32a96de5dbd3d86f980313ed4a64c0d629b1a
 
 下载BT种子 [【中國禁聞】7月20日完整版（字幕）🔥720反迫害全球築真相長城和平抗暴喚良知華府「天滅中共」研討會感佩法輪功21年堅持洩洪未通知安徽固鎮萬人被洪水圍困。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5bc3d8c4bc1eabcfc62cf34824a0a0997675ee2.torrent)
 
