@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GYiCHA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/FDrzzU)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「習辦媒體放風：北戴河會議不開也不是不可能」中國外交部成立習近平外交思想研究中心「討好習總之表推責以備亡共之時逃生為實」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fcdeec3814847b211265c111362251d51cee664.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6fcdeec3814847b211265c111362251d51cee664
 
 下载BT种子 [《石濤聚焦》「突發：美國司法部起訴2名中共國人盜竊美國疫苗資訊」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a73ae65b4b69428cc79f4f16b494f563f7b8997.torrent)
 
@@ -568,10 +572,6 @@
 下载BT种子 [【禁聞】出走美國的中共女政協委員親爆民企血淚史.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c3fc3e0f618bdf23f6458bc60df011c9fa26db3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:6c3fc3e0f618bdf23f6458bc60df011c9fa26db3
-
-下载BT种子 [【禁聞】三峽大壩超級洩洪衛星圖像爆真相王維洛長江洪水是人爲造成不是天災.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c474169d7fd433206a5ada652f4dfcad4ccafac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7c474169d7fd433206a5ada652f4dfcad4ccafac
 
 下载BT种子 [《濤哥侃封神》「封神演義第九十八回周武王鹿臺散財」左觀炮烙右蠆盆驚望鹿臺遇肉林武王甚明商紂滅再三拒薦怒文煥子牙深明天意在祝臺登極八百年「紂王聚斂吸民脂不信當年放桀時」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a3aa841756f0e2bf33cc98e8eb0fead4bbb8e1f.torrent)
 
