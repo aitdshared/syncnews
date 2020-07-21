@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RwQKnD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4nTjar)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤.News》「華為禁令2個月後台積電市值突10兆行業老大」華為依靠聯發科-股價20台積電變相「與神同行」股價387「聯發科老闆：如能重來我們絕不會到大陸建廠」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f150c92e0bff4a11769867158b0bb67631bf8965.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f150c92e0bff4a11769867158b0bb67631bf8965
 
 下载BT种子 [《石濤.News》.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5eb948eaf02af3aaffbabbd581f9fd5e05403f8.torrent)
 
@@ -548,10 +552,6 @@
 下载BT种子 [新疆出現疫情香港確診人數再創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77da795a18483a86b14b5d19cee995eb229eaf07.torrent)
 
 磁力链接 magnet:?xt=urn:btih:77da795a18483a86b14b5d19cee995eb229eaf07
-
-下载BT种子 [【環球直擊】江西和安徽洪災嚴重中國田徑運動員揭中共黑幕美國或額外制裁中共高官（7月16日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/12dc10421164c6baeae91b096b495c68d985b93a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:12dc10421164c6baeae91b096b495c68d985b93a
 
 下载BT种子 [蓬佩奧捍衛天賦人權美國是自由燈塔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ee0c6afe6e6a596003cba3f021ff78a56fa66c.torrent)
 
