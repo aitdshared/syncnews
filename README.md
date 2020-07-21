@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WnYR5a)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/5iXWfr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [意外！此人将出任总理？习近平被迫让步。英美联手制共，刘大使耍宝！美国制裁更多中企，扯上苹果.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/61ddbf2fd14a4da3b5e86d74eef2426314b40f96.torrent)
+
+磁力链接 magnet:?xt=urn:btih:61ddbf2fd14a4da3b5e86d74eef2426314b40f96
 
 下载BT种子 [《石濤聚焦》「突發：美國司法部起訴2名中共國人盜竊美國疫苗資訊」起訴書：習近平主席帶領他黑客日夜盜竊每一個國家所有資訊「白宮傾盡一切打擊習近平中共已為國策」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11f32a96de5dbd3d86f980313ed4a64c0d629b1a.torrent)
 
