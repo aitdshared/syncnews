@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2Ejr3H)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w6Wscn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [（中文字幕）美宗教自由大使：中共對信仰開戰是贏不了的戰爭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4710041e7de419e64e48c3739809655be0c5213.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f4710041e7de419e64e48c3739809655be0c5213
 
 下载BT种子 [《石濤聚焦》「中共國專家：三峽大壩可擋原子彈泡水百年年更結實」「七下八上」全國大汛期「一江一水一湖」最麻煩21日第三次洪峰到來「五行中水為宇宙中萬物之本故為天滅中共」（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8d4fcc3634e4e5217c5e659ca73c9ec6b49b357.torrent)
 
