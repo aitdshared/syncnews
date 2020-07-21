@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hCJKoX)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/SwbeeM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [洛杉磯13歲華裔男孩疑似染疫喪命家中去世前一週檢測結果竟呈現陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c19a5bef89dec1d000a7b8afbe8cb9e14be71537.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c19a5bef89dec1d000a7b8afbe8cb9e14be71537
 
 下载BT种子 [來自大陸華人見聞中共打壓善良望結束中共邪惡暴政.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c38856ec8dfe8d5bf0a8f51c15cdcf06d2c9805.torrent)
 
