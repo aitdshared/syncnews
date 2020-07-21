@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RrStIR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gZG6dT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新聞】美國務卿：中共迫害法輪功21年必須停止英國對香港實施武器禁運中止引渡條約(7月20日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de68aea7495eedcbab7d713bd07dbfd863f2c1e2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:de68aea7495eedcbab7d713bd07dbfd863f2c1e2
 
 下载BT种子 [中共「羞澀」認了，三峽大壩有問題！安徽滁河炸堤洩洪！中殲11B永興島列陣，美B1B部署關島，中美隔空示威，南海一觸即發！若中共侵台，川普將被授權動用軍力？川普對華政策幕後推手竟然是華人！【07.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f9d05bb8127d8dec88e7c320572b8ae01fc9880.torrent)
 
