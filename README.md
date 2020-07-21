@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lMoodG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/a23ULM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新疆爆發疫情疑實際相當嚴重曝一夜“封城”真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bb7662c8482a07c5008818067df93dbf54b9706.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3bb7662c8482a07c5008818067df93dbf54b9706
 
 下载BT种子 [退黨途徑真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/103da7a42775ff2bfd0b841e8463fdd26f57a7c6.torrent)
 
@@ -564,10 +568,6 @@
 下载BT种子 [【中國禁聞】7月15日完整版(字幕)🔥洪災肆虐下看中共媒體的「洪水美學」川普簽香港自治法案制裁或上政治局常委陸企大股東紛紛高位套現中國股市背後推手是誰？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4696386e90b317cef241c3940a201c6b9ff0645e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4696386e90b317cef241c3940a201c6b9ff0645e
-
-下载BT种子 [美国禁止入境，其他西方国家跟进的话，中共党员或只有一条路可走了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/926dceeda3082d76cab0d768fe71148b7020fac9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:926dceeda3082d76cab0d768fe71148b7020fac9
 
 下载BT种子 [美宗教自由委員籲徹查中共強摘器官.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/413e42464f5dba0d9adcac3e8c528a3b89157a59.torrent)
 
