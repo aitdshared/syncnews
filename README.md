@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ArRD5p)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xhg6hH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [老百姓被強遷多年，無家可歸！向中共跪求真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c11ac17b315952561d509d06fec06dddd1013a26.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c11ac17b315952561d509d06fec06dddd1013a26
 
 下载BT种子 [中国正在进入失序状态，官员心理：谁爱管谁管，爱咋咋地，政府管控能力正在快速弱化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ac4c6da14270aeaa8b20fb711364ffdcad42598.torrent)
 
@@ -568,10 +572,6 @@
 下载BT种子 [江西安徽嚴重洪災多地持續泡水抗洪奇招用裝滿貨物的卡車壓住九江大橋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a715553254cbf51553a5b0933597b353aee92737.torrent)
 
 磁力链接 magnet:?xt=urn:btih:a715553254cbf51553a5b0933597b353aee92737
-
-下载BT种子 [美國或禁公務員用抖音業內人士披露風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f93dee789513b659de36e042cfe0d55c9abe825.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4f93dee789513b659de36e042cfe0d55c9abe825
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
