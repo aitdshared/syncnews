@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7Tm8VZ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2cKUHT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [中國教育的失敗源於破壞傳統文化及灌輸黨文化真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43dd4a7e6e968d10cf41799407bde7cfeff846e5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:43dd4a7e6e968d10cf41799407bde7cfeff846e5
 
 下载BT种子 [黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc3a51f3c523c9255cb9867136270c9443d515b.torrent)
 
@@ -532,10 +536,6 @@
 下载BT种子 [美司法部長勸諫美企：堅守美國理念勿對中共叩頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27f9301d98c820f0e0d0a5442a6b74567cc15c7f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:27f9301d98c820f0e0d0a5442a6b74567cc15c7f
-
-下载BT种子 [【全球新聞】美司法部長勸諫美企：堅守美國理念勿對中共叩頭白宮幕僚長：未來幾週將處理微信TikTok問題(7月16日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e33927e5a5db7e63eaa6a1d79d889a18188d77ab.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e33927e5a5db7e63eaa6a1d79d889a18188d77ab
 
 下载BT种子 [新疆出現疫情香港確診人數再創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77da795a18483a86b14b5d19cee995eb229eaf07.torrent)
 
