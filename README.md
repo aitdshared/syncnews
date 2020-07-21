@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QocJwc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7Tm8VZ)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc3a51f3c523c9255cb9867136270c9443d515b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2cc3a51f3c523c9255cb9867136270c9443d515b
+
+下载BT种子 [驚聞三峽開啟7孔洩洪為自保顧不得下游洪水滔天真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/854413d46fb648cc54b4a24886d16dad02c08043.torrent)
+
+磁力链接 magnet:?xt=urn:btih:854413d46fb648cc54b4a24886d16dad02c08043
 
 下载BT种子 [【環球直擊】江西安徽多地持續被洪水圍困損失巨大吉林74歲老人發真相資料再遭中共非法抓捕（7月21日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7756ec063bc7585c738a927af4a1a9408431ee2.torrent)
 
@@ -525,10 +533,6 @@
 
 磁力链接 magnet:?xt=urn:btih:27f9301d98c820f0e0d0a5442a6b74567cc15c7f
 
-下载BT种子 [九千万党员禁止来美川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径(政论天下第199集20200716)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ac0db05772b91a4bcb90a1b0a62c8f748ec54708.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ac0db05772b91a4bcb90a1b0a62c8f748ec54708
-
 下载BT种子 [【全球新聞】美司法部長勸諫美企：堅守美國理念勿對中共叩頭白宮幕僚長：未來幾週將處理微信TikTok問題(7月16日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e33927e5a5db7e63eaa6a1d79d889a18188d77ab.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e33927e5a5db7e63eaa6a1d79d889a18188d77ab
@@ -544,10 +548,6 @@
 下载BT种子 [蓬佩奧捍衛天賦人權美國是自由燈塔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ee0c6afe6e6a596003cba3f021ff78a56fa66c.torrent)
 
 磁力链接 magnet:?xt=urn:btih:b3ee0c6afe6e6a596003cba3f021ff78a56fa66c
-
-下载BT种子 [弃守密令！川普单挑中共：拟禁止所有党员入境、废在美家属签证！华春莹抢习近平总加速师桂冠？（老北京茶馆第345集20200716）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a19da93e33d0fd70a16f468e9bd5f2a3f3ee845.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a19da93e33d0fd70a16f468e9bd5f2a3f3ee845
 
 下载BT种子 [美國或禁中共黨員和家屬入境「退黨」成熱搜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd8d0c4473486a1f246d9c31ff2177ef920eb230.torrent)
 
