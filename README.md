@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jiVw3X)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RQA7dg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [9千萬黨員或被定犯罪份子受制裁？退黨保平安！真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc683f0be682eded91aa1f5397ec60c88bf8ce74.torrent)
+
+磁力链接 magnet:?xt=urn:btih:cc683f0be682eded91aa1f5397ec60c88bf8ce74
+
+下载BT种子 [白宮恢復疫情簡報會醞釀新一輪刺激計劃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708599a4c4815ea7174f0c648270e9c0e1766db.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4708599a4c4815ea7174f0c648270e9c0e1766db
+
+下载BT种子 [俄羅斯國際金環熱氣球節體驗飛行的自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b7792efe13e03cd23b5453627fdc73924f69350.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9b7792efe13e03cd23b5453627fdc73924f69350
 
 下载BT种子 [（中文字幕）美宗教自由大使：中共對信仰開戰是贏不了的戰爭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4710041e7de419e64e48c3739809655be0c5213.torrent)
 
@@ -476,10 +488,6 @@
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:90204483cc09197b457dd77bd8270868f1759af0
-
-下载BT种子 [【環球直擊】疫情下空置房大增中國房東擺攤招租中儲糧直屬糧庫再爆「碩鼠」事件（7月13日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/40579916d80ae8eaf91807204fb8cd7fe4b33107.torrent)
-
-磁力链接 magnet:?xt=urn:btih:40579916d80ae8eaf91807204fb8cd7fe4b33107
 
 下载BT种子 [【環球直擊】江西遇百年最大洪水貴州多地被淹香港疫情大爆發（7月13日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f03261437e11153631875fbf14fa0dcf4716cd81.torrent)
 
