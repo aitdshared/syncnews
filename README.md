@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RFsmHb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gLEkzT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】三峽大壩再次加大洩洪安徽開閘炸堤疏洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be80a2c03bf059c5a481b2e5ea3ffb50e514ba01.torrent)
+
+磁力链接 magnet:?xt=urn:btih:be80a2c03bf059c5a481b2e5ea3ffb50e514ba01
+
+下载BT种子 [长江2号洪水猛灌三峡大坝4天后抵达武汉真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/954b4f3b4b7d97d4ab8bc410ae874447987119e8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:954b4f3b4b7d97d4ab8bc410ae874447987119e8
 
 下载BT种子 [【禁聞】華府「天滅中共」研討會感佩法輪功21年堅持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f11cc47135705db2ea5e8dca377e5a03d4d35876.torrent)
 
@@ -548,10 +556,6 @@
 下载BT种子 [美國或禁公務員用抖音業內人士披露風險.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f93dee789513b659de36e042cfe0d55c9abe825.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4f93dee789513b659de36e042cfe0d55c9abe825
-
-下载BT种子 [保城市淹農村鄱陽湖「主動決堤」曝光.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f77dba3844d73205b2d0276b38e78632ab4882ac.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f77dba3844d73205b2d0276b38e78632ab4882ac
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
