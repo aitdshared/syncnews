@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gZG6dT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8q1K5y)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [來自大陸華人見聞中共打壓善良望結束中共邪惡暴政.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c38856ec8dfe8d5bf0a8f51c15cdcf06d2c9805.torrent)
+
+磁力链接 magnet:?xt=urn:btih:8c38856ec8dfe8d5bf0a8f51c15cdcf06d2c9805
 
 下载BT种子 [【全球新聞】美國務卿：中共迫害法輪功21年必須停止英國對香港實施武器禁運中止引渡條約(7月20日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de68aea7495eedcbab7d713bd07dbfd863f2c1e2.torrent)
 
