@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OdRf1W)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hArUjs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】720反迫害全球築真相長城和平抗暴喚良知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c18e9cfe6af5352f0f8ead68e65ae562c413766.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3c18e9cfe6af5352f0f8ead68e65ae562c413766
+
+下载BT种子 [【微視頻】滅中共自救一個傳聞讓退黨成熱門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6351ef864082119139462cd3bef0827be4311923.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6351ef864082119139462cd3bef0827be4311923
 
 下载BT种子 [美追打中共；英終止香港引渡條例、尋求日本建設沒有華為的5G；南海問題、疫情追責——中共外交部新發言人汪文斌上班第一天（江峰漫談20200720第207期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ad94016be04ca7bfaa65a426998aefcc2ac8373.torrent)
 
