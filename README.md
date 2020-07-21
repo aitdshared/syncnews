@@ -21,13 +21,41 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/gysg2f)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UQG2R0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [新唐人專題系列片：魔鬼在統治著我們的世界第二集：歐洲發端.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/747af808002f0bb982328d1c4be49eee34eb6c5b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:747af808002f0bb982328d1c4be49eee34eb6c5b
+
+下载BT种子 [美商務部再制裁11家中企列實體名單.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/933c06fa7a9c54754076240570434842d5460173.torrent)
+
+磁力链接 magnet:?xt=urn:btih:933c06fa7a9c54754076240570434842d5460173
+
+下载BT种子 [《魔鬼在統治世界》系列片揭共產主義本質.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4550aeb8ea41fa2ea8dd7e793234516d2561f1c8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4550aeb8ea41fa2ea8dd7e793234516d2561f1c8
+
+下载BT种子 [【重播721】白宮發言人媒體簡報會（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/362448f122e667e3b122a5052512cf97f32177da.torrent)
+
+磁力链接 magnet:?xt=urn:btih:362448f122e667e3b122a5052512cf97f32177da
+
+下载BT种子 [江西安徽多地持續被洪水圍困安徽一個鎮上萬人被困在洪水中多日.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdc532208ad1dd2659b653852dcc0eaa416cf1d9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bdc532208ad1dd2659b653852dcc0eaa416cf1d9
+
+下载BT种子 [香港增群聚感染川普將恢復疫情簡報會.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/080961037c1854c989411ecf82aa494cb4838299.torrent)
+
+磁力链接 magnet:?xt=urn:btih:080961037c1854c989411ecf82aa494cb4838299
+
+下载BT种子 [法輪功反迫害21年美國會議員聲援（二）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/91ded0cb671374c56671b3d9a0c8f6d5aca85974.torrent)
+
+磁力链接 magnet:?xt=urn:btih:91ded0cb671374c56671b3d9a0c8f6d5aca85974
 
 下载BT种子 [《石濤.News》「華為禁令2個月後台積電市值突10兆行業老大」華為依靠聯發科-股價20台積電變相「與神同行」股價387「聯發科老闆：如能重來我們絕不會到大陸建廠」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f150c92e0bff4a11769867158b0bb67631bf8965.torrent)
 
@@ -544,10 +572,6 @@
 下载BT种子 [法輪功七二零反迫害21週年（2020）-善的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78f4c484fb53194a40b114604bdc322b406dd417.torrent)
 
 磁力链接 magnet:?xt=urn:btih:78f4c484fb53194a40b114604bdc322b406dd417
-
-下载BT种子 [美司法部長勸諫美企：堅守美國理念勿對中共叩頭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/27f9301d98c820f0e0d0a5442a6b74567cc15c7f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:27f9301d98c820f0e0d0a5442a6b74567cc15c7f
 
 下载BT种子 [新疆出現疫情香港確診人數再創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77da795a18483a86b14b5d19cee995eb229eaf07.torrent)
 
