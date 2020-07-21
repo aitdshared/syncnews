@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qnQFb2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LAVCi7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「今日長江淮河黃河齊降大暴雨」湖北恩施清江堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」（2107）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d19dd1d99dca28ac7229d970bbc20ca4281c3581.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d19dd1d99dca28ac7229d970bbc20ca4281c3581
 
 下载BT种子 [《石濤聚焦》「7.21-今日長江淮河黃河齊降大暴雨」湖北恩施清江-堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f032955fa6e6c7860d3d1048da8b56e0886e289f.torrent)
 
@@ -572,10 +576,6 @@
 下载BT种子 [《濤哥侃封神》「封神演義第九十八回周武王鹿臺散財」左觀炮烙右蠆盆驚望鹿臺遇肉林武王甚明商紂滅再三拒薦怒文煥子牙深明天意在祝臺登極八百年「紂王聚斂吸民脂不信當年放桀時」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a3aa841756f0e2bf33cc98e8eb0fead4bbb8e1f.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3a3aa841756f0e2bf33cc98e8eb0fead4bbb8e1f
-
-下载BT种子 [法輪功七二零反迫害21週年（2020）-善的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78f4c484fb53194a40b114604bdc322b406dd417.torrent)
-
-磁力链接 magnet:?xt=urn:btih:78f4c484fb53194a40b114604bdc322b406dd417
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
