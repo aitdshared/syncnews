@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/bvJJCi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0bZ1vu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [美追打中共；英終止香港引渡條例、尋求日本建設沒有華為的5G；南海問題、疫情追責——中共外交部新發言人汪文斌上班第一天（江峰漫談20200720第207期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ad94016be04ca7bfaa65a426998aefcc2ac8373.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7ad94016be04ca7bfaa65a426998aefcc2ac8373
 
 下载BT种子 [衛星抓到三峽大壩「超級洩洪」王維洛：洪水是人為的真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c5792b3467939b4859888af30b0034788f10baf.torrent)
 
