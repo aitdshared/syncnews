@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UQG2R0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/00cYSW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「7.21-今日長江淮河黃河齊降大暴雨」湖北恩施清江-堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f032955fa6e6c7860d3d1048da8b56e0886e289f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f032955fa6e6c7860d3d1048da8b56e0886e289f
 
 下载BT种子 [新唐人專題系列片：魔鬼在統治著我們的世界第二集：歐洲發端.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/747af808002f0bb982328d1c4be49eee34eb6c5b.torrent)
 
@@ -572,34 +576,6 @@
 下载BT种子 [法輪功七二零反迫害21週年（2020）-善的聲音.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78f4c484fb53194a40b114604bdc322b406dd417.torrent)
 
 磁力链接 magnet:?xt=urn:btih:78f4c484fb53194a40b114604bdc322b406dd417
-
-下载BT种子 [新疆出現疫情香港確診人數再創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/77da795a18483a86b14b5d19cee995eb229eaf07.torrent)
-
-磁力链接 magnet:?xt=urn:btih:77da795a18483a86b14b5d19cee995eb229eaf07
-
-下载BT种子 [蓬佩奧捍衛天賦人權美國是自由燈塔.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3ee0c6afe6e6a596003cba3f021ff78a56fa66c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3ee0c6afe6e6a596003cba3f021ff78a56fa66c
-
-下载BT种子 [美國或禁中共黨員和家屬入境「退黨」成熱搜.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fd8d0c4473486a1f246d9c31ff2177ef920eb230.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fd8d0c4473486a1f246d9c31ff2177ef920eb230
-
-下载BT种子 [時尚品牌杜嘉班納疫情下首場實體時裝秀.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f5dee48bc76db0687d561cf2dd5326ef5bca5c5a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f5dee48bc76db0687d561cf2dd5326ef5bca5c5a
-
-下载BT种子 [【重播716】美國務卿蓬佩奧發表「不可剝奪權利與自由保障」的演講（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3eee747c76d2b7fbe55cc84a61b780955dc03c5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b3eee747c76d2b7fbe55cc84a61b780955dc03c5
-
-下载BT种子 [美宗教自由委員籲徹查中共強摘器官.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/413e42464f5dba0d9adcac3e8c528a3b89157a59.torrent)
-
-磁力链接 magnet:?xt=urn:btih:413e42464f5dba0d9adcac3e8c528a3b89157a59
-
-下载BT种子 [江西安徽嚴重洪災多地持續泡水抗洪奇招用裝滿貨物的卡車壓住九江大橋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a715553254cbf51553a5b0933597b353aee92737.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a715553254cbf51553a5b0933597b353aee92737
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
