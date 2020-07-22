@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VjqDqn)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UhTdKP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [白邦瑞：旅行禁令将剥夺中共的合法性真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca8d36dd7b974aa883c5d0a9a8830961bc708709.torrent)
+
+磁力链接 magnet:?xt=urn:btih:ca8d36dd7b974aa883c5d0a9a8830961bc708709
+
+下载BT种子 [美媒：习近平和林郑恼火香港人怎么还不跑！真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/205e644b860c76835aa3af72d2204bf6133a388e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:205e644b860c76835aa3af72d2204bf6133a388e
 
 下载BT种子 [【重播722（1）】川普總統就“傳奇行動：在美國城市中打擊暴力犯罪”發表講話（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af2a403ad91769078978cf1da4fae9858a3bbd08.torrent)
 
@@ -580,10 +588,6 @@
 下载BT种子 [川普競選團隊促簽請願書禁止TikTok.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de365301f65f359a3bd76a687ecd5eda9b23bfa0.torrent)
 
 磁力链接 magnet:?xt=urn:btih:de365301f65f359a3bd76a687ecd5eda9b23bfa0
-
-下载BT种子 [【環球直擊】美防長：美軍挺身而出捍衛國際通航自由反迫害21週年紐約法輪功學員燭光夜悼（7月18日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0299e6227c359d0d290e281b0a405c0f0e49067e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0299e6227c359d0d290e281b0a405c0f0e49067e
 
 下载BT种子 [外交部大實話：中共南海基地做好被強拆準備，被制裁的美國人來不了中國損失巨大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140.torrent)
 
