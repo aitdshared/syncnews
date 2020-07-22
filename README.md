@@ -21,17 +21,13 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iuPZDb)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/luDiI0)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
-
-下载BT种子 [【禁聞】青海前政協委員王瑞琴：民企痛恨中共體制（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c809e3a2bdb665b6aed2dbccf1706fdb64bff33a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c809e3a2bdb665b6aed2dbccf1706fdb64bff33a
 
 下载BT种子 [法輪大法信息中心主任談會美國務院官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7974261beeecc1251c1ad97b03361bdbf47e0737.torrent)
 
@@ -560,6 +556,14 @@
 下载BT种子 [《石濤聚焦》「FOX同檔節目彭培奧認同閆麗夢所言」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7735cb498c38fd849bc29226ed68aa8fdefff438.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7735cb498c38fd849bc29226ed68aa8fdefff438
+
+下载BT种子 [《石濤聚焦》「華為在非洲納米比亞行賄被議員與半島電視台設套兒全程爆光」協助華為5G落地獲36萬美元外加210萬分紅「美絕滅式制裁華為囤積270億美元的台積電晶片」（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a7d0979690231684ef26533fa29a809e3d0e9f2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6a7d0979690231684ef26533fa29a809e3d0e9f2
+
+下载BT种子 [《石濤.News》「三峽大壩歷史性洪峰逼出習近平-劫運難逃」黃萬里之子斷言兌現：三峽庫區水位超160米入水量超每秒6.1萬立米湖北恩施全城被淹（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d67e919c99ac345ad38eee3c715ec9f28a990365.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d67e919c99ac345ad38eee3c715ec9f28a990365
 
 下载BT种子 [【禁聞】中伊秘密協議曝光引發美中關係新爆點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d6018bbba66ca3f21891b36d4efa007cd6dee5f.torrent)
 
