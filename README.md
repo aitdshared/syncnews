@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/luDiI0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/uyGLxs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】中國房市逆向升溫背後有何貓膩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9bb81ae493504428509c9d64c10f3e48894b56d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b9bb81ae493504428509c9d64c10f3e48894b56d
+
+下载BT种子 [【唐靖遠快評】習近平4大危機罩頂！隱身3周後與企業家會談，經濟比洪災更嚴峻？美國制裁還不是最致命熱點互動07212020.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/955570a4937c79719dceeead97129fe401ea8670.torrent)
+
+磁力链接 magnet:?xt=urn:btih:955570a4937c79719dceeead97129fe401ea8670
+
+下载BT种子 [【禁聞】美國區分中共和中國中共忙綑綁.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24a57bdf466a57582543c403e0b29c1a9bfb3d69.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24a57bdf466a57582543c403e0b29c1a9bfb3d69
+
+下载BT种子 [【禁聞】美國政府中共必須立即停止迫害法輪功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/99c28a5ebd2ac664776d1fc22f291a6f66bad86f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:99c28a5ebd2ac664776d1fc22f291a6f66bad86f
+
+下载BT种子 [【禁聞】青海前政協委員王瑞琴：民企痛恨中共體制（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c809e3a2bdb665b6aed2dbccf1706fdb64bff33a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:c809e3a2bdb665b6aed2dbccf1706fdb64bff33a
 
 下载BT种子 [法輪大法信息中心主任談會美國務院官員.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7974261beeecc1251c1ad97b03361bdbf47e0737.torrent)
 
@@ -548,34 +568,6 @@
 下载BT种子 [《石濤.News》「對中共黨員旅行禁令胡錫進狂吼比斷交還狠！」中共黨員數量9191.4萬應對天滅中共之劫運彭培奧默認決定權在總統“退黨”熱搜暴增「分辨極易」（1707）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e232840898dc4e8265cb4f185a7675c5baa9ce23.torrent)
 
 磁力链接 magnet:?xt=urn:btih:e232840898dc4e8265cb4f185a7675c5baa9ce23
-
-下载BT种子 [网路沸腾！党员与微信咋办？退党搜索暴增！香港官员绝望。美台利器直指北京。双航母再现南海.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb36bd0e61c8ce65272dcea1366be4286891d5b1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cb36bd0e61c8ce65272dcea1366be4286891d5b1
-
-下载BT种子 [《石濤聚焦》「FOX同檔節目彭培奧認同閆麗夢所言」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7735cb498c38fd849bc29226ed68aa8fdefff438.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7735cb498c38fd849bc29226ed68aa8fdefff438
-
-下载BT种子 [《石濤聚焦》「華為在非洲納米比亞行賄被議員與半島電視台設套兒全程爆光」協助華為5G落地獲36萬美元外加210萬分紅「美絕滅式制裁華為囤積270億美元的台積電晶片」（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6a7d0979690231684ef26533fa29a809e3d0e9f2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6a7d0979690231684ef26533fa29a809e3d0e9f2
-
-下载BT种子 [《石濤.News》「三峽大壩歷史性洪峰逼出習近平-劫運難逃」黃萬里之子斷言兌現：三峽庫區水位超160米入水量超每秒6.1萬立米湖北恩施全城被淹（1807）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d67e919c99ac345ad38eee3c715ec9f28a990365.torrent)
-
-磁力链接 magnet:?xt=urn:btih:d67e919c99ac345ad38eee3c715ec9f28a990365
-
-下载BT种子 [【禁聞】中伊秘密協議曝光引發美中關係新爆點.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d6018bbba66ca3f21891b36d4efa007cd6dee5f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6d6018bbba66ca3f21891b36d4efa007cd6dee5f
-
-下载BT种子 [美國南海政策突然轉向，局部戰爭可能性迅速上升，台海軍政重點南移，中共軍力部署大亂，東亞東盟齊聲反共，英國航母在路上（江峰漫談20200717第205期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8a474f50a021919562a8fd123c9a592cdff02691.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8a474f50a021919562a8fd123c9a592cdff02691
-
-下载BT种子 [《濤哥侃封神》「封神演義第九十九回姜子牙歸國封神」群靈匯聚封神臺仙神人鬼皆因由根性劫運天地命萬事皆因一字私無奈無奈真無奈因果因果全因果「群仙此日皆登果列圣明朝盡返貞」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/35154371f872b9588856643321174d2d6486f0fa.torrent)
-
-磁力链接 magnet:?xt=urn:btih:35154371f872b9588856643321174d2d6486f0fa
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
