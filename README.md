@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/q1sqO4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/yQmYxM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [安徽湖北江西多地被淹洪峰北上河南.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/25c0d7efa60b79e10b3086f5450e08b58a2ae573.torrent)
+
+磁力链接 magnet:?xt=urn:btih:25c0d7efa60b79e10b3086f5450e08b58a2ae573
+
+下载BT种子 [蓬佩奧中國政策顧問華裔學者余茂春亮相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4a79df656bb6447f4e58d9aa1cc95f8de6e9020.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b4a79df656bb6447f4e58d9aa1cc95f8de6e9020
 
 下载BT种子 [蓬佩奧訪丹麥：中共若繼續妄爲將採取行動.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1e051e43ec216172a0cc58ca93e534d58bbd81e5.torrent)
 
@@ -560,14 +568,6 @@
 下载BT种子 [【禁聞】三峽洩洪加劇下游災情安徽半夜炸壩泄洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84c2880d20a5873efe5823a22767094b50b3aed1.torrent)
 
 磁力链接 magnet:?xt=urn:btih:84c2880d20a5873efe5823a22767094b50b3aed1
-
-下载BT种子 [💥保駕無功？習近平撤衛軍司令；禁9千萬中共黨員入境！美擬新規；再遭水淹，重慶人奪門而逃；官吏不通知洩洪，原因揭曉；保大棄小，南京照樣淹！洪湖危險；南海共軍低調，印太北約或成形新聞拍案驚奇大宇.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/946d70f49eda06f5a83c5153e2262133295ea0f9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:946d70f49eda06f5a83c5153e2262133295ea0f9
-
-下载BT种子 [【禁聞】禁中共黨員赴美？中國網民讚川普「反貪局局長」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/574a8bcc470a391fdad2380e004028daeca93d44.torrent)
-
-磁力链接 magnet:?xt=urn:btih:574a8bcc470a391fdad2380e004028daeca93d44
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
