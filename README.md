@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UhTdKP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/hIWaBp)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [突發！重磅消息。美國關閉中共駐休斯頓總領事館並於72小時內驅逐，疑深度操控間諜活動（江峰漫談20200722第209期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/495edf4129378f602f612ad75485778f4ab8517e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:495edf4129378f602f612ad75485778f4ab8517e
 
 下载BT种子 [白邦瑞：旅行禁令将剥夺中共的合法性真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca8d36dd7b974aa883c5d0a9a8830961bc708709.torrent)
 
@@ -584,14 +588,6 @@
 下载BT种子 [蓬佩奧出席「家庭領袖峰會」：用行動反制中共威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0deba3380770ecde56ef9f65d95b47fd8c5573b3.torrent)
 
 磁力链接 magnet:?xt=urn:btih:0deba3380770ecde56ef9f65d95b47fd8c5573b3
-
-下载BT种子 [川普競選團隊促簽請願書禁止TikTok.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de365301f65f359a3bd76a687ecd5eda9b23bfa0.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de365301f65f359a3bd76a687ecd5eda9b23bfa0
-
-下载BT种子 [外交部大實話：中共南海基地做好被強拆準備，被制裁的美國人來不了中國損失巨大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
