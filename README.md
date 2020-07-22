@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ate8u5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/VjqDqn)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播722（1）】川普總統就“傳奇行動：在美國城市中打擊暴力犯罪”發表講話（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/af2a403ad91769078978cf1da4fae9858a3bbd08.torrent)
+
+磁力链接 magnet:?xt=urn:btih:af2a403ad91769078978cf1da4fae9858a3bbd08
+
+下载BT种子 [【重播722（2）】川普總統就“傳奇行動：在美國城市中打擊暴力犯罪”發表講話（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/278877c8c3dcc57fcbc62c20a1a22669fb5aaac1.torrent)
+
+磁力链接 magnet:?xt=urn:btih:278877c8c3dcc57fcbc62c20a1a22669fb5aaac1
+
+下载BT种子 [突發!美國關閉中共駐休士頓總領事館並於72小時內驅逐,疑深度操控間諜活動（江峰漫談20200722第209期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f7f99d30573f1f26913f13e333695191958c97e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f7f99d30573f1f26913f13e333695191958c97e
 
 下载BT种子 [【重播722】美參院外交關係委員會聽證會：推進美國對中國的有效競爭（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f54a33820eac0af56622675ff457bcb17bb7095.torrent)
 
@@ -576,22 +588,6 @@
 下载BT种子 [外交部大實話：中共南海基地做好被強拆準備，被制裁的美國人來不了中國損失巨大.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3d6d885e4e3a12b77a6649ef9c0dc6c2b6a6e140
-
-下载BT种子 [【環球直擊】「對華政策跨國議會聯盟」聲明支持法輪功反迫害讓中共大外宣滲透課堂揭秘DC市長與中共關係(7月19日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/10708304928f906b157e5a8141d3919d8cae3d6e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:10708304928f906b157e5a8141d3919d8cae3d6e
-
-下载BT种子 [【时事小品】隔空嫖娼（660期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dbe1721daaa67269ef1ec8d3e3fa62da583586e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5dbe1721daaa67269ef1ec8d3e3fa62da583586e
-
-下载BT种子 [前國腳郝海東滅共宣言揭秘心路歷程真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3086fbcbfd78f8d86c9bc7b951f6adf83186b5bd.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3086fbcbfd78f8d86c9bc7b951f6adf83186b5bd
-
-下载BT种子 [山区小学生四年都没有吃午饭真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/391b8bd22738a5d76141b20b83d7042ec6cfb742.torrent)
-
-磁力链接 magnet:?xt=urn:btih:391b8bd22738a5d76141b20b83d7042ec6cfb742
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
