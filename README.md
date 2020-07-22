@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OS5anI)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZR5r0K)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [三峽大壩下游水位漲安徽急炸堤凌晨傳巨響真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc2e69d5894d5fa556c7bcf9d708a02745f1f7bc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:fc2e69d5894d5fa556c7bcf9d708a02745f1f7bc
 
 下载BT种子 [「反共大聯盟」登場；中伊協議，加速國際反共潮；抖音在劫難逃（2020.7.22）｜世界的十字路口唐浩.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de2ee928472e86d37e903a8b75989c1f695049f3.torrent)
 
@@ -560,10 +564,6 @@
 下载BT种子 [【禁聞】各國加緊反擊中共西方大國構建反共同盟雛形已現.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4c1853c15d6dcec4abbdeda3fda3d0ff8a62c4cc.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4c1853c15d6dcec4abbdeda3fda3d0ff8a62c4cc
-
-下载BT种子 [美軍機5天3飛中國外海；習近平突喊保黨保權？美司法部發警告：好萊塢和迪士尼向中共磕頭！地攤經濟夭折，小店經濟登場；華春瑩混淆視聽，中共偷換概念；烏魯木齊封城，下個武漢？【新聞看點李沐陽07.17】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/301c3e927846d639b1635c0e2a6b42c574431a52.torrent)
-
-磁力链接 magnet:?xt=urn:btih:301c3e927846d639b1635c0e2a6b42c574431a52
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
