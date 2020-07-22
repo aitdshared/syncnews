@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p83A91)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ate8u5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【重播722】美參院外交關係委員會聽證會：推進美國對中國的有效競爭（同聲翻譯）新唐人電視台.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f54a33820eac0af56622675ff457bcb17bb7095.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9f54a33820eac0af56622675ff457bcb17bb7095
 
 下载BT种子 [【環球直擊】休斯頓中領館焚燒機密文件蓬佩奧譴責中共洪峰北上河南(7月22日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [山区小学生四年都没有吃午饭真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/391b8bd22738a5d76141b20b83d7042ec6cfb742.torrent)
 
 磁力链接 magnet:?xt=urn:btih:391b8bd22738a5d76141b20b83d7042ec6cfb742
-
-下载BT种子 [貧寒學子高考被頂替教育系統也爛透了？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09a3754bbabf759b2ecde307eecb83ef377b4a4d.torrent)
-
-磁力链接 magnet:?xt=urn:btih:09a3754bbabf759b2ecde307eecb83ef377b4a4d
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
