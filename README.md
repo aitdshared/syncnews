@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zId7co)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bw8HcX)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「美重量級參議員魯比歐：中共國駐休士頓領事館龐大間諜網的中心」有人直言：美國送給習近平外交思想研究中心的賀禮「休士頓：太空總署（NASA）全美最大醫療中心軍工巨頭洛克希德馬丁公司」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7432cb8b93bbbf132e631fa040e522036dc99a11.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7432cb8b93bbbf132e631fa040e522036dc99a11
 
 下载BT种子 [《石濤聚焦》「習近平外交思想中心成立美隨之關閉休士頓領館」崔天凱：美國拒絕對話中共憤怒失智之詞：關閉武漢領館驅除港澳美領館遭遇死亡威脅「白宮立意已決：全面打擊中共斷交開戰」（2207）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d583ed998d93b621314d4884adce8980ea54437.torrent)
 
@@ -588,10 +592,6 @@
 下载BT种子 [肖建華明天係金融王國被全面接管，“嚴正聲明”後面的深厚背景，預示北戴河會議中共元老將集體向習近平發難（江峰漫谈20200719第206期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fad21c69280001c71df58e1190fac5db852f9c6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5fad21c69280001c71df58e1190fac5db852f9c6
-
-下载BT种子 [【禁聞】三峽洩洪加劇下游災情安徽半夜炸壩泄洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/84c2880d20a5873efe5823a22767094b50b3aed1.torrent)
-
-磁力链接 magnet:?xt=urn:btih:84c2880d20a5873efe5823a22767094b50b3aed1
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
