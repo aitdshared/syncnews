@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/UNtvm0)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2C1NBr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【中國禁聞】7月22日完整版🔥家園被蓄洪中共要百姓「捨小家保大家」；南海問題美國攤牌美中滑向熱戰？中共做錯了什麼？專家告訴你。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37569c48f1bed304eabcd0175c557ddb705f60f8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:37569c48f1bed304eabcd0175c557ddb705f60f8
+
+下载BT种子 [美控告兩中國黑客中共公安部黑手曝光 (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5ea67e1ead8dae0c86b91adb409f80be747373e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d5ea67e1ead8dae0c86b91adb409f80be747373e
+
+下载BT种子 [白宮疫情記者會川普建議民衆佩戴口罩 (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f7ead6c208c485f2d2a61090ad4f8fd0929cb45b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f7ead6c208c485f2d2a61090ad4f8fd0929cb45b
 
 下载BT种子 [【全球新聞】休斯頓中領館被關撤離前焚燒機密文件安徽湖北江西多地被淹洪峰北上河南（7月22日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c5d69b2057e73f5271636935232f3744325ceb4.torrent)
 
@@ -592,10 +604,6 @@
 下载BT种子 [反對迫害法輪功全球365萬人促法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5af25d7223ea38b1ff9d047334319497856caae6.torrent)
 
 磁力链接 magnet:?xt=urn:btih:5af25d7223ea38b1ff9d047334319497856caae6
-
-下载BT种子 [【環球直擊】長江洪水氾濫安徽多地再傳災情許章潤：極權必敗天快亮了（7月20日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dffc8fe04134e6e7f97d45dee4e0ace361fc9e09.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dffc8fe04134e6e7f97d45dee4e0ace361fc9e09
 
 下载BT种子 [【禁聞】法輪功反迫害21年720悼念燭光遍及各地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708a9f56bfc7dc5dda69568d5138e17caa86829.torrent)
 
