@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GClBvz)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mxFpFd)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [《石濤聚焦》「任志強被開除黨籍習近平兌現黨內獨夫」任志強至死不妥協拒絕一切合作西城紀委越俎代庖（不是中組部）開除其黨籍「中南海一定大亂黨規已破」（2307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/747b75da91eb0bfeeb898962d6035c1560043ebd.torrent)
+
+磁力链接 magnet:?xt=urn:btih:747b75da91eb0bfeeb898962d6035c1560043ebd
+
+下载BT种子 [《石濤聚焦》「超級詭異：任志強被開除黨籍.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/54ab4f9e2421c52e4457c577ae4b454b5ba202a5.torrent)
+
+磁力链接 magnet:?xt=urn:btih:54ab4f9e2421c52e4457c577ae4b454b5ba202a5
 
 下载BT种子 [舊金山中領館窩藏嫌犯？川普：可能關閉更多.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/183a71cdb32b4292654adbb26c70108daa3cd751.torrent)
 
@@ -560,14 +568,6 @@
 下载BT种子 [（中文字幕）美國國際宗教委鮑爾：中共對這個世界的宗教信仰自由構成了最嚴重的威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/303f441bd3321eb9f8e1b8e7a0873c5428a04029.torrent)
 
 磁力链接 magnet:?xt=urn:btih:303f441bd3321eb9f8e1b8e7a0873c5428a04029
-
-下载BT种子 [魔鬼在統治著我們的世界-預告.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7f0b7ac06d38b8cab7265349eefd1b3eb9d5c557.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7f0b7ac06d38b8cab7265349eefd1b3eb9d5c557
-
-下载BT种子 [洛杉磯13歲華裔男孩疑似染疫喪命家中去世前一週檢測結果竟呈現陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c19a5bef89dec1d000a7b8afbe8cb9e14be71537.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c19a5bef89dec1d000a7b8afbe8cb9e14be71537
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
