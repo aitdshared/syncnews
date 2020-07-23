@@ -4,6 +4,7 @@
 
 * Windows版免翻墙下载地址 https://is.gd/wtwinsecf 下载后双击执行WebTorrentSE.exe
 * Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹
+* 如果首次下载安装包速度慢，请尝试重新下载
 
 如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新，无需翻墙。
 
