@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/pbbdpE)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IneIWr)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -600,6 +600,10 @@
 下载BT种子 [伊朗總統承認全國2500萬人感染超官方通報近百倍真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4b6d78f8cde31f211dbb673707b3ad1de9d7e7.torrent)
 
 磁力链接 magnet:?xt=urn:btih:7b4b6d78f8cde31f211dbb673707b3ad1de9d7e7
+
+下载BT种子 [反對迫害法輪功全球365萬人促法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5af25d7223ea38b1ff9d047334319497856caae6.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5af25d7223ea38b1ff9d047334319497856caae6
 
 下载BT种子 [【禁聞】法輪功反迫害21年720悼念燭光遍及各地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708a9f56bfc7dc5dda69568d5138e17caa86829.torrent)
 
