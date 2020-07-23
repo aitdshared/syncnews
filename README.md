@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IneIWr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QRMREc)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蓬佩奧訪歐美英聯手對抗中共格局形成 (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f78423edb1b3be701dc03c6a3bffc54bbdeff3a2.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f78423edb1b3be701dc03c6a3bffc54bbdeff3a2
 
 下载BT种子 [【中國禁聞】7月22日完整版🔥家園被蓄洪中共要百姓「捨小家保大家」；南海問題美國攤牌美中滑向熱戰？中共做錯了什麼？專家告訴你。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/37569c48f1bed304eabcd0175c557ddb705f60f8.torrent)
 
@@ -581,37 +585,9 @@
 
 磁力链接 magnet:?xt=urn:btih:92d7a5fc16a279414b41ea80dd35793a7f820754
 
-下载BT种子 [黃之鋒正式登記參選不畏打壓抗爭到最後.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/090285c7baf7097810d94117ae1f83fcc209c104.torrent)
-
-磁力链接 magnet:?xt=urn:btih:090285c7baf7097810d94117ae1f83fcc209c104
-
-下载BT种子 [《石濤.News》「民調落後拜登15%川普FOX專訪憤怒失態」班農：川普應當切割中共國-禁用美元制裁習近平紐時：抗疫失敗華爾街：美企復甦無望「天意逼川普-絕滅式打擊中共抵銷一切不利大選必勝」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/057571b83f866651218a31309020583ba6b9e104.torrent)
-
-磁力链接 magnet:?xt=urn:btih:057571b83f866651218a31309020583ba6b9e104
-
-下载BT种子 [《石濤聚焦》「中共國專家再狂言：三峽大壩可擋原子彈大壩泡水100年更結實」中央氣象局：東北黃淮長江上中下游全部進入大水期21日第三次洪峰到來「五行中水為宇宙中萬物之本故為天滅中共」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2d69bf3a1f499ea499abbac31b74986d0d22d1be.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2d69bf3a1f499ea499abbac31b74986d0d22d1be
-
-下载BT种子 [《石濤聚焦》「三峽大壩原子彈沒用」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f674e6bfab919e19ec5b8348e155e71242fb0c56.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f674e6bfab919e19ec5b8348e155e71242fb0c56
-
-下载BT种子 [伊朗總統承認全國2500萬人感染超官方通報近百倍真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7b4b6d78f8cde31f211dbb673707b3ad1de9d7e7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7b4b6d78f8cde31f211dbb673707b3ad1de9d7e7
-
-下载BT种子 [反對迫害法輪功全球365萬人促法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5af25d7223ea38b1ff9d047334319497856caae6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5af25d7223ea38b1ff9d047334319497856caae6
-
 下载BT种子 [【禁聞】法輪功反迫害21年720悼念燭光遍及各地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708a9f56bfc7dc5dda69568d5138e17caa86829.torrent)
 
 磁力链接 magnet:?xt=urn:btih:4708a9f56bfc7dc5dda69568d5138e17caa86829
-
-下载BT种子 [【中國禁聞】7月19日完整版🔥三峽洩洪加劇下游災情安徽半夜炸壩洩洪法輪功反迫害21年720悼念燭光遍及各地中國遭遇數十年最嚴重洪災中共消極應對新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ec605350f5e09966799324cdaa8f737e956d227.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2ec605350f5e09966799324cdaa8f737e956d227
 
 下载BT种子 [【禁聞】中國遭數十年最嚴重洪災官方消極應對中共遇到比洪災更難應對的危機？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/536759a936136637668ce64a5901a70a85a7ebde.torrent)
 
