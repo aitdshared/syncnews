@@ -21,7 +21,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZiwpNM)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OXIbMN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -588,14 +588,6 @@
 下载BT种子 [【禁聞】法輪功反迫害21週年逾365萬人吁法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/130c781215a3183f0b4baa4cbc70ca5cddc80a34.torrent)
 
 磁力链接 magnet:?xt=urn:btih:130c781215a3183f0b4baa4cbc70ca5cddc80a34
-
-下载BT种子 [【環球直擊】全球疫情4天增百萬湖北恩施城區嚴重內澇香港重創人民幣國際化進程（7月18日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e664a31307cfac72254a0e0150f1fd6ec6ed1066.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e664a31307cfac72254a0e0150f1fd6ec6ed1066
-
-下载BT种子 [美防長：美軍挺身而出捍衛國際通航自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0e1915fc1a6cddb1e948a4e52decc2604a6f9097.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0e1915fc1a6cddb1e948a4e52decc2604a6f9097
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
