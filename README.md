@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/eM13Aq)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Ul3l6f)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新聞】休斯頓中領館被關撤離前焚燒機密文件安徽湖北江西多地被淹洪峰北上河南（7月22日完整版）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6c5d69b2057e73f5271636935232f3744325ceb4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6c5d69b2057e73f5271636935232f3744325ceb4
 
 下载BT种子 [《石濤聚焦》「神奇定數：7.21美國住北京大使館發表彭佩奧聲明：中共國必須停止迫害法輪功」意義：美國政府代表國民在北京兌現「與神同行天滅中共」之選擇告知中國人：美國國家價值觀與法輪功信仰同在.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bd5af314f6f3450b1ef910b36dc5d9fdab2045a3.torrent)
 
