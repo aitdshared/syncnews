@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OXIbMN)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nKvVBY)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [蓬佩奧指制止間諜行為驅逐中領館還沒完.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6e77979d4f2bb18284ff04bca46bbda3e3e8bd3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a6e77979d4f2bb18284ff04bca46bbda3e3e8bd3
 
 下载BT种子 [72小时内关闭中领馆!美国务院暗示中共在颠覆美国主权;美国已经给了中共面子;中共将如何报复(政论天下第202集20200722)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b8be8aaec5c017e982d1510a46bff613ca9ed5d.torrent)
 
@@ -584,10 +588,6 @@
 下载BT种子 [【禁聞】新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bedee11640388cdb796b6321df10a819e039d8e.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3bedee11640388cdb796b6321df10a819e039d8e
-
-下载BT种子 [【禁聞】法輪功反迫害21週年逾365萬人吁法辦江澤民.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/130c781215a3183f0b4baa4cbc70ca5cddc80a34.torrent)
-
-磁力链接 magnet:?xt=urn:btih:130c781215a3183f0b4baa4cbc70ca5cddc80a34
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
