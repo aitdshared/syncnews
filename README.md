@@ -21,13 +21,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nH60cV)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GGIsIV)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [副主席遭软禁？习近平斗不倒某常委。领事馆丑闻闹大了！陈全国漏了马脚.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a7d23244d9187b369548e0aeb49724888141e15e.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a7d23244d9187b369548e0aeb49724888141e15e
+
+下载BT种子 [【環球直擊】中領館窩藏嫌犯美國或關閉更多中領館英國開放香港特別簽證（7月23日完整版2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/86ecbb5c2805a49ef57cf60e08c8b42496a1885a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:86ecbb5c2805a49ef57cf60e08c8b42496a1885a
+
+下载BT种子 [《石濤聚焦》「南海軍事衝突升級中國解放軍宣布大規模實彈軍演」聲明表示“禁止相關海域一切海上航行及漁業作業船隻禁止出海如有擅自出海造成危險後果自負炸彈威力極大“「嚇尿美國人」（2307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/932806d12d114f4c7f8906fdb984236cab306e49.torrent)
+
+磁力链接 magnet:?xt=urn:btih:932806d12d114f4c7f8906fdb984236cab306e49
 
 下载BT种子 [《石濤聚焦》「任志強被開除黨籍習近平兌現黨內獨夫」任志強至死不妥協拒絕一切合作西城紀委越俎代庖（不是中組部）開除其黨籍「中南海一定大亂黨規已破」（2307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/747b75da91eb0bfeeb898962d6035c1560043ebd.torrent)
 
@@ -560,14 +572,6 @@
 下载BT种子 [【全球新聞】美國務卿：中共迫害法輪功21年必須停止英國對香港實施武器禁運中止引渡條約(7月20日完整版) (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/154fc0db69936340c0a9666d6067743385137552.torrent)
 
 磁力链接 magnet:?xt=urn:btih:154fc0db69936340c0a9666d6067743385137552
-
-下载BT种子 [《石濤聚焦》「英外相：無限期中止與香港引渡條約禁止向香港出口傷人武器」金融家巴斯：習近平外交—十足的自卑自傲（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/47c2d6a389af8921c49bd011cafaf70ea2076919.torrent)
-
-磁力链接 magnet:?xt=urn:btih:47c2d6a389af8921c49bd011cafaf70ea2076919
-
-下载BT种子 [（中文字幕）美國國際宗教委鮑爾：中共對這個世界的宗教信仰自由構成了最嚴重的威脅.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/303f441bd3321eb9f8e1b8e7a0873c5428a04029.torrent)
-
-磁力链接 magnet:?xt=urn:btih:303f441bd3321eb9f8e1b8e7a0873c5428a04029
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
