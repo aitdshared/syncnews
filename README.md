@@ -4,7 +4,6 @@
 
 * Windows版免翻墙下载地址 https://is.gd/wtwinsecf 下载后双击执行WebTorrentSE.exe
 * Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹
-* 如果首次下载安装包速度慢，请尝试重新下载
 
 如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新，无需翻墙。
 
@@ -22,13 +21,121 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/QRMREc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/mXEPDk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [舊金山中領館窩藏嫌犯？川普：可能關閉更多.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/183a71cdb32b4292654adbb26c70108daa3cd751.torrent)
+
+磁力链接 magnet:?xt=urn:btih:183a71cdb32b4292654adbb26c70108daa3cd751
+
+下载BT种子 [《石濤聚焦》「休士頓領館危機：川普-我想知道他們燒的是什麼？」袁弓夷-中領館出現叛逃者.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/436d51389edd98518fbdaf8251d2c3dcb3283152.torrent)
+
+磁力链接 magnet:?xt=urn:btih:436d51389edd98518fbdaf8251d2c3dcb3283152
+
+下载BT种子 [【首播】魔鬼在統治著我們的世界第四集：東方殺戮（2）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1205c4ce75cc4aefe35511e5d587468e2c8c6170.torrent)
+
+磁力链接 magnet:?xt=urn:btih:1205c4ce75cc4aefe35511e5d587468e2c8c6170
+
+下载BT种子 [法國跟進華為5G禁令2028年前實質淘汰.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6335e9603add764b582446de7473e8bd27b8c204.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6335e9603add764b582446de7473e8bd27b8c204
+
+下载BT种子 [高官富可敵國百姓月入千元錢都去哪了呢？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/735a154153a1a51759bbe1e4768742bc53411943.torrent)
+
+磁力链接 magnet:?xt=urn:btih:735a154153a1a51759bbe1e4768742bc53411943
+
+下载BT种子 [安徽省用10台卡车50车石头5000袋粘土沉入河流抗洪抢险真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d93cc2da0f00f8cfde7572a4e7d0a962308487a7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d93cc2da0f00f8cfde7572a4e7d0a962308487a7
+
+下载BT种子 [【禁聞】間諜中心？休斯顿中领馆被美勒令72小時內關閉.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/eaf899d6996a48603398298b6968818efc416b60.torrent)
+
+磁力链接 magnet:?xt=urn:btih:eaf899d6996a48603398298b6968818efc416b60
+
+下载BT种子 [《石濤聚焦》「神奇定數：7.21美國住北京大使館發表彭佩奧聲明：中共國必須停止迫害法輪功」意義：美國政府代表國民北京兌現「與神同行天滅中共」之選擇【所有大陸人都可見證：美國國家價值認同法輪功信仰】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/bbe42ce05865474cf479183340222d37b43a8f91.torrent)
+
+磁力链接 magnet:?xt=urn:btih:bbe42ce05865474cf479183340222d37b43a8f91
+
+下载BT种子 [【環球直擊】疫情嚴峻大連工人確診地鐵緊急封站安徽洪水持續泛濫災民都靠自救（7月23日完整版1）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2a7b78bb15ec027d3dbde5cfe8a18466931333d4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:2a7b78bb15ec027d3dbde5cfe8a18466931333d4
+
+下载BT种子 [西藏同地三小时内发生6.6级和4.3级地震真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5dddaf4199e541fdc3769e0433ae68909515845a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5dddaf4199e541fdc3769e0433ae68909515845a
+
+下载BT种子 [《石濤聚焦》「舊金山領館隱藏FBI通緝犯也很快被關閉」美前情報總監：休士頓與舊金山可同時關閉多名來自中共空軍總院軍人被FBI鎖定抓捕唐娟出庭後逃入舊金山領事館「伺機透過外交途徑逃跑」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7aa46bcf8250caee2dc7df5c4ca9ef104067f4af.torrent)
+
+磁力链接 magnet:?xt=urn:btih:7aa46bcf8250caee2dc7df5c4ca9ef104067f4af
+
+下载BT种子 [德英外長會晤馬斯：將採取類似英國的措施.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/025fe0380e936de469ad51dffbb1b72a0b3e7db3.torrent)
+
+磁力链接 magnet:?xt=urn:btih:025fe0380e936de469ad51dffbb1b72a0b3e7db3
+
+下载BT种子 [《石濤聚焦》「舊金山領館隱藏FBI通緝犯也很快被關閉」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e616167dfb92dcce641307d0601fd840ccf8d53.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5e616167dfb92dcce641307d0601fd840ccf8d53
+
+下载BT种子 [【禁聞】家園被蓄洪中共要百姓「捨小家保大家」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5aa9437628e1f7eadd507f0a911dbe427fe593b4.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5aa9437628e1f7eadd507f0a911dbe427fe593b4
+
+下载BT种子 [第三集沒有一片雪花是無辜的真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f341bd40f9ff7e1bc9f02a25291bd340632a9ea8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:f341bd40f9ff7e1bc9f02a25291bd340632a9ea8
+
+下载BT种子 [英國反制中共國安法新增香港特別簽證290萬港人可申請.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/510800e1477ea303804f3ce57594a973f789e77f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:510800e1477ea303804f3ce57594a973f789e77f
+
+下载BT种子 [英議員支持法輪功反迫害外長關注.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a502c37f6e6469f58e62535139a879940734be2a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:a502c37f6e6469f58e62535139a879940734be2a
+
+下载BT种子 [大連傳出疫情各小區被封閉只准進不准出地鐵站所有列車不得停靠.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba1c38c4499ff9e389ed4f0ec60666968a1dd7f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4ba1c38c4499ff9e389ed4f0ec60666968a1dd7f
+
+下载BT种子 [【禁聞】南海問題美國攤牌美中滑向熱戰？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3454341b7ea54c590fed90e72f8d2ef3dea3945.torrent)
+
+磁力链接 magnet:?xt=urn:btih:b3454341b7ea54c590fed90e72f8d2ef3dea3945
+
+下载BT种子 [《石濤聚焦》「休士頓領館危機：川普-我想知道他們燒的是什麼？」袁弓夷-中領館出現叛逃者中共領事館非常安靜「很可能領館裡有FBI等待抓捕者」（2307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78d35913d4a19dc4307fa938fd41a1f4366eefe7.torrent)
+
+磁力链接 magnet:?xt=urn:btih:78d35913d4a19dc4307fa938fd41a1f4366eefe7
+
+下载BT种子 [安徽洪水多地持續泡在水中水庫無預警洩洪災民只能自救.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/24a88b92e94815e2b757f5dbc6a3627d093901e9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:24a88b92e94815e2b757f5dbc6a3627d093901e9
+
+下载BT种子 [华人回国更难！中共统一要求登机需要核酸检查真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3eccdc95cedb87300973bb11da2100598629ef7d.torrent)
+
+磁力链接 magnet:?xt=urn:btih:3eccdc95cedb87300973bb11da2100598629ef7d
+
+下载BT种子 [香港新增確診118例再破紀錄美洲疫情仍嚴峻南非佔非洲患者一半以上.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5aae36b0773aaea081a44a7c3279c9138e02ab5c.torrent)
+
+磁力链接 magnet:?xt=urn:btih:5aae36b0773aaea081a44a7c3279c9138e02ab5c
+
+下载BT种子 [【禁聞】反制中共威脅英國停止香港引渡協議.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/d75c737ef62365d576bf2cf9ceaa1d6fa147cdbc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:d75c737ef62365d576bf2cf9ceaa1d6fa147cdbc
+
+下载BT种子 [蓬佩奧親自敲定與羅冠聰一對一在倫敦會面.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/09d268e285afd22748e97222ed0d2e4e6cd5a7dc.torrent)
+
+磁力链接 magnet:?xt=urn:btih:09d268e285afd22748e97222ed0d2e4e6cd5a7dc
+
+下载BT种子 [【禁聞】中共做錯了什麼？專家告訴你.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ba2f6c92db7c6fd59c5741931ceac9e9e212a0b.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9ba2f6c92db7c6fd59c5741931ceac9e9e212a0b
+
+下载BT种子 [【#美國思想領袖】核心分析公司創辦人安德斯‧科爾博士：中共若成為全球霸權世界將是一個非常危險的地方；中共處理事情的虛僞態度是造成全球瘟疫的根源！｜#大紀元新聞網.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f026a53a7b37f58ddb9e25480bef3d63b762f6f.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4f026a53a7b37f58ddb9e25480bef3d63b762f6f
 
 下载BT种子 [蓬佩奧訪歐美英聯手對抗中共格局形成 (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f78423edb1b3be701dc03c6a3bffc54bbdeff3a2.torrent)
 
@@ -461,146 +568,6 @@
 下载BT种子 [洛杉磯13歲華裔男孩疑似染疫喪命家中去世前一週檢測結果竟呈現陰性.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c19a5bef89dec1d000a7b8afbe8cb9e14be71537.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c19a5bef89dec1d000a7b8afbe8cb9e14be71537
-
-下载BT种子 [來自大陸華人見聞中共打壓善良望結束中共邪惡暴政.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8c38856ec8dfe8d5bf0a8f51c15cdcf06d2c9805.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8c38856ec8dfe8d5bf0a8f51c15cdcf06d2c9805
-
-下载BT种子 [【全球新聞】美國務卿：中共迫害法輪功21年必須停止英國對香港實施武器禁運中止引渡條約(7月20日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/de68aea7495eedcbab7d713bd07dbfd863f2c1e2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:de68aea7495eedcbab7d713bd07dbfd863f2c1e2
-
-下载BT种子 [中共「羞澀」認了，三峽大壩有問題！安徽滁河炸堤洩洪！中殲11B永興島列陣，美B1B部署關島，中美隔空示威，南海一觸即發！若中共侵台，川普將被授權動用軍力？川普對華政策幕後推手竟然是華人！【07.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f9d05bb8127d8dec88e7c320572b8ae01fc9880.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5f9d05bb8127d8dec88e7c320572b8ae01fc9880
-
-下载BT种子 [三峽大壩有問題，中共「羞澀」承認；安徽滁河炸堤洩洪！中殲11B永興島列陣，美B1B部署關島，中美隔空示威，南海一觸即發！若中共侵台，川普將被授權動用軍力？川普對華政策高參竟然是華人！【07.20】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f181a5fd565dae79b6ea2ee3cea11bdea75d1039.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f181a5fd565dae79b6ea2ee3cea11bdea75d1039
-
-下载BT种子 [歐盟峰會延長2日各國角力「疫後重振基金」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/82b2db8948f66ec6358d348595b3333b09561754.torrent)
-
-磁力链接 magnet:?xt=urn:btih:82b2db8948f66ec6358d348595b3333b09561754
-
-下载BT种子 [烏魯木齊處「戰時狀態」英疫苗傳好消息.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d80533b1c907f153b384eddf3c12f29eaf1962b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:5d80533b1c907f153b384eddf3c12f29eaf1962b
-
-下载BT种子 [9千萬黨員或被定犯罪份子受制裁？退黨保平安！真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc683f0be682eded91aa1f5397ec60c88bf8ce74.torrent)
-
-磁力链接 magnet:?xt=urn:btih:cc683f0be682eded91aa1f5397ec60c88bf8ce74
-
-下载BT种子 [白宮恢復疫情簡報會醞釀新一輪刺激計劃.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708599a4c4815ea7174f0c648270e9c0e1766db.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4708599a4c4815ea7174f0c648270e9c0e1766db
-
-下载BT种子 [俄羅斯國際金環熱氣球節體驗飛行的自由.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b7792efe13e03cd23b5453627fdc73924f69350.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9b7792efe13e03cd23b5453627fdc73924f69350
-
-下载BT种子 [（中文字幕）美宗教自由大使：中共對信仰開戰是贏不了的戰爭.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4710041e7de419e64e48c3739809655be0c5213.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f4710041e7de419e64e48c3739809655be0c5213
-
-下载BT种子 [《石濤聚焦》「中共國專家：三峽大壩可擋原子彈泡水百年年更結實」「七下八上」全國大汛期「一江一水一湖」最麻煩21日第三次洪峰到來「五行中水為宇宙中萬物之本故為天滅中共」（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f8d4fcc3634e4e5217c5e659ca73c9ec6b49b357.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f8d4fcc3634e4e5217c5e659ca73c9ec6b49b357
-
-下载BT种子 [《石濤.News》「民調落後川普FOX專訪憤怒失態」班農：禁止中共國使用美元制裁習近平個人左媒：抗疫失敗企復甦無望「天意逼川普只能絕滅式打擊中共——美國民最大契約大選必勝」（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fe2113cac1f37067b662d8703004e3ee6d4cb09.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8fe2113cac1f37067b662d8703004e3ee6d4cb09
-
-下载BT种子 [中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外；评美国国务院最新声明;(政论天下第201集20200720)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ed8d0c9e09d436eb159232d36709af275792fd69.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ed8d0c9e09d436eb159232d36709af275792fd69
-
-下载BT种子 [美國務卿：中共迫害法輪功21年必須停止.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3cb59cb3a9ea2a0afbf11e23a6ebb6e950e82e4c.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3cb59cb3a9ea2a0afbf11e23a6ebb6e950e82e4c
-
-下载BT种子 [習近平「攬炒」沒收高層家族錢袋子；核研究所近百科學家集體辭職，有內幕更有嚴重問題（文昭談古論今20200720第788期） (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7de8e02763f16c275f1ef6db204eb80c696bef8a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7de8e02763f16c275f1ef6db204eb80c696bef8a
-
-下载BT种子 [習近平「攬炒」沒收高層家族錢袋子；核研究所近百科學家集體辭職，有內幕更有嚴重問題（文昭談古論今20200720第788期）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a65b7012a5079f22cbfcc601c254229294c3fe1f.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a65b7012a5079f22cbfcc601c254229294c3fe1f
-
-下载BT种子 [美国军机飞越北京上空？习近平神隐另有玄机！英国奋起。王毅玩起高级黑.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/169844adba3dee22b72e6cd449e17e7186884078.torrent)
-
-磁力链接 magnet:?xt=urn:btih:169844adba3dee22b72e6cd449e17e7186884078
-
-下载BT种子 [許章潤：中國正處風雨飄搖中共官員心灰意懶極權必敗天快亮了.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6859d1058d51d2046a8ecdfa4ccb43293f173ad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:e6859d1058d51d2046a8ecdfa4ccb43293f173ad
-
-下载BT种子 [【環球直擊】美國會議員聲援720反迫害英國將暫停與香引渡條約(7月20日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd1a2cf349d170b42c7d3777b23c4ad7320507f7.torrent)
-
-磁力链接 magnet:?xt=urn:btih:dd1a2cf349d170b42c7d3777b23c4ad7320507f7
-
-下载BT种子 [《石濤聚焦》「英國外相：無限期中止與香港引渡條約金融家巴斯：習近平外交—十足的自卑自傲」禁止向香港出口傷人武器——香港等同上海看待（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6b14981af722f2b892b744db8abff31a0176937.torrent)
-
-磁力链接 magnet:?xt=urn:btih:b6b14981af722f2b892b744db8abff31a0176937
-
-下载BT种子 [《石濤聚焦》「中共軍人狂吼：24小時拿下台灣」台灣：美方3艘航母群一定伺候中共軍人——舒舒服服的！「台灣防空導彈系統全球少有最先進的」（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/8227b5debced1f37c1ea90a168a2e95f2517fd3a.torrent)
-
-磁力链接 magnet:?xt=urn:btih:8227b5debced1f37c1ea90a168a2e95f2517fd3a
-
-下载BT种子 [《石濤聚焦》「美眾議員本週討論立法授權總統直接向中共國動武」在台灣遭到中共國攻擊時「防止台灣遭進犯法案」授予總統開戰權力胡錫進：今年聽過最大的笑話（2007）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/a57d98340a93e95d70de9f4a9df9fa0df19eec60.torrent)
-
-磁力链接 magnet:?xt=urn:btih:a57d98340a93e95d70de9f4a9df9fa0df19eec60
-
-下载BT种子 [【中國禁聞】7月19日完整版（字幕）🔥三峽洩洪加劇下游災情安徽半夜炸壩洩洪法輪功反迫害21年720悼念燭光遍及各地中國遭遇數十年最嚴重洪災中共消極應對新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/64af53b4ebd81fac13fd17571f16b7c5a97b797b.torrent)
-
-磁力链接 magnet:?xt=urn:btih:64af53b4ebd81fac13fd17571f16b7c5a97b797b
-
-下载BT种子 [港法輪功720反迫害無懼國安法堅持「解體中共」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/11652ed9c92b11a87d217c3b96265417e1a495ad.torrent)
-
-磁力链接 magnet:?xt=urn:btih:11652ed9c92b11a87d217c3b96265417e1a495ad
-
-下载BT种子 [紀念720反迫害21年全球法輪功講真相.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/7041fbc5394425c0682ef378ed0e34bad2077912.torrent)
-
-磁力链接 magnet:?xt=urn:btih:7041fbc5394425c0682ef378ed0e34bad2077912
-
-下载BT种子 [30國逾600政要聯署停止迫害法輪功.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/668125a87ad32f9aae831caa2319c350475d5b49.torrent)
-
-磁力链接 magnet:?xt=urn:btih:668125a87ad32f9aae831caa2319c350475d5b49
-
-下载BT种子 [法輪功反迫害21年美國會議員聲援.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/1a340cd46cd6d945293fc613262ffbe74dbd4385.torrent)
-
-磁力链接 magnet:?xt=urn:btih:1a340cd46cd6d945293fc613262ffbe74dbd4385
-
-下载BT种子 [美擬制裁中共黨員港學者：黨員身分已貶值.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca68fe0264e1b15c347a8ac3c206ca0f70500bb2.torrent)
-
-磁力链接 magnet:?xt=urn:btih:ca68fe0264e1b15c347a8ac3c206ca0f70500bb2
-
-下载BT种子 [英國將暫停與香港的引渡條約蓬佩奧訪倫敦將討論中國和香港問題.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc930c5bcbfdeb37836873569dcd1a77c3eea858.torrent)
-
-磁力链接 magnet:?xt=urn:btih:fc930c5bcbfdeb37836873569dcd1a77c3eea858
-
-下载BT种子 [長江第2號洪水導致安徽災情慘重巢湖創歷史最高水位.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c6569674cc1241ef262bafa83903e69d5e14d6e4.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c6569674cc1241ef262bafa83903e69d5e14d6e4
-
-下载BT种子 [全球逾60萬喪生港爆演藝圈群聚感染.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92d7a5fc16a279414b41ea80dd35793a7f820754.torrent)
-
-磁力链接 magnet:?xt=urn:btih:92d7a5fc16a279414b41ea80dd35793a7f820754
-
-下载BT种子 [【禁聞】法輪功反迫害21年720悼念燭光遍及各地.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4708a9f56bfc7dc5dda69568d5138e17caa86829.torrent)
-
-磁力链接 magnet:?xt=urn:btih:4708a9f56bfc7dc5dda69568d5138e17caa86829
-
-下载BT种子 [【禁聞】中國遭數十年最嚴重洪災官方消極應對中共遇到比洪災更難應對的危機？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/536759a936136637668ce64a5901a70a85a7ebde.torrent)
-
-磁力链接 magnet:?xt=urn:btih:536759a936136637668ce64a5901a70a85a7ebde
-
-下载BT种子 [【禁聞】川信TOT違約信託爆雷風暴已到？.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0925620b507c911f56a228bd655f74579c1289c9.torrent)
-
-磁力链接 magnet:?xt=urn:btih:0925620b507c911f56a228bd655f74579c1289c9
-
-下载BT种子 [【禁聞】新疆疫情緊急烏魯木齊進「戰時狀態」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bedee11640388cdb796b6321df10a819e039d8e.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3bedee11640388cdb796b6321df10a819e039d8e
 
 下载BT种子 [“顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集20200706)天亮时分.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/90204483cc09197b457dd77bd8270868f1759af0.torrent)
 
