@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WHKkw1)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/AVwy00)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[💥休斯頓總領事被抓贓！有人投誠，“留學生”撤離；蓬佩奧演說全記錄；中共性錄像脅迫美國大佬；並大舉竊取病毒研究；核檢19萬！大連搶購怕封城；北京不承認港BNO護照！預備役突集訓新聞拍案驚奇大宇.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e4283efffd8853faac498460bfe064d2dba455b3)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e4283efffd8853faac498460bfe064d2dba455b3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e4283efffd8853faac498460bfe064d2dba455b3
 
 在线观看：[【熱點互動特別節目】3位重量級嘉賓即時點評：蓬佩奧歷史性演講，代替川普發滅共檄文；將激勵中國民眾站起來，改變中共政權！蕭恩袁弓夷唐靖遠熱點互動07232020.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1ef165867f353ae7ba82d512901c82a3e811b3fc)
 
@@ -568,10 +572,6 @@
 在线观看：[香港增群聚感染川普將恢復疫情簡報會.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=080961037c1854c989411ecf82aa494cb4838299)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/080961037c1854c989411ecf82aa494cb4838299.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:080961037c1854c989411ecf82aa494cb4838299
-
-在线观看：[法輪功反迫害21年美國會議員聲援（二）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=91ded0cb671374c56671b3d9a0c8f6d5aca85974)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/91ded0cb671374c56671b3d9a0c8f6d5aca85974.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:91ded0cb671374c56671b3d9a0c8f6d5aca85974
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
