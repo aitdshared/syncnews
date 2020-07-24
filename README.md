@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zASK6T)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oJh1Z5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[突发！关闭成都美领馆。土共总领事耍赖不走！习近平对副主席亲信下狠手。国务卿发表新冷战宣言.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=bc1cb2d825d19b10a1436115613df8008b613b26)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc1cb2d825d19b10a1436115613df8008b613b26.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:bc1cb2d825d19b10a1436115613df8008b613b26
 
 在线观看：[《石濤聚焦》「美司法部：隱藏於舊金山領事館的嫌疑犯唐娟已經被抓捕」今日7.24晚些時分將出庭網傳：她自行走出領館「習近平嚇尿了出賣她」連帶出賣外交部發言人與胡錫進「出賣文化貫徹中共黨員骨髓」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=0dc3407a7c79556c94039d3a552bf6b5ea41c21c)
 
@@ -577,17 +581,9 @@
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/26e406ab6f1101c199370e899e8318be2ba784f2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:26e406ab6f1101c199370e899e8318be2ba784f2
 
-在线观看：[白宮疫情記者會川普建議民衆佩戴口罩.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7445ef5e4e2a563aed6f8c8fb289952a673317f9)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7445ef5e4e2a563aed6f8c8fb289952a673317f9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7445ef5e4e2a563aed6f8c8fb289952a673317f9
-
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/3474a7afbb379dfc738bd31cf6e4a6cf5306f08b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:3474a7afbb379dfc738bd31cf6e4a6cf5306f08b
-
-在线观看：[《石濤聚焦》「習辦媒體放風：北戴河會議不開也不是不可能」中國外交部成立習近平外交思想研究中心「討好習總之表推責以備亡共之時逃生為實」（2107）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=6fcdeec3814847b211265c111362251d51cee664)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/6fcdeec3814847b211265c111362251d51cee664.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:6fcdeec3814847b211265c111362251d51cee664
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
