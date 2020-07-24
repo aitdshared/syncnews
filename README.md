@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WKOHcf)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/LOXXhN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [揭密：為何美國關閉休斯頓中領館？有人叛逃？真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e53f3530acbe41112e02ad0debea6a32e1f409a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6e53f3530acbe41112e02ad0debea6a32e1f409a
+
+下载BT种子 [水稻全淹安徽泄洪区农民生活无望真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/46206113a6c12db9884f6bd06c10955e7f91f695.torrent)
+
+磁力链接 magnet:?xt=urn:btih:46206113a6c12db9884f6bd06c10955e7f91f695
 
 下载BT种子 [【禁聞】被FBI起訴的中共女軍人藏身舊金山中領館.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3a7741edbfda86fe914a1de1f508c8efcd4d3d81.torrent)
 
@@ -561,17 +569,9 @@
 
 磁力链接 magnet:?xt=urn:btih:d4cc12807868aa3421aff9635653d9bb4eed4279
 
-下载BT种子 [中國教育的失敗源於破壞傳統文化及灌輸黨文化真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/43dd4a7e6e968d10cf41799407bde7cfeff846e5.torrent)
-
-磁力链接 magnet:?xt=urn:btih:43dd4a7e6e968d10cf41799407bde7cfeff846e5
-
 下载BT种子 [黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cc3a51f3c523c9255cb9867136270c9443d515b.torrent)
 
 磁力链接 magnet:?xt=urn:btih:2cc3a51f3c523c9255cb9867136270c9443d515b
-
-下载BT种子 [驚聞三峽開啟7孔洩洪為自保顧不得下游洪水滔天真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/854413d46fb648cc54b4a24886d16dad02c08043.torrent)
-
-磁力链接 magnet:?xt=urn:btih:854413d46fb648cc54b4a24886d16dad02c08043
 
 下载BT种子 [【禁聞】三峽大壩再次加大洩洪安徽開閘炸堤疏洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be80a2c03bf059c5a481b2e5ea3ffb50e514ba01.torrent)
 
