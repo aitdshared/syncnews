@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oJh1Z5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/2umRhq)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[隱瞞中共軍方身分三人被捕唐娟藏中領館.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8eda8401bfb83fde6ca6af44bad163ebab7746cd)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8eda8401bfb83fde6ca6af44bad163ebab7746cd.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8eda8401bfb83fde6ca6af44bad163ebab7746cd
 
 在线观看：[突发！关闭成都美领馆。土共总领事耍赖不走！习近平对副主席亲信下狠手。国务卿发表新冷战宣言.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=bc1cb2d825d19b10a1436115613df8008b613b26)
 
@@ -568,10 +572,6 @@
 在线观看：[【禁聞】青海前政協委員王瑞琴：民企痛恨中共體制（2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c809e3a2bdb665b6aed2dbccf1706fdb64bff33a)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c809e3a2bdb665b6aed2dbccf1706fdb64bff33a.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c809e3a2bdb665b6aed2dbccf1706fdb64bff33a
-
-在线观看：[法輪大法信息中心主任談會美國務院官員.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7974261beeecc1251c1ad97b03361bdbf47e0737)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7974261beeecc1251c1ad97b03361bdbf47e0737.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7974261beeecc1251c1ad97b03361bdbf47e0737
 
 在线观看：[蓬佩奧訪歐美英聯手對抗中共格局形成.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a1a795f90688b6324a8a4fa64ac39cad57a8313b)
 
