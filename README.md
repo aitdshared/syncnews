@@ -21,13 +21,33 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PeiUhi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/F3s8Dy)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [迪奧早春度假時裝展盡顯意大利南部風情.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/0f8f98e57a2c7a206bc5fbd899a22b8fc675b43a.torrent)
+
+磁力链接 magnet:?xt=urn:btih:0f8f98e57a2c7a206bc5fbd899a22b8fc675b43a
+
+下载BT种子 [蓬佩奧再揭中共本質美對華政策巨變呼籲盟友及中國人民共同拋棄中共.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/92fb4804d7cf28e9006783917ca50c4e846a5665.torrent)
+
+磁力链接 magnet:?xt=urn:btih:92fb4804d7cf28e9006783917ca50c4e846a5665
+
+下载BT种子 [中國大陸以外確診超過1,555萬香港疫情繼續升溫多國確診人數創新高.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ec70ec84ce43921eb910cd13ae630c702eac0b9.torrent)
+
+磁力链接 magnet:?xt=urn:btih:9ec70ec84ce43921eb910cd13ae630c702eac0b9
+
+下载BT种子 [歐盟27國「疫後重振方案」交歐洲議會審核.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/aa8e23d50131469c61d6345274021a4fa1eb07ad.torrent)
+
+磁力链接 magnet:?xt=urn:btih:aa8e23d50131469c61d6345274021a4fa1eb07ad
+
+下载BT种子 [休斯頓中領館被關美不再容忍「間諜中心」.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/78fd173bfe4764fbccdcea61e3c5e8f04618e596.torrent)
+
+磁力链接 magnet:?xt=urn:btih:78fd173bfe4764fbccdcea61e3c5e8f04618e596
 
 下载BT种子 [《石濤聚焦》「彭佩奧：習近平是破產的極權主義代言人」全球所有愛好自由的國家與美國一道幫助中國人民改變中共「中共永遠是騙子我們絕不相信它只看它在幹什麼？！」（2307）.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/5b79b48d5a98bea7845d8f80d2054d44d36413f0.torrent)
 
@@ -552,22 +572,6 @@
 下载BT种子 [【禁聞】三峽大壩再次加大洩洪安徽開閘炸堤疏洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be80a2c03bf059c5a481b2e5ea3ffb50e514ba01.torrent)
 
 磁力链接 magnet:?xt=urn:btih:be80a2c03bf059c5a481b2e5ea3ffb50e514ba01
-
-下载BT种子 [长江2号洪水猛灌三峡大坝4天后抵达武汉真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/954b4f3b4b7d97d4ab8bc410ae874447987119e8.torrent)
-
-磁力链接 magnet:?xt=urn:btih:954b4f3b4b7d97d4ab8bc410ae874447987119e8
-
-下载BT种子 [【禁聞】華府「天滅中共」研討會感佩法輪功21年堅持.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/f11cc47135705db2ea5e8dca377e5a03d4d35876.torrent)
-
-磁力链接 magnet:?xt=urn:btih:f11cc47135705db2ea5e8dca377e5a03d4d35876
-
-下载BT种子 [【禁聞】720反迫害全球築真相長城和平抗暴喚良知.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3c18e9cfe6af5352f0f8ead68e65ae562c413766.torrent)
-
-磁力链接 magnet:?xt=urn:btih:3c18e9cfe6af5352f0f8ead68e65ae562c413766
-
-下载BT种子 [【微視頻】滅中共自救一個傳聞讓退黨成熱門.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6351ef864082119139462cd3bef0827be4311923.torrent)
-
-磁力链接 magnet:?xt=urn:btih:6351ef864082119139462cd3bef0827be4311923
 
 下载BT种子 [【全球新聞】美國務卿：中共迫害法輪功21年必須停止英國對香港實施武器禁運中止引渡條約(7月20日完整版) (1).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/154fc0db69936340c0a9666d6067743385137552.torrent)
 
