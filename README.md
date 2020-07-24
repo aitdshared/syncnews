@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EGeWZH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4t0Odi)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【724重播】台灣中央疫情指揮中心記者會.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=ec3fa0b5cebff0aa13a4c742971a452c392169b3)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec3fa0b5cebff0aa13a4c742971a452c392169b3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:ec3fa0b5cebff0aa13a4c742971a452c392169b3
 
 在线观看：[一切已经无法逆转，注定要来的会加速到来，“中国梦”快醒了.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=007619ca5a7058e5740dc367fa689d391832fd3d)
 
