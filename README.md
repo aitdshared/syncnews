@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MhyaE2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/XA5vjT)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【全球新聞】蓬佩奧再揭中共本質美對華政策巨變法國跟進華為5G禁令2028年前實質淘汰(7月23日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95a36a0a14740b1d3cb433bc2316dd2ab17cac32.torrent)
+
+磁力链接 magnet:?xt=urn:btih:95a36a0a14740b1d3cb433bc2316dd2ab17cac32
 
 下载BT种子 [防暗殺💥習近平堪比金三胖❗️舊金山中領館窩藏FBI通緝犯；總領事犯大忌涉偽造證件；川普將關掉更多使館？！蓬佩奧發表「新冷戰」檄文！美整備軍力抗中共，制定「無人武器」作戰計劃【新聞看點07.23】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6372a4cc3c09c9c2687a09b26aec8a81f66e86d8.torrent)
 
@@ -564,14 +568,6 @@
 下载BT种子 [老百姓被強遷多年，無家可歸！向中共跪求真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c11ac17b315952561d509d06fec06dddd1013a26.torrent)
 
 磁力链接 magnet:?xt=urn:btih:c11ac17b315952561d509d06fec06dddd1013a26
-
-下载BT种子 [中国正在进入失序状态，官员心理：谁爱管谁管，爱咋咋地，政府管控能力正在快速弱化.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ac4c6da14270aeaa8b20fb711364ffdcad42598.torrent)
-
-磁力链接 magnet:?xt=urn:btih:9ac4c6da14270aeaa8b20fb711364ffdcad42598
-
-下载BT种子 [美國務院：中共迫害法輪功必須停止！真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2cdb8f5189fc915f56e2c6eea02c71c0d4a286bc.torrent)
-
-磁力链接 magnet:?xt=urn:btih:2cdb8f5189fc915f56e2c6eea02c71c0d4a286bc
 
 下载BT种子 [【禁聞】三峽大壩再次加大洩洪安徽開閘炸堤疏洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be80a2c03bf059c5a481b2e5ea3ffb50e514ba01.torrent)
 
