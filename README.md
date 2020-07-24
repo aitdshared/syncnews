@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rmTcIH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iHHkml)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[中共抗疫真厉害，能救的人都给逼死了真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=691bb1787afe52725175342594e9da362fd3f775)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/691bb1787afe52725175342594e9da362fd3f775.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:691bb1787afe52725175342594e9da362fd3f775
 
 在线观看：[【環球直擊】湖北恩施停水四天「吸糞車」送水引發議論港版「火神山」啟用建商同武漢都是中共國企（7月24日完整版1）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e3687ed5c72d1378bc290213572ab7789af0352a)
 
@@ -564,10 +568,6 @@
 在线观看：[《石濤聚焦》「7.21-今日長江淮河黃河齊降大暴雨」湖北恩施清江-堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f032955fa6e6c7860d3d1048da8b56e0886e289f)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f032955fa6e6c7860d3d1048da8b56e0886e289f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f032955fa6e6c7860d3d1048da8b56e0886e289f
-
-在线观看：[新唐人專題系列片：魔鬼在統治著我們的世界第二集：歐洲發端.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=747af808002f0bb982328d1c4be49eee34eb6c5b)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/747af808002f0bb982328d1c4be49eee34eb6c5b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:747af808002f0bb982328d1c4be49eee34eb6c5b
 
 在线观看：[【重播721】白宮發言人媒體簡報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=362448f122e667e3b122a5052512cf97f32177da)
 
