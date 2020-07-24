@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/sFn5sl)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M0rivw)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「習近平效仿當年薄熙來：軍警包圍美國成都領事館」中共宣布對等報復-關閉成都領事館——報書單式自卑與傲慢營造“人質外交”氛圍-欺騙黨國強大足以讓百姓愛國而死「炮竹聲四起百姓期待中美開戰」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f743d05e652208a08b73d6f58b3ed0d74047b7cf)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f743d05e652208a08b73d6f58b3ed0d74047b7cf.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f743d05e652208a08b73d6f58b3ed0d74047b7cf
 
 在线观看：[西歐疫情反彈全球多國新確診破紀錄.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3aa58aa951edec7d51348c85454483e72cfa3ec9)
 
