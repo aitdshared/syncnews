@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Gd7yRs)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PSZ6H5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[美中關係緊張之際中方向美採購玉米創新高川普批美中貿易協議已不太有意義.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=0a4fbbc30d479d2b3785528ff5c13e8091caf898)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a4fbbc30d479d2b3785528ff5c13e8091caf898.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:0a4fbbc30d479d2b3785528ff5c13e8091caf898
+
+在线观看：[中共不能代表中國人民蓬佩奧邀王丹魏京生出席演說.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=453e06948b9397fd8b27e654560a37d01ef39f71)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/453e06948b9397fd8b27e654560a37d01ef39f71.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:453e06948b9397fd8b27e654560a37d01ef39f71
 
 在线观看：[《石濤聚焦》「習近平效仿當年薄熙來：軍警包圍美國成都領事館」中共宣布對等報復-關閉成都領事館——報書單式自卑與傲慢營造“人質外交”氛圍-欺騙黨國強大足以讓百姓愛國而死「炮竹聲四起百姓期待中美開戰」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f743d05e652208a08b73d6f58b3ed0d74047b7cf)
 
