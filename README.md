@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/tsCe6P)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WHKkw1)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【熱點互動特別節目】3位重量級嘉賓即時點評：蓬佩奧歷史性演講，代替川普發滅共檄文；將激勵中國民眾站起來，改變中共政權！蕭恩袁弓夷唐靖遠熱點互動07232020.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1ef165867f353ae7ba82d512901c82a3e811b3fc)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1ef165867f353ae7ba82d512901c82a3e811b3fc.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1ef165867f353ae7ba82d512901c82a3e811b3fc
 
 在线观看：[【724重播】台灣中央疫情指揮中心記者會.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=ec3fa0b5cebff0aa13a4c742971a452c392169b3)
 
@@ -549,10 +553,6 @@
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/747af808002f0bb982328d1c4be49eee34eb6c5b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:747af808002f0bb982328d1c4be49eee34eb6c5b
 
-在线观看：[美商務部再制裁11家中企列實體名單.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=933c06fa7a9c54754076240570434842d5460173)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/933c06fa7a9c54754076240570434842d5460173.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:933c06fa7a9c54754076240570434842d5460173
-
 在线观看：[《魔鬼在統治世界》系列片揭共產主義本質.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4550aeb8ea41fa2ea8dd7e793234516d2561f1c8)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4550aeb8ea41fa2ea8dd7e793234516d2561f1c8.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4550aeb8ea41fa2ea8dd7e793234516d2561f1c8
@@ -572,10 +572,6 @@
 在线观看：[法輪功反迫害21年美國會議員聲援（二）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=91ded0cb671374c56671b3d9a0c8f6d5aca85974)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/91ded0cb671374c56671b3d9a0c8f6d5aca85974.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:91ded0cb671374c56671b3d9a0c8f6d5aca85974
-
-在线观看：[《石濤.News》「華為禁令2個月後台積電市值突10兆行業老大」華為依靠聯發科-股價20台積電變相「與神同行」股價387「聯發科老闆：如能重來我們絕不會到大陸建廠」（2107）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f150c92e0bff4a11769867158b0bb67631bf8965)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f150c92e0bff4a11769867158b0bb67631bf8965.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f150c92e0bff4a11769867158b0bb67631bf8965
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
