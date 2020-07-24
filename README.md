@@ -25,13 +25,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/lKmwSy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oN3AxR)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[西歐疫情反彈全球多國新確診破紀錄.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3aa58aa951edec7d51348c85454483e72cfa3ec9)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/3aa58aa951edec7d51348c85454483e72cfa3ec9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:3aa58aa951edec7d51348c85454483e72cfa3ec9
+
+在线观看：[北京地產大亨任志強被開除黨籍網絡炸鍋.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7ce4b8d7c7dc5be0d53b573f63cba9ddaa99ebfa)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7ce4b8d7c7dc5be0d53b573f63cba9ddaa99ebfa.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7ce4b8d7c7dc5be0d53b573f63cba9ddaa99ebfa
+
+在线观看：[中共關成都美領館王立軍出逃案受關注.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=07c45bac4ff39c83a46cb62fb78b920707d12515)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/07c45bac4ff39c83a46cb62fb78b920707d12515.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:07c45bac4ff39c83a46cb62fb78b920707d12515
+
+在线观看：[台灣女生赴港遭羈押不懼中共堅持為港發聲.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=01aa849feb3b9b0adbe3ade91983366e65af2818)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/01aa849feb3b9b0adbe3ade91983366e65af2818.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:01aa849feb3b9b0adbe3ade91983366e65af2818
 
 在线观看：[新唐人推出系列專題片魔鬼在統治著我們的世界第五集輸出革命.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=61a3fbce8c370d5d179ecd2880f3713eb1ae57b6)
 
