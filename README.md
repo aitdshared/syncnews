@@ -21,13 +21,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JNXcoy)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Kvf2ix)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [【禁聞】災情嚴重上不了熱搜安徽民眾炸鍋.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bef80bb2a63b2ab7853ae6852acc4b6956c6049.torrent)
+
+磁力链接 magnet:?xt=urn:btih:4bef80bb2a63b2ab7853ae6852acc4b6956c6049
+
+下载BT种子 [【中國禁聞】7月23日完整版🔥災情嚴重上不了熱搜安徽民眾炸鍋；四面楚歌下習近平露面再提「經濟內循環」；被FBI起訴的中共女軍人藏身舊金山中領館。.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/41ad697afb01acee78f58638a2aef596ed06bb11.torrent)
+
+磁力链接 magnet:?xt=urn:btih:41ad697afb01acee78f58638a2aef596ed06bb11
 
 下载BT种子 [【全球新聞】蓬佩奧再揭中共本質美對華政策巨變法國跟進華為5G禁令2028年前實質淘汰(7月23日完整版).mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/95a36a0a14740b1d3cb433bc2316dd2ab17cac32.torrent)
 
@@ -560,14 +568,6 @@
 下载BT种子 [新疆爆發疫情疑實際相當嚴重曝一夜“封城”真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/3bb7662c8482a07c5008818067df93dbf54b9706.torrent)
 
 磁力链接 magnet:?xt=urn:btih:3bb7662c8482a07c5008818067df93dbf54b9706
-
-下载BT种子 [退黨途徑真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/103da7a42775ff2bfd0b841e8463fdd26f57a7c6.torrent)
-
-磁力链接 magnet:?xt=urn:btih:103da7a42775ff2bfd0b841e8463fdd26f57a7c6
-
-下载BT种子 [老百姓被強遷多年，無家可歸！向中共跪求真相傳媒.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/c11ac17b315952561d509d06fec06dddd1013a26.torrent)
-
-磁力链接 magnet:?xt=urn:btih:c11ac17b315952561d509d06fec06dddd1013a26
 
 下载BT种子 [【禁聞】三峽大壩再次加大洩洪安徽開閘炸堤疏洪.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/be80a2c03bf059c5a481b2e5ea3ffb50e514ba01.torrent)
 
