@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p2iErP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/d3GXLD)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【重播724】川普總統發表講話並簽署降低藥品價格的行政令（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d1de2db5153ea4fe2cd0411875b446f4bd06360c)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d1de2db5153ea4fe2cd0411875b446f4bd06360c.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d1de2db5153ea4fe2cd0411875b446f4bd06360c
 
 在线观看：[《石濤聚焦》「2小時後休士頓領事館將關閉總領事蔡偉曾明確：拒絕關閉」中共外交部發言人表示：領館一切如常「美方可吊銷簽證直接抓人」原因：領館確藏有黑名單者或抓美國人——人質外交？（2407）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=02dc1b70a90b7b9895c0ea5517f980bf39961b7f)
 
@@ -584,18 +588,6 @@
 在线观看：[【唐靖遠快評】習近平4大危機罩頂！隱身3周後與企業家會談，經濟比洪災更嚴峻？美國制裁還不是最致命熱點互動07212020.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=955570a4937c79719dceeead97129fe401ea8670)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/955570a4937c79719dceeead97129fe401ea8670.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:955570a4937c79719dceeead97129fe401ea8670
-
-在线观看：[【禁聞】美國區分中共和中國中共忙綑綁.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=24a57bdf466a57582543c403e0b29c1a9bfb3d69)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/24a57bdf466a57582543c403e0b29c1a9bfb3d69.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:24a57bdf466a57582543c403e0b29c1a9bfb3d69
-
-在线观看：[【禁聞】美國政府中共必須立即停止迫害法輪功.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=99c28a5ebd2ac664776d1fc22f291a6f66bad86f)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/99c28a5ebd2ac664776d1fc22f291a6f66bad86f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:99c28a5ebd2ac664776d1fc22f291a6f66bad86f
-
-在线观看：[【禁聞】青海前政協委員王瑞琴：民企痛恨中共體制（2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c809e3a2bdb665b6aed2dbccf1706fdb64bff33a)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c809e3a2bdb665b6aed2dbccf1706fdb64bff33a.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c809e3a2bdb665b6aed2dbccf1706fdb64bff33a
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
