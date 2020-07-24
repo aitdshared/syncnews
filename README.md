@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M4yI8z)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/rmTcIH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【環球直擊】湖北恩施停水四天「吸糞車」送水引發議論港版「火神山」啟用建商同武漢都是中共國企（7月24日完整版1）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e3687ed5c72d1378bc290213572ab7789af0352a)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e3687ed5c72d1378bc290213572ab7789af0352a.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e3687ed5c72d1378bc290213572ab7789af0352a
 
 在线观看：[為709律師療傷名中醫披露中共迫害觸目驚心真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8701b4831bfad22b30331fee3c3033fba9cb5ea9)
 
@@ -568,10 +572,6 @@
 在线观看：[【重播721】白宮發言人媒體簡報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=362448f122e667e3b122a5052512cf97f32177da)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/362448f122e667e3b122a5052512cf97f32177da.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:362448f122e667e3b122a5052512cf97f32177da
-
-在线观看：[江西安徽多地持續被洪水圍困安徽一個鎮上萬人被困在洪水中多日.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=bdc532208ad1dd2659b653852dcc0eaa416cf1d9)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdc532208ad1dd2659b653852dcc0eaa416cf1d9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:bdc532208ad1dd2659b653852dcc0eaa416cf1d9
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
