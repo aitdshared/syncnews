@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vxO0Vk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/kG7gER)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[三峡大坝变形渗漏中共专家仍狂言：大坝可挡核武真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=129edacd2a6fb9a090692914a4f1a2f0d5c40223)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/129edacd2a6fb9a090692914a4f1a2f0d5c40223.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:129edacd2a6fb9a090692914a4f1a2f0d5c40223
 
 在线观看：[中国人不再爱国真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=011f95cf09c8b01b24df594b0c77f4b506fe83e3)
 
@@ -568,10 +572,6 @@
 在线观看：[紀念720反迫害21年全球法輪功學員傳真相.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=56ecf74aa0f8e4130ac32599f6048fe9cca113b6)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/56ecf74aa0f8e4130ac32599f6048fe9cca113b6.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:56ecf74aa0f8e4130ac32599f6048fe9cca113b6
-
-在线观看：[《石濤聚焦》「今日長江淮河黃河齊降大暴雨」湖北恩施清江堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」（2107）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d19dd1d99dca28ac7229d970bbc20ca4281c3581)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d19dd1d99dca28ac7229d970bbc20ca4281c3581.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d19dd1d99dca28ac7229d970bbc20ca4281c3581
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
