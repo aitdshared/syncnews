@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GNObsP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/p2iErP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「2小時後休士頓領事館將關閉總領事蔡偉曾明確：拒絕關閉」中共外交部發言人表示：領館一切如常「美方可吊銷簽證直接抓人」原因：領館確藏有黑名單者或抓美國人——人質外交？（2407）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=02dc1b70a90b7b9895c0ea5517f980bf39961b7f)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/02dc1b70a90b7b9895c0ea5517f980bf39961b7f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:02dc1b70a90b7b9895c0ea5517f980bf39961b7f
 
 在线观看：[（字幕版）蓬佩奧重磅演講全文：共產中國與自由世界未來.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7c63bcef85f07d366cbcfd37ea6d8d68c2c3063d)
 
