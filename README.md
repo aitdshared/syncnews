@@ -25,7 +25,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M0rivw)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Gd7yRs)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -557,10 +557,6 @@
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7974261beeecc1251c1ad97b03361bdbf47e0737.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7974261beeecc1251c1ad97b03361bdbf47e0737
 
-在线观看：[中共內鬥洶湧💥，「明天系」公然叫板！美制裁11中企入黑名單，蘋果微軟供應商也上榜！英正式宣布中止引渡協議！不怕與世界脫鉤，中共最怕「這個」！病毒有眼，藍絲群感染？【新聞看點李沐陽07.21】.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f14e14cf5cd85763e3a661ee15aee9e05da8df05)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f14e14cf5cd85763e3a661ee15aee9e05da8df05.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f14e14cf5cd85763e3a661ee15aee9e05da8df05
-
 在线观看：[蓬佩奧訪歐美英聯手對抗中共格局形成.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a1a795f90688b6324a8a4fa64ac39cad57a8313b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a795f90688b6324a8a4fa64ac39cad57a8313b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a1a795f90688b6324a8a4fa64ac39cad57a8313b
@@ -584,10 +580,6 @@
 在线观看：[【重播721】川普總統主持中共病毒疫情通報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=43af102a2cd8d060bed9b4620e259d5832c1fb47)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/43af102a2cd8d060bed9b4620e259d5832c1fb47.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:43af102a2cd8d060bed9b4620e259d5832c1fb47
-
-在线观看：[意外！此人将出任总理？习近平被迫让步。英美联手制共，刘大使耍宝！美国制裁更多中企，扯上苹果.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=61ddbf2fd14a4da3b5e86d74eef2426314b40f96)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/61ddbf2fd14a4da3b5e86d74eef2426314b40f96.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:61ddbf2fd14a4da3b5e86d74eef2426314b40f96
 
 在线观看：[《石濤聚焦》「習辦媒體放風：北戴河會議不開也不是不可能」中國外交部成立習近平外交思想研究中心「討好習總之表推責以備亡共之時逃生為實」（2107）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=6fcdeec3814847b211265c111362251d51cee664)
 
