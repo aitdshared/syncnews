@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PSZ6H5)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BmP8Td)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「美司法部：隱藏於舊金山領事館的嫌疑犯唐娟已經被抓捕」今日7.24晚些時分將出庭網傳：她自行走出領館「習近平嚇尿了出賣她」連帶出賣外交部發言人與胡錫進「出賣文化貫徹中共黨員骨髓」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=0dc3407a7c79556c94039d3a552bf6b5ea41c21c)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/0dc3407a7c79556c94039d3a552bf6b5ea41c21c.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:0dc3407a7c79556c94039d3a552bf6b5ea41c21c
 
 在线观看：[美中關係緊張之際中方向美採購玉米創新高川普批美中貿易協議已不太有意義.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=0a4fbbc30d479d2b3785528ff5c13e8091caf898)
 
