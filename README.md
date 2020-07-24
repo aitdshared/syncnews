@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KobatJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3qhIoG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「休士頓領事館危機同時FBI在全美25座城市抓捕中共軍方間諜」中美建交40年最大規模美司法部再聲明：已抓捕4人1人逃避至中共國舊金山領事館「美方已從休士頓領事館獲得確鑿名單證據？」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=55158dc0752e4d1e1707901f79569f76c7f87fec)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/55158dc0752e4d1e1707901f79569f76c7f87fec.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:55158dc0752e4d1e1707901f79569f76c7f87fec
 
 在线观看：[日本720活動民眾：中共很壞而並非中國人民迫害是嚴重的犯罪行為.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e3c0df785e4b0685769e616f73ef9b859eb69e10)
 
@@ -568,10 +572,6 @@
 在线观看：[《石濤聚焦》「突發：美國司法部起訴2名中共國人盜竊美國疫苗資訊」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4a73ae65b4b69428cc79f4f16b494f563f7b8997)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a73ae65b4b69428cc79f4f16b494f563f7b8997.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4a73ae65b4b69428cc79f4f16b494f563f7b8997
-
-在线观看：[紀念720反迫害21年全球法輪功學員傳真相.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=56ecf74aa0f8e4130ac32599f6048fe9cca113b6)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/56ecf74aa0f8e4130ac32599f6048fe9cca113b6.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:56ecf74aa0f8e4130ac32599f6048fe9cca113b6
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
