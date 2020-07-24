@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JioNdO)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/GNObsP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[（字幕版）蓬佩奧重磅演講全文：共產中國與自由世界未來.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7c63bcef85f07d366cbcfd37ea6d8d68c2c3063d)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c63bcef85f07d366cbcfd37ea6d8d68c2c3063d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7c63bcef85f07d366cbcfd37ea6d8d68c2c3063d
+
+在线观看：[【重播724】美國白宮發言人新聞簡報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7c13db1683885efb16c9e667013f32171b38026d)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7c13db1683885efb16c9e667013f32171b38026d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7c13db1683885efb16c9e667013f32171b38026d
 
 在线观看：[激斗！土共关闭成都美领馆。驻美总领事却耍赖不走！习近平对副主席亲信下狠手。国务卿发表新冷战宣言.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=32db313dbbea820578809b8c634a91b4529068d0)
 
@@ -584,14 +592,6 @@
 在线观看：[【禁聞】青海前政協委員王瑞琴：民企痛恨中共體制（2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c809e3a2bdb665b6aed2dbccf1706fdb64bff33a)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c809e3a2bdb665b6aed2dbccf1706fdb64bff33a.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c809e3a2bdb665b6aed2dbccf1706fdb64bff33a
-
-在线观看：[蓬佩奧訪歐美英聯手對抗中共格局形成.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a1a795f90688b6324a8a4fa64ac39cad57a8313b)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a795f90688b6324a8a4fa64ac39cad57a8313b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a1a795f90688b6324a8a4fa64ac39cad57a8313b
-
-在线观看：[安妮不畏滅口之危曝光活摘器官惡行真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=26e406ab6f1101c199370e899e8318be2ba784f2)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/26e406ab6f1101c199370e899e8318be2ba784f2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:26e406ab6f1101c199370e899e8318be2ba784f2
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
