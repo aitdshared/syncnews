@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/s5ifbA)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/6V1P1O)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[美吹集結號，籲中國人對抗中共；關閉中領館，爆出新內幕；反共「四騎士」傳遞五大信息；美中會斷交嗎？（2020.7.24）｜世界的十字路口唐浩.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=09bdb5b50a89ea21d1e943b1ede40af2c9db10c1)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/09bdb5b50a89ea21d1e943b1ede40af2c9db10c1.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:09bdb5b50a89ea21d1e943b1ede40af2c9db10c1
 
 在线观看：[中共抗疫真厉害，能救的人都给逼死了真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=691bb1787afe52725175342594e9da362fd3f775)
 
@@ -568,10 +572,6 @@
 在线观看：[《石濤聚焦》「7.21-今日長江淮河黃河齊降大暴雨」湖北恩施清江-堰塞湖官方隨時「瞬間潰壩」長江副總工程師陳桂亞「三峽大壩無法-包打天下」中下游被淹降水太多啊⋯⋯？！黃萬里遺言「武漢必淹」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f032955fa6e6c7860d3d1048da8b56e0886e289f)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f032955fa6e6c7860d3d1048da8b56e0886e289f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f032955fa6e6c7860d3d1048da8b56e0886e289f
-
-在线观看：[【重播721】白宮發言人媒體簡報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=362448f122e667e3b122a5052512cf97f32177da)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/362448f122e667e3b122a5052512cf97f32177da.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:362448f122e667e3b122a5052512cf97f32177da
 
 在线观看：[黄之锋正式登记参选不畏打压抗争到最后一刻真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2cc3a51f3c523c9255cb9867136270c9443d515b)
 
