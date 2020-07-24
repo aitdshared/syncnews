@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MxzJyH)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M4yI8z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[為709律師療傷名中醫披露中共迫害觸目驚心真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8701b4831bfad22b30331fee3c3033fba9cb5ea9)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8701b4831bfad22b30331fee3c3033fba9cb5ea9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8701b4831bfad22b30331fee3c3033fba9cb5ea9
 
 在线观看：[【禁聞】洪水淹沒家園災情和求救信息上不了微博熱搜安徽民眾炸鍋.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b222ac04384610606cba70569ff5804effd668c9)
 
@@ -560,10 +564,6 @@
 在线观看：[新唐人專題系列片：魔鬼在統治著我們的世界第二集：歐洲發端.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=747af808002f0bb982328d1c4be49eee34eb6c5b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/747af808002f0bb982328d1c4be49eee34eb6c5b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:747af808002f0bb982328d1c4be49eee34eb6c5b
-
-在线观看：[《魔鬼在統治世界》系列片揭共產主義本質.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4550aeb8ea41fa2ea8dd7e793234516d2561f1c8)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4550aeb8ea41fa2ea8dd7e793234516d2561f1c8.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4550aeb8ea41fa2ea8dd7e793234516d2561f1c8
 
 在线观看：[【重播721】白宮發言人媒體簡報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=362448f122e667e3b122a5052512cf97f32177da)
 
