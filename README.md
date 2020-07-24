@@ -25,7 +25,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/BmP8Td)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zASK6T)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -573,10 +573,6 @@
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1a795f90688b6324a8a4fa64ac39cad57a8313b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a1a795f90688b6324a8a4fa64ac39cad57a8313b
 
-在线观看：[习近平加速思想研究中心成立！蓬佩奥声明点死穴，美英联手灭共！班农催川普下决心！（老北京茶馆第347集20200721）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c08918a78302c0af87d2130cca2a5c6098a50966)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c08918a78302c0af87d2130cca2a5c6098a50966.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c08918a78302c0af87d2130cca2a5c6098a50966
-
 在线观看：[安妮不畏滅口之危曝光活摘器官惡行真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=26e406ab6f1101c199370e899e8318be2ba784f2)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/26e406ab6f1101c199370e899e8318be2ba784f2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:26e406ab6f1101c199370e899e8318be2ba784f2
@@ -588,10 +584,6 @@
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/3474a7afbb379dfc738bd31cf6e4a6cf5306f08b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:3474a7afbb379dfc738bd31cf6e4a6cf5306f08b
-
-在线观看：[【重播721】川普總統主持中共病毒疫情通報會（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=43af102a2cd8d060bed9b4620e259d5832c1fb47)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/43af102a2cd8d060bed9b4620e259d5832c1fb47.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:43af102a2cd8d060bed9b4620e259d5832c1fb47
 
 在线观看：[《石濤聚焦》「習辦媒體放風：北戴河會議不開也不是不可能」中國外交部成立習近平外交思想研究中心「討好習總之表推責以備亡共之時逃生為實」（2107）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=6fcdeec3814847b211265c111362251d51cee664)
 
