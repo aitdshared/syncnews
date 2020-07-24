@@ -21,13 +21,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/WfEKPG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/MhyaE2)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+下载BT种子 [防暗殺💥習近平堪比金三胖❗️舊金山中領館窩藏FBI通緝犯；總領事犯大忌涉偽造證件；川普將關掉更多使館？！蓬佩奧發表「新冷戰」檄文！美整備軍力抗中共，制定「無人武器」作戰計劃【新聞看點07.23】.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/6372a4cc3c09c9c2687a09b26aec8a81f66e86d8.torrent)
+
+磁力链接 magnet:?xt=urn:btih:6372a4cc3c09c9c2687a09b26aec8a81f66e86d8
 
 下载BT种子 [袁弓夷爆料：我收到內幕消息休斯頓中領館內有人叛逃想給美方爆猛料.mp4](https://raw.githubusercontent.com/aitdshared/syncnews/master/2aadf3d969f164d938b7ef5767fec45b41c70817.torrent)
 
