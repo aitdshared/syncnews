@@ -25,13 +25,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/oxtiYT)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EYBUB5)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[紐約一名華裔學生因持槍拍照紀念六四被校罰將控告校方.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9da762dcd351f633a147af0004d35318ffdad990)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9da762dcd351f633a147af0004d35318ffdad990.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9da762dcd351f633a147af0004d35318ffdad990
+
+在线观看：[口罩新文化流行從生活必備到時尚宣言.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4988d89dfccaf111207ffa2c347c5353ab7f2c60)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4988d89dfccaf111207ffa2c347c5353ab7f2c60.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4988d89dfccaf111207ffa2c347c5353ab7f2c60
+
+在线观看：[千億美元助秋季開學川普賦予家長選擇權.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=38627ee6ba1ad7aae9bc9402a606adb933efe6ae)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/38627ee6ba1ad7aae9bc9402a606adb933efe6ae.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:38627ee6ba1ad7aae9bc9402a606adb933efe6ae
 
 在线观看：[蓬佩奥的灭共宣言,四大难题与解决方案;制裁习近平和全体党员概率大增;中美完全丧失互信;大量中共间谍将投诚西方（政论天下第203集20200724）天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=07c45c37752362325545c040436ac75e1144ec77)
 
@@ -588,10 +600,6 @@
 在线观看：[毛鄧江胡都不敢搞，習近平外交思想研究中心成立看王毅的私心；洪峰一過，中共科學家便搬出“萬年一遇”論調，稱三峡大坝抵禦原子彈！美印聯合軍演，死扣紮緊（江峰漫談20200721第208期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=55fbe8492a18ac4f98188e8be3f90a3265534ef9)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/55fbe8492a18ac4f98188e8be3f90a3265534ef9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:55fbe8492a18ac4f98188e8be3f90a3265534ef9
-
-在线观看：[又一個吹哨人-閻麗夢真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8089bca76db3b1e3fb951c8388ea523093e76888)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8089bca76db3b1e3fb951c8388ea523093e76888.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8089bca76db3b1e3fb951c8388ea523093e76888
 
 在线观看：[公安搶劫車後，再賣給老百姓，循環利用真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b2e2e6f73f3971f175772ec3c7ae90ca18284d07)
 
