@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/jaEekp)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/M3xiwH)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[14名迫害法輪功官員名單呈加國外長面臨制裁真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=13405c9bef6ade4b7b6179bf97615f928d48882f)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/13405c9bef6ade4b7b6179bf97615f928d48882f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:13405c9bef6ade4b7b6179bf97615f928d48882f
 
 在线观看：[【重播724】川普總統發表講話並簽署降低藥品價格的行政令（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d1de2db5153ea4fe2cd0411875b446f4bd06360c)
 
@@ -580,10 +584,6 @@
 在线观看：[公安搶劫車後，再賣給老百姓，循環利用真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b2e2e6f73f3971f175772ec3c7ae90ca18284d07)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2e2e6f73f3971f175772ec3c7ae90ca18284d07.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b2e2e6f73f3971f175772ec3c7ae90ca18284d07
-
-在线观看：[【禁聞】中國房市逆向升溫背後有何貓膩.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b9bb81ae493504428509c9d64c10f3e48894b56d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b9bb81ae493504428509c9d64c10f3e48894b56d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b9bb81ae493504428509c9d64c10f3e48894b56d
 
 在线观看：[【唐靖遠快評】習近平4大危機罩頂！隱身3周後與企業家會談，經濟比洪災更嚴峻？美國制裁還不是最致命熱點互動07212020.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=955570a4937c79719dceeead97129fe401ea8670)
 
