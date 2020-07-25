@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/w1gEP7)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qeTFX7)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[充當中共代理人新加坡男子在美國認罪.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b055ed41daeb4d62ef4372948ff2d54830fd42e1)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b055ed41daeb4d62ef4372948ff2d54830fd42e1.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b055ed41daeb4d62ef4372948ff2d54830fd42e1
+
+在线观看：[蓬佩奧伐共演說專家：中共讓美國兩黨團結一致.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9b10552db0e47cb289f0cd78762399eb80678f63)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9b10552db0e47cb289f0cd78762399eb80678f63.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9b10552db0e47cb289f0cd78762399eb80678f63
 
 在线观看：[【華府衝擊播】專訪BenedictRogers：中共國安法毀香港自由必須受罰.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c7d408944b05d9f502fd3f6b297bc600f2073abb)
 
@@ -592,10 +600,6 @@
 在线观看：[【瘟疫與中共】做中共擴張的落腳點智利疫情飆升（二）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2ed1a6c48b967a17686aec7c9c2e29f16ce2232b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ed1a6c48b967a17686aec7c9c2e29f16ce2232b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:2ed1a6c48b967a17686aec7c9c2e29f16ce2232b
-
-在线观看：[全球1500萬確診港日澳疫情猛烈反彈.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=063988a98fcd10749862c16c5ff09b2bcc3bf8b5)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/063988a98fcd10749862c16c5ff09b2bcc3bf8b5.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:063988a98fcd10749862c16c5ff09b2bcc3bf8b5
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
