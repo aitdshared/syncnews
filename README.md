@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/4YfAlD)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZAD64o)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【中國禁聞】7月24日完整版（字幕）🔥被迫離開家園的農民和商家現況如何？記者直擊：安徽洩洪農民商家損失慘重；八百里巢湖百年最大洪水哈爾濱冰雹砸死村民；蓬佩奥：對抗中共是時代任務！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f2204c12a832a06001c636ea7dbbc3b308f589ae)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2204c12a832a06001c636ea7dbbc3b308f589ae.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f2204c12a832a06001c636ea7dbbc3b308f589ae
 
 在线观看：[💢FBI全美25城查共諜；公安包圍成都美領館，還放鞭炮；中共軍醫院擴充防核物資；台外長：北京加快武統步驟；休斯頓領館涉南海；大連半封城，新疆可疑湯藥；三峽潰壩演示，宜昌太慘新聞拍案驚奇大宇.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7ef7cdefd47ccdc87dd9462bd1607b9f750e4583)
 
@@ -596,10 +600,6 @@
 在线观看：[休斯頓中領館被關撤離前焚燒機密文件.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4a2b2f66f8fa3d06d0ebf6fffb5ca2c97bf5215f)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a2b2f66f8fa3d06d0ebf6fffb5ca2c97bf5215f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4a2b2f66f8fa3d06d0ebf6fffb5ca2c97bf5215f
-
-在线观看：[安徽湖北江西多地被淹洪峰北上河南.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=25c0d7efa60b79e10b3086f5450e08b58a2ae573)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/25c0d7efa60b79e10b3086f5450e08b58a2ae573.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:25c0d7efa60b79e10b3086f5450e08b58a2ae573
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
