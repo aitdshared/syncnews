@@ -25,7 +25,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/I5uhUK)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/1gTSWl)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -596,10 +596,6 @@
 在线观看：[《石濤聚焦》「李克強視察泥地中摔倒視頻瘋傳微博」傳中共-王滬寧下令官媒封殺李克強（2207）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1659900bfa60e65923710bc4e29eeedcdbef97dd)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1659900bfa60e65923710bc4e29eeedcdbef97dd.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1659900bfa60e65923710bc4e29eeedcdbef97dd
-
-在线观看：[【瘟疫與中共】做中共擴張的落腳點智利疫情飆升（二）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2ed1a6c48b967a17686aec7c9c2e29f16ce2232b)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/2ed1a6c48b967a17686aec7c9c2e29f16ce2232b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:2ed1a6c48b967a17686aec7c9c2e29f16ce2232b
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
