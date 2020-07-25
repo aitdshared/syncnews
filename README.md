@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xRxsF2)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EzLPwt)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【全球新聞】中共駐休斯敦總領館關閉美中新冷戰升級曾藏匿舊金山中領館中共空軍女軍官被捕（7月24日完整版）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8ad210f6e75153d99aba80b81e072d482867bdcc)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8ad210f6e75153d99aba80b81e072d482867bdcc.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8ad210f6e75153d99aba80b81e072d482867bdcc
 
 在线观看：[【禁聞】洪水威脅武漢官方阻市民觀察水情.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=abe354f407624556bb4ec97b58dd83f5ab276032)
 
@@ -596,10 +600,6 @@
 在线观看：[「反共大聯盟」登場；中伊協議，加速國際反共潮；抖音在劫難逃（2020.7.22）｜世界的十字路口唐浩.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=de2ee928472e86d37e903a8b75989c1f695049f3)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/de2ee928472e86d37e903a8b75989c1f695049f3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:de2ee928472e86d37e903a8b75989c1f695049f3
-
-在线观看：[以色列圣经密码专家解密：川普会连任真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1333c51a91bef4194d3777beec3c5903698375c6)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1333c51a91bef4194d3777beec3c5903698375c6.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1333c51a91bef4194d3777beec3c5903698375c6
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
