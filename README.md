@@ -25,7 +25,7 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ET6dVc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JkC9BG)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
@@ -596,14 +596,6 @@
 在线观看：[【重播722】美參院外交關係委員會聽證會：推進美國對中國的有效競爭（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9f54a33820eac0af56622675ff457bcb17bb7095)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f54a33820eac0af56622675ff457bcb17bb7095.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9f54a33820eac0af56622675ff457bcb17bb7095
-
-在线观看：[【環球直擊】休斯頓中領館焚燒機密文件蓬佩奧譴責中共洪峰北上河南(7月22日完整版2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926
-
-在线观看：[《石濤聚焦》「美重量級參議員魯比歐：中共國駐休士頓領事館龐大間諜網的中心」有人直言：美國送給習近平外交思想研究中心的賀禮「休士頓：太空總署（NASA）全美最大醫療中心軍工巨頭洛克希德馬丁公司」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7432cb8b93bbbf132e631fa040e522036dc99a11)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7432cb8b93bbbf132e631fa040e522036dc99a11.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7432cb8b93bbbf132e631fa040e522036dc99a11
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
