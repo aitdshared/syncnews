@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/3i2LYJ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/7VNUL9)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[中共關閉成都美領館，直接開通美台恢復邦交快車；共諜唐娟深夜被舊金山領事館推出門外遭逮捕；休斯頓領館內鎖大門，美執法人員破後門而入（江峰漫談20200724第210期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=81af206a57036b6d86fee9ac034bac7bdd56607a)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/81af206a57036b6d86fee9ac034bac7bdd56607a.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:81af206a57036b6d86fee9ac034bac7bdd56607a
 
 在线观看：[《石濤聚焦》「三峽大壩之父總工程師鄭守仁24日應景病逝武漢-81歲不明病因」長江第三次洪峰將於27日到來流量不低於6萬立米每秒「天命中大壩失去其根脈報應分明不錯毫釐」（2507）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7ea8720ecfe1accd578f6d90ff6452d55a17c9e5)
 
@@ -592,10 +596,6 @@
 在线观看：[安徽湖北江西多地被淹洪峰北上河南.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=25c0d7efa60b79e10b3086f5450e08b58a2ae573)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/25c0d7efa60b79e10b3086f5450e08b58a2ae573.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:25c0d7efa60b79e10b3086f5450e08b58a2ae573
-
-在线观看：[蓬佩奧中國政策顧問華裔學者余茂春亮相.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b4a79df656bb6447f4e58d9aa1cc95f8de6e9020)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b4a79df656bb6447f4e58d9aa1cc95f8de6e9020.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b4a79df656bb6447f4e58d9aa1cc95f8de6e9020
 
 在线观看：[蓬佩奧訪丹麥：中共若繼續妄爲將採取行動.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1e051e43ec216172a0cc58ca93e534d58bbd81e5)
 
