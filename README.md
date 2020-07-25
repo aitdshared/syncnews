@@ -25,13 +25,25 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/wQneOi)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xUIZ7i)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[曾藏匿於舊金山中領館的唐娟被捕發現有中共空軍女軍官證據.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=76ff2e00c174e1626285fe06d04ae9c72182c961)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/76ff2e00c174e1626285fe06d04ae9c72182c961.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:76ff2e00c174e1626285fe06d04ae9c72182c961
+
+在线观看：[中共駐休總領館關閉美中新冷戰升級.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=0a7df1048e661450d305de306733d6479fa6f1e2)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/0a7df1048e661450d305de306733d6479fa6f1e2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:0a7df1048e661450d305de306733d6479fa6f1e2
+
+在线观看：[降低藥品價格川普4項行政令惠澤大衆.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=02674aa153102dfd45c1e5d179d5d5bafe51f07d)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/02674aa153102dfd45c1e5d179d5d5bafe51f07d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:02674aa153102dfd45c1e5d179d5d5bafe51f07d
 
 在线观看：[紐約一名華裔學生因持槍拍照紀念六四被校罰將控告校方.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9da762dcd351f633a147af0004d35318ffdad990)
 
@@ -588,22 +600,6 @@
 在线观看：[【新唐人重播】722台灣中央疫情指揮中心記者會.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=75d9eb50cd15ec43d87d0fc240b2afc6d9befcaf)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/75d9eb50cd15ec43d87d0fc240b2afc6d9befcaf.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:75d9eb50cd15ec43d87d0fc240b2afc6d9befcaf
-
-在线观看：[偷渡到越南打工，大规模中国人陷入无钱可赚的困境，中国经济渐渐北韩化.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8bb2d0e1d7c74b8a67c4af4a758b34d63ae5d153)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8bb2d0e1d7c74b8a67c4af4a758b34d63ae5d153.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8bb2d0e1d7c74b8a67c4af4a758b34d63ae5d153
-
-在线观看：[🔥川普定滅共兩步計劃；“明天系”惡鬥；3號洪峰！三峽加緊騰庫，簡析壩體軍事防禦；黃淮洪水致「孤島」；新疆搞百萬人檢疫，不服拘留？廣州疑似疫情；回顧元朗襲擊；關注720的三個理由新聞拍案驚奇大宇.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=40ad51f7e8ef23345254015d0f1dc190f010d95d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/40ad51f7e8ef23345254015d0f1dc190f010d95d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:40ad51f7e8ef23345254015d0f1dc190f010d95d
-
-在线观看：[毛鄧江胡都不敢搞，習近平外交思想研究中心成立看王毅的私心；洪峰一過，中共科學家便搬出“萬年一遇”論調，稱三峡大坝抵禦原子彈！美印聯合軍演，死扣紮緊（江峰漫談20200721第208期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=55fbe8492a18ac4f98188e8be3f90a3265534ef9)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/55fbe8492a18ac4f98188e8be3f90a3265534ef9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:55fbe8492a18ac4f98188e8be3f90a3265534ef9
-
-在线观看：[公安搶劫車後，再賣給老百姓，循環利用真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b2e2e6f73f3971f175772ec3c7ae90ca18284d07)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2e2e6f73f3971f175772ec3c7ae90ca18284d07.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b2e2e6f73f3971f175772ec3c7ae90ca18284d07
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
