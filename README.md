@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0v3UfQ)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/KWHGgb)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[全球日增28萬例疫情持續在中國擴散.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e51c63cd39c6c9b2c8709dab887d32a241108fc4)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e51c63cd39c6c9b2c8709dab887d32a241108fc4.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e51c63cd39c6c9b2c8709dab887d32a241108fc4
+
+在线观看：[英首相：剛開始時對疫情嚴重性瞭解不夠.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=718cf6af05a5c556e41c14e8e358be481d9f4bbe)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/718cf6af05a5c556e41c14e8e358be481d9f4bbe.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:718cf6af05a5c556e41c14e8e358be481d9f4bbe
 
 在线观看：[若僅上網絡課程新留學生不得入境美國.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=80358e1afb5ca206435d0ec8b70dde9287491e12)
 
@@ -592,10 +600,6 @@
 在线观看：[【環球直擊】休斯頓中領館焚燒機密文件蓬佩奧譴責中共洪峰北上河南(7月22日完整版2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e1e6ebbe7ff090fb4b20b389f92d18c1b4b79926
-
-在线观看：[【中國禁聞】7月21日完整版（字幕）🔥美國政府中共必須立即停止迫害法輪功美國區分中共和中國中共忙綑綁中國房市逆向升溫背後有何貓膩出走美國的中共女政協委員王瑞琴：民企痛恨中共體制.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=cb0931ecfbaa2ee585a2918b31a3162cc7e1fad2)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/cb0931ecfbaa2ee585a2918b31a3162cc7e1fad2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:cb0931ecfbaa2ee585a2918b31a3162cc7e1fad2
 
 在线观看：[《石濤聚焦》「美重量級參議員魯比歐：中共國駐休士頓領事館龐大間諜網的中心」有人直言：美國送給習近平外交思想研究中心的賀禮「休士頓：太空總署（NASA）全美最大醫療中心軍工巨頭洛克希德馬丁公司」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7432cb8b93bbbf132e631fa040e522036dc99a11)
 
