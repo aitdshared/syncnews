@@ -25,13 +25,29 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/RXS9wv)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/f8Oike)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【禁聞】蓬佩奥演講公開對抗中共是時代任務.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=444a8e3ece93eddad2825db4b81ce6f1fdc9e501)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/444a8e3ece93eddad2825db4b81ce6f1fdc9e501.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:444a8e3ece93eddad2825db4b81ce6f1fdc9e501
+
+在线观看：[【微視頻】中共傳哈薩克致命肺炎讓烏魯木齊更可怕.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b5ba4e0f6cf7b1d1bf2589dea9d11f49c316ea29)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b5ba4e0f6cf7b1d1bf2589dea9d11f49c316ea29.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b5ba4e0f6cf7b1d1bf2589dea9d11f49c316ea29
+
+在线观看：[【禁聞】哈爾濱冰雹砸死村民政府不理百姓寒心.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e2ea32e1b15ccc67d180803978041e5997729b0f)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e2ea32e1b15ccc67d180803978041e5997729b0f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e2ea32e1b15ccc67d180803978041e5997729b0f
+
+在线观看：[【禁聞】記者直擊：安徽洩洪農民商家損失慘重.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=952a9b1fac90c05fd15e19b9be8700c40a9151f0)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/952a9b1fac90c05fd15e19b9be8700c40a9151f0.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:952a9b1fac90c05fd15e19b9be8700c40a9151f0
 
 在线观看：[【全球新聞】中共駐休斯敦總領館關閉美中新冷戰升級曾藏匿舊金山中領館中共空軍女軍官被捕（7月24日完整版）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8ad210f6e75153d99aba80b81e072d482867bdcc)
 
@@ -584,22 +600,6 @@
 在线观看：[【首播】魔鬼在統治著我們的世界第三集：東方殺戮.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=eec8df23876e6d38d818771ffbb433079640d7f6)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/eec8df23876e6d38d818771ffbb433079640d7f6.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:eec8df23876e6d38d818771ffbb433079640d7f6
-
-在线观看：[重大突发：美国关闭中共领事馆！三天走人。火光冲天，浓烟滚滚！崔大使暗责习近平。美澳日联军南海示威.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=01848cebccd3e4780930f85b10f26cff640c2d1c)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/01848cebccd3e4780930f85b10f26cff640c2d1c.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:01848cebccd3e4780930f85b10f26cff640c2d1c
-
-在线观看：[【環球直擊】中國數千訪民連署籲解決信訪積案四川民主人士陳雲飛遭噤聲被八次逼遷（7月22日完整版1）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9970118e56d8c75999144b93560563b9faaf0dae)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9970118e56d8c75999144b93560563b9faaf0dae.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9970118e56d8c75999144b93560563b9faaf0dae
-
-在线观看：[三峽大壩下游水位漲安徽急炸堤凌晨傳巨響真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=fc2e69d5894d5fa556c7bcf9d708a02745f1f7bc)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc2e69d5894d5fa556c7bcf9d708a02745f1f7bc.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:fc2e69d5894d5fa556c7bcf9d708a02745f1f7bc
-
-在线观看：[「反共大聯盟」登場；中伊協議，加速國際反共潮；抖音在劫難逃（2020.7.22）｜世界的十字路口唐浩.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=de2ee928472e86d37e903a8b75989c1f695049f3)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/de2ee928472e86d37e903a8b75989c1f695049f3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:de2ee928472e86d37e903a8b75989c1f695049f3
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
