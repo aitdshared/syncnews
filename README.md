@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/ZAD64o)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0t2HfN)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【華府衝擊播】專訪BenedictRogers：中共國安法毀香港自由必須受罰.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c7d408944b05d9f502fd3f6b297bc600f2073abb)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c7d408944b05d9f502fd3f6b297bc600f2073abb.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c7d408944b05d9f502fd3f6b297bc600f2073abb
 
 在线观看：[【中國禁聞】7月24日完整版（字幕）🔥被迫離開家園的農民和商家現況如何？記者直擊：安徽洩洪農民商家損失慘重；八百里巢湖百年最大洪水哈爾濱冰雹砸死村民；蓬佩奥：對抗中共是時代任務！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f2204c12a832a06001c636ea7dbbc3b308f589ae)
 
@@ -584,10 +588,6 @@
 在线观看：[《石濤聚焦》「李克強視察泥地中摔倒視頻瘋傳微博」傳中共-王滬寧下令官媒封殺李克強（2207）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1659900bfa60e65923710bc4e29eeedcdbef97dd)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1659900bfa60e65923710bc4e29eeedcdbef97dd.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1659900bfa60e65923710bc4e29eeedcdbef97dd
-
-在线观看：[班農：川普「作戰計畫」分兩步擊垮中共.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d8d8105a4aeb7f60f0a7b587414e95d8051d5954)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d8d8105a4aeb7f60f0a7b587414e95d8051d5954.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d8d8105a4aeb7f60f0a7b587414e95d8051d5954
 
 在线观看：[【瘟疫與中共】做中共擴張的落腳點智利疫情飆升（二）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2ed1a6c48b967a17686aec7c9c2e29f16ce2232b)
 
