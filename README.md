@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/OGCMms)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/nNYNCM)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[反送中週年漫畫天王與雕塑家攜手撐港真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8db049b5f4c2b7a9f58aa38992c45c2971383ba9)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/8db049b5f4c2b7a9f58aa38992c45c2971383ba9.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:8db049b5f4c2b7a9f58aa38992c45c2971383ba9
+
+在线观看：[休斯頓中領館為何遭關閉真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=71a49a930e68a14e7eca03844be4ee3ea6b94171)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/71a49a930e68a14e7eca03844be4ee3ea6b94171.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:71a49a930e68a14e7eca03844be4ee3ea6b94171
 
 在线观看：[中央情報局的紅色鼴鼠（三）證據不足.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1628239c14a89cfa8a3e42b6585e81681f67c231)
 
