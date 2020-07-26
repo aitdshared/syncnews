@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/NmPE4v)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Bmd6l3)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[賺錢但不出賣靈魂美國青年遭中共封殺.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4cdfc73ea7163b50c5ce29e6f8c70ec8659f9d5f)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4cdfc73ea7163b50c5ce29e6f8c70ec8659f9d5f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4cdfc73ea7163b50c5ce29e6f8c70ec8659f9d5f
 
 在线观看：[【環球直擊】泡水多天安徽巢湖災民食宿成問題休斯頓中領館被驅離抗議者見證歷史時刻（7月25日完整版2）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f97a9bdce60a90bdab3be5dfd1d723516965d099)
 
@@ -592,10 +596,6 @@
 在线观看：[珍珠港事件前奏？美勒令72小時關閉，休斯敦總領館急燒文件？習近平隱身月餘終露面，只為搞笑「內循環」；哈爾濱風雨雹太嚇人；河南暴雨成災，開車如開船；華人竟偷渡越南打黑工！【新聞看點李沐陽07.22】.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d62f2692d8292aac0d003c7820e1b86b20cab3ca)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d62f2692d8292aac0d003c7820e1b86b20cab3ca.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d62f2692d8292aac0d003c7820e1b86b20cab3ca
-
-在线观看：[休斯頓法輪功學員在中領館兩側展開中英文橫幅.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4a8883577c321092b0f4fca9eaf8a97a72c692bb)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a8883577c321092b0f4fca9eaf8a97a72c692bb.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4a8883577c321092b0f4fca9eaf8a97a72c692bb
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期） (1).mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3fdcb61c176bc02065b68727bd54959767f9f7a0)
 
