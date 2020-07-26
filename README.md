@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Kg4Iyr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/D99kvu)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[【#美國思想領袖】美國戰略集團總裁布萊恩•肯尼迪：中共放任病毒在全球傳播不是偶然！香港人被中共蠶食的自由與南中國海的真相；如何推翻中共防火牆；美國企業回遷中共還有籌碼？｜#大紀元新聞網.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1164f2b4ab927e4a80b537d83cbf76f9a4836ec3)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1164f2b4ab927e4a80b537d83cbf76f9a4836ec3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1164f2b4ab927e4a80b537d83cbf76f9a4836ec3
 
 在线观看：[【Jason快評】美國前總統家庭成員的醜聞；中共的一個廉價控制各國精英的手法；為何世界各國都有一群為中共利益服務的人？熱點互動07252020.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e5b273592235cb13246d359858569ad95e724456)
 
