@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/vrMKC4)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IdTagg)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[投诚者PK唐娟，开启污点证人反共自救时代；王毅：成都领事馆休斯顿领事馆不冲突不对抗！（老北京茶馆第349集20200725）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a24972976fa16a51095738cc6a24fe39fa41620b)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a24972976fa16a51095738cc6a24fe39fa41620b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a24972976fa16a51095738cc6a24fe39fa41620b
 
 在线观看：[反送中週年漫畫天王與雕塑家攜手撐港真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=8db049b5f4c2b7a9f58aa38992c45c2971383ba9)
 
@@ -588,10 +592,6 @@
 在线观看：[中國數千訪民連署籲解決信訪積案.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e245610a4558ca90db21a0b71543aa589d9fa186)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e245610a4558ca90db21a0b71543aa589d9fa186.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e245610a4558ca90db21a0b71543aa589d9fa186
-
-在线观看：[香港創單日確診新高巴西總統檢測仍陽性.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=cc7ad4cb3bfe70b797427bb368dcf1dcd591742d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/cc7ad4cb3bfe70b797427bb368dcf1dcd591742d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:cc7ad4cb3bfe70b797427bb368dcf1dcd591742d
 
 在线观看：[我震驚了。。。17小時不眠不休5台肝移植手術？！真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c993f69f9a6ed576693bd3703e7dc01931c6e3ec)
 
