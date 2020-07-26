@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xJtiF8)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qWgyUW)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《中情局的紅色鼴鼠》（二）浮出水面.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2c8b1089459220230fdb07f458fd498e23649a4b)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/2c8b1089459220230fdb07f458fd498e23649a4b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:2c8b1089459220230fdb07f458fd498e23649a4b
 
 在线观看：[《中情局的紅色鼴鼠》（一）撲朔迷離.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=93ccff9ee147cd49cbe6f6d18a7cf5e35d955790)
 
@@ -588,22 +592,6 @@
 在线观看：[川普簽備忘錄阻非法移民干預美內政.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1
-
-在线观看：[輕快便捷漸流行英國出租首款電動滑板車.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c498659acee80c09406117c0e4270c5a18a8184d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c498659acee80c09406117c0e4270c5a18a8184d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c498659acee80c09406117c0e4270c5a18a8184d
-
-在线观看：[蓬佩奧指制止間諜行為驅逐中領館還沒完.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a6e77979d4f2bb18284ff04bca46bbda3e3e8bd3)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a6e77979d4f2bb18284ff04bca46bbda3e3e8bd3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a6e77979d4f2bb18284ff04bca46bbda3e3e8bd3
-
-在线观看：[72小时内关闭中领馆!美国务院暗示中共在颠覆美国主权;美国已经给了中共面子;中共将如何报复(政论天下第202集20200722)天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3b8be8aaec5c017e982d1510a46bff613ca9ed5d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/3b8be8aaec5c017e982d1510a46bff613ca9ed5d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:3b8be8aaec5c017e982d1510a46bff613ca9ed5d
-
-在线观看：[72小时内关闭中领馆！美国暗示真正原因恐非间谍案那么简单；美国已经给了中共面子；中共将如何报复？（政论天下第202集20200722）天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=99cd3d94a65ac7819955facae97ef2420e371f6d)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/99cd3d94a65ac7819955facae97ef2420e371f6d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:99cd3d94a65ac7819955facae97ef2420e371f6d
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
