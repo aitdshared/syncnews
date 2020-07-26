@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/zVFIro)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8NIPHP)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「三峽大壩總設計師剛走九個洩洪孔齊放水」洩洪量4.58萬立米-武漢麻煩27日第三號洪峰超6萬立米湖北恩施26日再淹沒秦淮河大壩被挖空作餐館長江上中下游持續大暴雨（2607）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4a30498e4534faab30ef829d6e9b3054abc7957b)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4a30498e4534faab30ef829d6e9b3054abc7957b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4a30498e4534faab30ef829d6e9b3054abc7957b
 
 在线观看：[《石濤聚焦》「FBI實力強大23日夜大魚唐娟“被迫走出”舊金山領事館習近平輸了大招兒！」彭佩奧“討共檄文”嚇尿習總唐娟-北京防化學院大校同屬中共防疫主力系統空軍醫護「火神山醫院-武漢實驗室」.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4117cbf052b667932777e3864aab8fdd26acb84a)
 
@@ -592,10 +596,6 @@
 在线观看：[大連傳出疫情各小區被封閉只准進不准出地鐵站所有列車不得停靠.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4ba1c38c4499ff9e389ed4f0ec60666968a1dd7f)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4ba1c38c4499ff9e389ed4f0ec60666968a1dd7f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4ba1c38c4499ff9e389ed4f0ec60666968a1dd7f
-
-在线观看：[【禁聞】南海問題美國攤牌美中滑向熱戰？.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=b3454341b7ea54c590fed90e72f8d2ef3dea3945)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/b3454341b7ea54c590fed90e72f8d2ef3dea3945.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:b3454341b7ea54c590fed90e72f8d2ef3dea3945
 
 在线观看：[《石濤聚焦》「休士頓領館危機：川普-我想知道他們燒的是什麼？」袁弓夷-中領館出現叛逃者中共領事館非常安靜「很可能領館裡有FBI等待抓捕者」（2307）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=78d35913d4a19dc4307fa938fd41a1f4366eefe7)
 
