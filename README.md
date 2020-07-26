@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PbGGkk)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/HeH9xz)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤聚焦》「成都領館前紀實：老人哽咽“中美應該是朋友”」放炮竹被抓者-當地警察便衣「中共休士頓領館人員帶垃圾桶撤走卻反鎖門戶——雞賊下作毫無禮儀之為華春瑩倒斥美方「入門竊盜」好似妲己痛斥伯夷考.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4666bb6c20884da4da93e98fdaa37e7bb42fe794)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4666bb6c20884da4da93e98fdaa37e7bb42fe794.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4666bb6c20884da4da93e98fdaa37e7bb42fe794
+
+在线观看：[《石濤聚焦》「馬雲-阿里巴巴印度被吿29日出庭」已被印度封殺的馬雲旗下UC新聞前員工狀告馬雲媒體製造假新聞以「引發社會與政治動盪」設立審查制度敏感詞如中印邊界衝突（2607）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4253bc418b795855c98c443b244857530b652125)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4253bc418b795855c98c443b244857530b652125.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4253bc418b795855c98c443b244857530b652125
 
 在线观看：[《石濤.News》「馬雲的南華：川普與高級官員改稱習近平-中共總書記」拒絕稱其主席「等同否定中華人民共和國合法性」對中共黨員旅行禁令與驅逐等同合理「否定中美3個聯合聲明轉而承認中華民國」時間可預見.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=119fcd2af150c054fa1c0fa46b324828aac2953c)
 
