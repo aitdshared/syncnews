@@ -25,13 +25,21 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8vOuPr)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/IUwOic)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[疫情升温大连进入战时状态小区封闭，全区民进行核酸检测真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=7548b0576e9d24f5405cf6eccc60e66b02455288)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/7548b0576e9d24f5405cf6eccc60e66b02455288.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:7548b0576e9d24f5405cf6eccc60e66b02455288
+
+在线观看：[💥唐娟被捕❗️被中共拋棄出庭聆訊，舊金山領館也燒紙？TikTok非抖音，攪局美國大選；瘋狂偷窺剪貼板，美欲封禁有絕招；安徽青年悲鳴，300畝水稻被淹；三峽大壩再洩洪，中共逆勢操作有貓膩【07.25】.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=754603b21c10e330b94774697de1396c3a9c7ea3)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/754603b21c10e330b94774697de1396c3a9c7ea3.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:754603b21c10e330b94774697de1396c3a9c7ea3
 
 在线观看：[投诚者PK唐娟，开启污点证人反共自救时代；王毅：成都领事馆休斯顿领事馆不冲突不对抗！（老北京茶馆第349集20200725）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a24972976fa16a51095738cc6a24fe39fa41620b)
 
@@ -596,10 +604,6 @@
 在线观看：[我震驚了。。。17小時不眠不休5台肝移植手術？！真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c993f69f9a6ed576693bd3703e7dc01931c6e3ec)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c993f69f9a6ed576693bd3703e7dc01931c6e3ec.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c993f69f9a6ed576693bd3703e7dc01931c6e3ec
-
-在线观看：[川普簽備忘錄阻非法移民干預美內政.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
