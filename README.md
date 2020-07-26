@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/qWgyUW)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/0ci1ID)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[中央情報局的紅色鼴鼠（三）證據不足.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=1628239c14a89cfa8a3e42b6585e81681f67c231)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/1628239c14a89cfa8a3e42b6585e81681f67c231.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:1628239c14a89cfa8a3e42b6585e81681f67c231
 
 在线观看：[《中情局的紅色鼴鼠》（二）浮出水面.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=2c8b1089459220230fdb07f458fd498e23649a4b)
 
@@ -584,10 +588,6 @@
 在线观看：[我震驚了。。。17小時不眠不休5台肝移植手術？！真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c993f69f9a6ed576693bd3703e7dc01931c6e3ec)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c993f69f9a6ed576693bd3703e7dc01931c6e3ec.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c993f69f9a6ed576693bd3703e7dc01931c6e3ec
-
-在线观看：[擴大「傳奇行動」川普打擊城市暴力犯罪.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c24fec91e0d49b3c586d69eb3adb1dbbba0f568f)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/c24fec91e0d49b3c586d69eb3adb1dbbba0f568f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:c24fec91e0d49b3c586d69eb3adb1dbbba0f568f
 
 在线观看：[川普簽備忘錄阻非法移民干預美內政.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=953c4f3fd2a23f1d8bbf7a64b9e9df416cd3e7a1)
 
