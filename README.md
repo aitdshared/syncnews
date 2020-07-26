@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/EJdlR6)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/PbGGkk)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《石濤.News》「馬雲的南華：川普與高級官員改稱習近平-中共總書記」拒絕稱其主席「等同否定中華人民共和國合法性」對中共黨員旅行禁令與驅逐等同合理「否定中美3個聯合聲明轉而承認中華民國」時間可預見.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=119fcd2af150c054fa1c0fa46b324828aac2953c)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/119fcd2af150c054fa1c0fa46b324828aac2953c.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:119fcd2af150c054fa1c0fa46b324828aac2953c
 
 在线观看：[【时事小品】中領館的火｜大陆新闻解毒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=cec5238f95e19ad14b974f9dbde4b758ef1b9640)
 
@@ -604,10 +608,6 @@
 在线观看：[【禁聞】中共做錯了什麼？專家告訴你.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9ba2f6c92db7c6fd59c5741931ceac9e9e212a0b)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9ba2f6c92db7c6fd59c5741931ceac9e9e212a0b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9ba2f6c92db7c6fd59c5741931ceac9e9e212a0b
-
-在线观看：[【#美國思想領袖】核心分析公司創辦人安德斯‧科爾博士：中共若成為全球霸權世界將是一個非常危險的地方；中共處理事情的虛僞態度是造成全球瘟疫的根源！｜#大紀元新聞網.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4f026a53a7b37f58ddb9e25480bef3d63b762f6f)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f026a53a7b37f58ddb9e25480bef3d63b762f6f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4f026a53a7b37f58ddb9e25480bef3d63b762f6f
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
