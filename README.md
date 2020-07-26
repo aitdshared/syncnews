@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/iJ36Fc)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/Zw8NN4)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[市民排队拿水，村民离开家园大陆民众面对困难时期真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=90be3f6b303b335c9ee2b2a8c357e680b586adc5)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/90be3f6b303b335c9ee2b2a8c357e680b586adc5.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:90be3f6b303b335c9ee2b2a8c357e680b586adc5
 
 在线观看：[中国的警察打脸中国的教育真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=c0eff887404829b5b29bed2445bc9f342ac440d1)
 
@@ -596,10 +600,6 @@
 在线观看：[蓬佩奧訪歐美英聯手對抗中共格局形成 (1).mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f78423edb1b3be701dc03c6a3bffc54bbdeff3a2)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f78423edb1b3be701dc03c6a3bffc54bbdeff3a2.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f78423edb1b3be701dc03c6a3bffc54bbdeff3a2
-
-在线观看：[美控告兩中國黑客中共公安部黑手曝光 (1).mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d5ea67e1ead8dae0c86b91adb409f80be747373e)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d5ea67e1ead8dae0c86b91adb409f80be747373e.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d5ea67e1ead8dae0c86b91adb409f80be747373e
 
 在线观看：[《石濤聚焦》「神奇定數：7.21美國住北京大使館發表彭佩奧聲明：中共國必須停止迫害法輪功」意義：美國政府代表國民在北京兌現「與神同行天滅中共」之選擇告知中國人：美國國家價值觀與法輪功信仰同在.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=bd5af314f6f3450b1ef910b36dc5d9fdab2045a3)
 
