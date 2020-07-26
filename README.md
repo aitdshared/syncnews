@@ -25,13 +25,53 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/JkC9BG)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/xJtiF8)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[《中情局的紅色鼴鼠》（一）撲朔迷離.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=93ccff9ee147cd49cbe6f6d18a7cf5e35d955790)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/93ccff9ee147cd49cbe6f6d18a7cf5e35d955790.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:93ccff9ee147cd49cbe6f6d18a7cf5e35d955790
+
+在线观看：[《石濤聚焦》「休士頓領事館危機之由美司法部官員：中共間諜全力盜竊病毒疫苗資訊」習近平要成為全球首位販賣疫苗的國家「休士頓總領館特別具有侵略性且富有成效」王毅承諾貸款拉美10億美元購買中共國疫苗.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=dd01d562f19fffa808300a2e7e18e0445ed7b392)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/dd01d562f19fffa808300a2e7e18e0445ed7b392.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:dd01d562f19fffa808300a2e7e18e0445ed7b392
+
+在线观看：[美国才刚开始，习近平已无牌可打，规规矩矩的愤怒，一览无余的怯懦，守不住了.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9176b8294f928bb42257644aec9dc30eff6ce749)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9176b8294f928bb42257644aec9dc30eff6ce749.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9176b8294f928bb42257644aec9dc30eff6ce749
+
+在线观看：[【中國禁聞】7月24日完整版🔥被迫離開家園的農民和商家現況如何？記者直擊：安徽洩洪農民商家損失慘重；八百里巢湖百年最大洪水哈爾濱冰雹砸死村民；蓬佩奥：對抗中共是時代任務！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=057c0e067c24e1300b892c64dc2605a78707394f)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/057c0e067c24e1300b892c64dc2605a78707394f.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:057c0e067c24e1300b892c64dc2605a78707394f
+
+在线观看：[【微視頻】中共傳哈薩克致命肺炎讓烏魯木齊更可怕？如果中共病毒真的是高致命性的變異，人類的技術手段就跟不上了，能救我們的還剩下誰？.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=63903500f2d733f1c6d1e0000dbedc94f0f6baee)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/63903500f2d733f1c6d1e0000dbedc94f0f6baee.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:63903500f2d733f1c6d1e0000dbedc94f0f6baee
+
+在线观看：[【禁聞】黑龍江省哈爾濱市突降暴雨、冰雹、雷電狂風，多路段嚴重積水，冰雹砸死村民，政府不理令百姓寒心！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f37d438ec36effd47a925fcfab62b6f9fbd8b606)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37d438ec36effd47a925fcfab62b6f9fbd8b606.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f37d438ec36effd47a925fcfab62b6f9fbd8b606
+
+在线观看：[【禁聞】美中關係急速變化，繼美國強硬要求中國駐休士頓總領館關閉之後，蓬佩奧這場對華政策演說，意義重大，美中關係已走到新的轉折點！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a1e9c02fc637c96e7b90f81ec300b18f06e5ac1e)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a1e9c02fc637c96e7b90f81ec300b18f06e5ac1e.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a1e9c02fc637c96e7b90f81ec300b18f06e5ac1e
+
+在线观看：[【禁聞】安徽省「捨小家為大家」開啟蓄洪，記者直擊：安徽洩洪農民商家精疲力盡損失慘重！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=047feb3cef5e910a1a7f1d0e13670b9e1ec1dc9b)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/047feb3cef5e910a1a7f1d0e13670b9e1ec1dc9b.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:047feb3cef5e910a1a7f1d0e13670b9e1ec1dc9b
+
+在线观看：[【禁聞】洪水威脅武漢，長江流域將面臨新一輪的洪災！但當地政府卻阻擋民眾觀察水情，並派公安看守，如同對待武漢瘟疫一樣的隱瞞消息！.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e485275ef7cd2a1935111060c92f4f95e08fa94c)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/e485275ef7cd2a1935111060c92f4f95e08fa94c.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:e485275ef7cd2a1935111060c92f4f95e08fa94c
+
+在线观看：[美國土安全部批中共七大罪將成立中國工作小組.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=a882a168064740cb63bcd2e3e1a0bc8ebc359abd)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/a882a168064740cb63bcd2e3e1a0bc8ebc359abd.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:a882a168064740cb63bcd2e3e1a0bc8ebc359abd
 
 在线观看：[全球日增28萬例疫情持續在中國擴散.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=e51c63cd39c6c9b2c8709dab887d32a241108fc4)
 
@@ -564,38 +604,6 @@
 在线观看：[72小时内关闭中领馆！美国暗示真正原因恐非间谍案那么简单；美国已经给了中共面子；中共将如何报复？（政论天下第202集20200722）天亮时分.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=99cd3d94a65ac7819955facae97ef2420e371f6d)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/99cd3d94a65ac7819955facae97ef2420e371f6d.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:99cd3d94a65ac7819955facae97ef2420e371f6d
-
-在线观看：[休斯敦中領館被關，41年未有之巨變！還有更刺激的、川普「驚濤掌」三掌必發（文昭談古論今20200722第790期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=5fa4df0828cb4a3637de35eb9086846c29c20770)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/5fa4df0828cb4a3637de35eb9086846c29c20770.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:5fa4df0828cb4a3637de35eb9086846c29c20770
-
-在线观看：[突發！重磅消息。美國關閉中共駐休斯頓總領事館並於72小時內驅逐，疑深度操控間諜活動（江峰漫談20200722第209期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=495edf4129378f602f612ad75485778f4ab8517e)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/495edf4129378f602f612ad75485778f4ab8517e.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:495edf4129378f602f612ad75485778f4ab8517e
-
-在线观看：[白邦瑞：旅行禁令将剥夺中共的合法性真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=ca8d36dd7b974aa883c5d0a9a8830961bc708709)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/ca8d36dd7b974aa883c5d0a9a8830961bc708709.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:ca8d36dd7b974aa883c5d0a9a8830961bc708709
-
-在线观看：[美媒：习近平和林郑恼火香港人怎么还不跑！真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=205e644b860c76835aa3af72d2204bf6133a388e)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/205e644b860c76835aa3af72d2204bf6133a388e.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:205e644b860c76835aa3af72d2204bf6133a388e
-
-在线观看：[【重播722（1）】川普總統就“傳奇行動：在美國城市中打擊暴力犯罪”發表講話（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=af2a403ad91769078978cf1da4fae9858a3bbd08)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/af2a403ad91769078978cf1da4fae9858a3bbd08.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:af2a403ad91769078978cf1da4fae9858a3bbd08
-
-在线观看：[【重播722（2）】川普總統就“傳奇行動：在美國城市中打擊暴力犯罪”發表講話（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=278877c8c3dcc57fcbc62c20a1a22669fb5aaac1)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/278877c8c3dcc57fcbc62c20a1a22669fb5aaac1.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:278877c8c3dcc57fcbc62c20a1a22669fb5aaac1
-
-在线观看：[突發!美國關閉中共駐休士頓總領事館並於72小時內驅逐,疑深度操控間諜活動（江峰漫談20200722第209期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4f7f99d30573f1f26913f13e333695191958c97e)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f7f99d30573f1f26913f13e333695191958c97e.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:4f7f99d30573f1f26913f13e333695191958c97e
-
-在线观看：[【重播722】美參院外交關係委員會聽證會：推進美國對中國的有效競爭（同聲翻譯）新唐人電視台.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=9f54a33820eac0af56622675ff457bcb17bb7095)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f54a33820eac0af56622675ff457bcb17bb7095.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:9f54a33820eac0af56622675ff457bcb17bb7095
 
 在线观看：[習近平向李克強奪權！開企業家座談會，硬上「內循環」；炸堤啟用蓄洪區，糧食危險浮現（文昭談古論今20200721第789期）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=3474a7afbb379dfc738bd31cf6e4a6cf5306f08b)
 
