@@ -25,13 +25,17 @@
 
 ## 【翻墙工具推荐】[松鼠VPN](https://zh.squirrelvpn.com/)，[无界浏览安卓版](https://github.com/aitdshared/syncnews/raw/master/us.ultrasurf.mobile.ultrasurf_1.1.8-118_minAPI15(armeabi-v7a)(nodpi)_apkmirror.com.apk)
 
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/8NIPHP)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://is.gd/E14X6Z)
 
 
 ## [【文字新闻】免翻墙文字版新闻](https://github.com/begood0513/goodnews/blob/master/README.md)
 
 ## 如需手动下载视频，请关注以下新闻时刻更新
 
+
+在线观看：[成都，总领事夫人一夜爆红！习近平备战，担心军队叛变。胡锡进公开测试中国人智商.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=f2972c7e7f24d3ba48683978c84dbef0855eea33)
+
+↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/f2972c7e7f24d3ba48683978c84dbef0855eea33.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:f2972c7e7f24d3ba48683978c84dbef0855eea33
 
 在线观看：[《石濤聚焦》「三峽大壩總設計師剛走九個洩洪孔齊放水」洩洪量4.58萬立米-武漢麻煩27日第三號洪峰超6萬立米湖北恩施26日再淹沒秦淮河大壩被挖空作餐館長江上中下游持續大暴雨（2607）.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=4a30498e4534faab30ef829d6e9b3054abc7957b)
 
@@ -548,10 +552,6 @@
 在线观看：[安徽省用10台卡车50车石头5000袋粘土沉入河流抗洪抢险真相傳媒.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=d93cc2da0f00f8cfde7572a4e7d0a962308487a7)
 
 ↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/d93cc2da0f00f8cfde7572a4e7d0a962308487a7.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:d93cc2da0f00f8cfde7572a4e7d0a962308487a7
-
-在线观看：[【禁聞】間諜中心？休斯顿中领馆被美勒令72小時內關閉.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=eaf899d6996a48603398298b6968818efc416b60)
-
-↑ [下载BT种子](https://raw.githubusercontent.com/aitdshared/syncnews/master/eaf899d6996a48603398298b6968818efc416b60.torrent) ↑ 磁力链接 magnet:?xt=urn:btih:eaf899d6996a48603398298b6968818efc416b60
 
 在线观看：[《石濤聚焦》「神奇定數：7.21美國住北京大使館發表彭佩奧聲明：中共國必須停止迫害法輪功」意義：美國政府代表國民北京兌現「與神同行天滅中共」之選擇【所有大陸人都可見證：美國國家價值認同法輪功信仰】.mp4](https://torrentsshare.s3.amazonaws.com/index.html?id=bbe42ce05865474cf479183340222d37b43a8f91)
 
