@@ -1,10 +1,10 @@
 # 8月15日最新大事内幕局势疫情时刻更新💥 真相=生命❤️ 请速广传📢 请收藏本页短网址 https://git.io/news20
 
-### ▶️ 在线视频：[突发中美贸易代表会谈突然取消；千万美元赏金与千余共谍叛逃；中美博弈中，美国当前有一个致命弱点（政论天下第214集20200814）天亮时分.mp4](http://36.228.242.128:80/8e5635b313a3d4df236df375c6c5286b2f3f8117)
+### ▶️ 在线视频：[突发中美贸易代表会谈突然取消；千万美元赏金与千余共谍叛逃；中美博弈中，美国当前有一个致命弱点（政论天下第214集20200814）天亮时分.mp4](http://112.104.130.80:8063/8e5635b313a3d4df236df375c6c5286b2f3f8117)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8e5635b313a3d4df236df375c6c5286b2f3f8117.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8e5635b313a3d4df236df375c6c5286b2f3f8117
 
-### ▶️ 在线视频：[中共出击台海两端，七航母旭日舰队复活！「老人战团」施压习近平；孔子学院中招，谁保海外华人不躺枪（文昭谈古论今20200814第802期））.mp4](http://118.161.105.179:80/60847ac4dbe542a0e15281f8ce49b840ea918409)
+### ▶️ 在线视频：[中共出击台海两端，七航母旭日舰队复活！「老人战团」施压习近平；孔子学院中招，谁保海外华人不躺枪（文昭谈古论今20200814第802期））.mp4](http://36.228.242.128:80/60847ac4dbe542a0e15281f8ce49b840ea918409)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/60847ac4dbe542a0e15281f8ce49b840ea918409.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:60847ac4dbe542a0e15281f8ce49b840ea918409
 
@@ -12,27 +12,27 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e9e1223decf4de4225f37a111bdc6c0df3870b1b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e9e1223decf4de4225f37a111bdc6c0df3870b1b
 
-### ▶️ 在线视频：[北戴河达共识？习近平向军队下达这样的密令。中资银行不敢为林郑存钱。土共佯攻台湾。东欧奋起.mp4](http://112.104.130.80:8063/6ffa38b669f1487e038b4a297a7983dec4e81525)
+### ▶️ 在线视频：[北戴河达共识？习近平向军队下达这样的密令。中资银行不敢为林郑存钱。土共佯攻台湾。东欧奋起.mp4](http://36.228.242.128:80/6ffa38b669f1487e038b4a297a7983dec4e81525)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/6ffa38b669f1487e038b4a297a7983dec4e81525.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:6ffa38b669f1487e038b4a297a7983dec4e81525
 
-### ▶️ 在线视频：[【微视频】中共少收1000万吨夏粮百姓少个菜.mp4](http://175.180.64.199:8083/de8d0295f229a0b31fb6bb2c3f48207a19c5268e)
+### ▶️ 在线视频：[【微视频】中共少收1000万吨夏粮百姓少个菜.mp4](http://112.104.130.80:8063/de8d0295f229a0b31fb6bb2c3f48207a19c5268e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/de8d0295f229a0b31fb6bb2c3f48207a19c5268e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:de8d0295f229a0b31fb6bb2c3f48207a19c5268e
 
-### ▶️ 在线视频：[乐山大佛脚下眺洪水勇敢还是玩命真相传媒.mp4](http://112.104.130.80:8063/3da6f36da59802e894c56edb4b86dcc784c274bd)
+### ▶️ 在线视频：[乐山大佛脚下眺洪水勇敢还是玩命真相传媒.mp4](http://175.180.64.199:8083/3da6f36da59802e894c56edb4b86dcc784c274bd)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/3da6f36da59802e894c56edb4b86dcc784c274bd.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:3da6f36da59802e894c56edb4b86dcc784c274bd
 
-### ▶️ 在线视频：[今日热点：习近平禁吃播粮荒感日增关闭孔子学院普京女儿种疫苗真相传媒.mp4](http://118.161.105.179:80/12a2640a8aad872b80cd84a9e497203eae6e38fa)
+### ▶️ 在线视频：[今日热点：习近平禁吃播粮荒感日增关闭孔子学院普京女儿种疫苗真相传媒.mp4](http://175.180.64.199:8083/12a2640a8aad872b80cd84a9e497203eae6e38fa)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/12a2640a8aad872b80cd84a9e497203eae6e38fa.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:12a2640a8aad872b80cd84a9e497203eae6e38fa
 
-### ▶️ 在线视频：[【中美角力】「五毛」收指令风向急转弯停止反美要强调两国双赢真相传媒.mp4](http://112.104.130.80:8063/c05c3a093e006f655a833459fa67449407065f7b)
+### ▶️ 在线视频：[【中美角力】「五毛」收指令风向急转弯停止反美要强调两国双赢真相传媒.mp4](http://175.180.64.199:8083/c05c3a093e006f655a833459fa67449407065f7b)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c05c3a093e006f655a833459fa67449407065f7b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c05c3a093e006f655a833459fa67449407065f7b
 
-### ▶️ 在线视频：[中共对全球威胁多严重？知名网红是大外宣？【唐浩草堂】软实力；孔子学院列入「外国使团」（2020。8。14）｜世界的十字路口唐浩.mp4](http://175.180.64.199:8083/a570049b84edcd96adcbdce5540f96361e7c0e97)
+### ▶️ 在线视频：[中共对全球威胁多严重？知名网红是大外宣？【唐浩草堂】软实力；孔子学院列入「外国使团」（2020。8。14）｜世界的十字路口唐浩.mp4](http://118.161.105.179:80/a570049b84edcd96adcbdce5540f96361e7c0e97)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/a570049b84edcd96adcbdce5540f96361e7c0e97.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:a570049b84edcd96adcbdce5540f96361e7c0e97
 
@@ -40,7 +40,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/61507da26a6ea93bb900ceb4ed1c54644d2ca046.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:61507da26a6ea93bb900ceb4ed1c54644d2ca046
 
-### ▶️ 在线视频：[华为要自己造芯片，别开玩笑了，想都不要想.mp4](http://175.180.64.199:8083/bc341f3280f6acb81fe4cabf1c9eeec4ea5eed69)
+### ▶️ 在线视频：[华为要自己造芯片，别开玩笑了，想都不要想.mp4](http://112.104.130.80:8063/bc341f3280f6acb81fe4cabf1c9eeec4ea5eed69)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/bc341f3280f6acb81fe4cabf1c9eeec4ea5eed69.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:bc341f3280f6acb81fe4cabf1c9eeec4ea5eed69
 
@@ -52,7 +52,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/14ecc3c47be8c70e0243fcef4d34dd0f84f59c40.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:14ecc3c47be8c70e0243fcef4d34dd0f84f59c40
 
-### ▶️ 在线视频：[中资银行配合美制裁，港警退休金被逼转移大陆银行；以阿建交，以色列疏远中共，助川普移师西太地区；蓬培奥：对中共不是冷战20，潜台词是什麽（江峰漫谈20200813第222期）.mp4](http://36.228.242.128:80/9fcf022198e70584f01ca85fee89f717e7dd465a)
+### ▶️ 在线视频：[中资银行配合美制裁，港警退休金被逼转移大陆银行；以阿建交，以色列疏远中共，助川普移师西太地区；蓬培奥：对中共不是冷战20，潜台词是什麽（江峰漫谈20200813第222期）.mp4](http://112.104.130.80:8063/9fcf022198e70584f01ca85fee89f717e7dd465a)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fcf022198e70584f01ca85fee89f717e7dd465a.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9fcf022198e70584f01ca85fee89f717e7dd465a
 
@@ -60,7 +60,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/687a045b193e764af7dc5a842d55bb9304421442.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:687a045b193e764af7dc5a842d55bb9304421442
 
-### ▶️ 在线视频：[【中国禁闻】8月13日🔥暴雨侵袭！中国水患严重数千万人受害；长江重庆段1天暴涨5米长江第4号洪水即将形成，三峡大坝再临危机；蓬佩奥捷克行警告中共更具威胁；产业危机全面爆发中共鼓励新车用旧零件！.mp4](http://118.161.105.179:80/6165dd5ef38d031fea69c62c1a935246637472ac)
+### ▶️ 在线视频：[【中国禁闻】8月13日🔥暴雨侵袭！中国水患严重数千万人受害；长江重庆段1天暴涨5米长江第4号洪水即将形成，三峡大坝再临危机；蓬佩奥捷克行警告中共更具威胁；产业危机全面爆发中共鼓励新车用旧零件！.mp4](http://112.104.130.80:8063/6165dd5ef38d031fea69c62c1a935246637472ac)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/6165dd5ef38d031fea69c62c1a935246637472ac.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:6165dd5ef38d031fea69c62c1a935246637472ac
 
@@ -68,15 +68,15 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/19b24c7e5aeff4651ee7082619ddcfa5ddf64c04.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:19b24c7e5aeff4651ee7082619ddcfa5ddf64c04
 
-### ▶️ 在线视频：[从华为公主案看加中博弈真相传媒.mp4](http://112.104.130.80:8063/b500616265eadc6f15af6205cb369793a8f4282a)
+### ▶️ 在线视频：[从华为公主案看加中博弈真相传媒.mp4](http://118.161.105.179:80/b500616265eadc6f15af6205cb369793a8f4282a)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b500616265eadc6f15af6205cb369793a8f4282a.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b500616265eadc6f15af6205cb369793a8f4282a
 
-### ▶️ 在线视频：[【雷人咖啡】特别节目☕️精彩花絮.mp4](http://175.180.64.199:8083/f37dbf0a1a5acf81fefa83882804f3875f0e31e1)
+### ▶️ 在线视频：[【雷人咖啡】特别节目☕️精彩花絮.mp4](http://112.104.130.80:8063/f37dbf0a1a5acf81fefa83882804f3875f0e31e1)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/f37dbf0a1a5acf81fefa83882804f3875f0e31e1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:f37dbf0a1a5acf81fefa83882804f3875f0e31e1
 
-### ▶️ 在线视频：[军中反习声浪高涨！习近平自爆中国粮荒。胡锡进暗示革命。拜登选中副手，但意外的却是.mp4](http://36.228.242.128:80/a777336b6c7152d689a252cede4e4476ccb0e7cf)
+### ▶️ 在线视频：[军中反习声浪高涨！习近平自爆中国粮荒。胡锡进暗示革命。拜登选中副手，但意外的却是.mp4](http://118.161.105.179:80/a777336b6c7152d689a252cede4e4476ccb0e7cf)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/a777336b6c7152d689a252cede4e4476ccb0e7cf.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:a777336b6c7152d689a252cede4e4476ccb0e7cf
 
@@ -84,35 +84,35 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/0fbc6391e9af1cbf3942ff8a8601a11cc8091d67.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:0fbc6391e9af1cbf3942ff8a8601a11cc8091d67
 
-### ▶️ 在线视频：[乌鲁木齐建方舱医院用维吾尔人做疫苗实验真相传媒.mp4](http://175.180.64.199:8083/62e04186471d713da0d6f74b3262633da77efcf0)
+### ▶️ 在线视频：[乌鲁木齐建方舱医院用维吾尔人做疫苗实验真相传媒.mp4](http://36.228.242.128:80/62e04186471d713da0d6f74b3262633da77efcf0)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/62e04186471d713da0d6f74b3262633da77efcf0.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:62e04186471d713da0d6f74b3262633da77efcf0
 
-### ▶️ 在线视频：[一身冷汗，浪费粮食追究法律责任，大危机已经到了.mp4](http://112.104.130.80:8063/610e1b34fc84d4c816f802845098821270627740)
+### ▶️ 在线视频：[一身冷汗，浪费粮食追究法律责任，大危机已经到了.mp4](http://175.180.64.199:8083/610e1b34fc84d4c816f802845098821270627740)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/610e1b34fc84d4c816f802845098821270627740.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:610e1b34fc84d4c816f802845098821270627740
 
-### ▶️ 在线视频：[被关40小时黎智个人财富翻3倍香港人有情有义感动世界真相传媒.mp4](http://112.104.130.80:8063/969b9679ae018b07af738902b1fbd172366b4a31)
+### ▶️ 在线视频：[被关40小时黎智个人财富翻3倍香港人有情有义感动世界真相传媒.mp4](http://36.228.242.128:80/969b9679ae018b07af738902b1fbd172366b4a31)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/969b9679ae018b07af738902b1fbd172366b4a31.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:969b9679ae018b07af738902b1fbd172366b4a31
 
-### ▶️ 在线视频：[第六集：共业【真相传媒】认清漠视的代价系列影片共六集.mp4](http://118.161.105.179:80/938a26fa0f703f0518b22b16f7f0c7ba8659a780)
+### ▶️ 在线视频：[第六集：共业【真相传媒】认清漠视的代价系列影片共六集.mp4](http://36.228.242.128:80/938a26fa0f703f0518b22b16f7f0c7ba8659a780)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/938a26fa0f703f0518b22b16f7f0c7ba8659a780.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:938a26fa0f703f0518b22b16f7f0c7ba8659a780
 
-### ▶️ 在线视频：[㊙️共军将领吁搁置武统；中印边境战机大增；百辆军车过广东；华为芯片将“绝代”！中概股面临摘牌；中国银行制裁林郑；微博审查：涉警必抓；深圳芜湖食材现病毒；北京河北看海，长江新洪峰新闻拍案惊奇大宇.mp4](http://118.161.105.179:80/b573ff95b7e313953112f59b6498d548cc5cf851)
+### ▶️ 在线视频：[㊙️共军将领吁搁置武统；中印边境战机大增；百辆军车过广东；华为芯片将“绝代”！中概股面临摘牌；中国银行制裁林郑；微博审查：涉警必抓；深圳芜湖食材现病毒；北京河北看海，长江新洪峰新闻拍案惊奇大宇.mp4](http://175.180.64.199:8083/b573ff95b7e313953112f59b6498d548cc5cf851)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b573ff95b7e313953112f59b6498d548cc5cf851.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b573ff95b7e313953112f59b6498d548cc5cf851
 
-### ▶️ 在线视频：[廖远：中南海内斗你死我活李克强处境微妙真相传媒.mp4](http://112.104.130.80:8063/7db8f16e8428b54373cb3e20a9f868eaf0a5c2c7)
+### ▶️ 在线视频：[廖远：中南海内斗你死我活李克强处境微妙真相传媒.mp4](http://175.180.64.199:8083/7db8f16e8428b54373cb3e20a9f868eaf0a5c2c7)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/7db8f16e8428b54373cb3e20a9f868eaf0a5c2c7.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:7db8f16e8428b54373cb3e20a9f868eaf0a5c2c7
 
-### ▶️ 在线视频：[中共军队被令”不能开第一枪”，释放什麽信号？南海和台海局势，哪个更一触即发？美台走在建交的路上唐靖远姚诚热点互动08122020.mp4](http://112.104.130.80:8063/af94a4f0fba37a06486adb9eac8d0c802acbdbeb)
+### ▶️ 在线视频：[中共军队被令”不能开第一枪”，释放什麽信号？南海和台海局势，哪个更一触即发？美台走在建交的路上唐靖远姚诚热点互动08122020.mp4](http://36.228.242.128:80/af94a4f0fba37a06486adb9eac8d0c802acbdbeb)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/af94a4f0fba37a06486adb9eac8d0c802acbdbeb.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:af94a4f0fba37a06486adb9eac8d0c802acbdbeb
 
-### ▶️ 在线视频：[【中国禁闻】8月12日完整版🔥长江上游连续暴雨四川多地洪水滚滚三峡大坝再受考验；中资银行执行美国制裁禁令中共将如何处置；习近平指示显粮荒中共要立法限制百姓饮食；华人支持川普封杀微信.mp4](http://36.228.242.128:80/3099e31db30150448c03e53dc799603fe87aa4fd)
+### ▶️ 在线视频：[【中国禁闻】8月12日完整版🔥长江上游连续暴雨四川多地洪水滚滚三峡大坝再受考验；中资银行执行美国制裁禁令中共将如何处置；习近平指示显粮荒中共要立法限制百姓饮食；华人支持川普封杀微信.mp4](http://112.104.130.80:8063/3099e31db30150448c03e53dc799603fe87aa4fd)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/3099e31db30150448c03e53dc799603fe87aa4fd.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:3099e31db30150448c03e53dc799603fe87aa4fd
 
@@ -124,11 +124,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0e19089b38d2a55e01cbddd5c2dffe81d140b6b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e0e19089b38d2a55e01cbddd5c2dffe81d140b6b
 
-### ▶️ 在线视频：[习近平批示凸显粮荒；中资银行忙着执行美国制裁决定；汽车工业也要内循环（政论天下第213集20200812）天亮时分.mp4](http://112.104.130.80:8063/8874fceeb80e3191c1977ef12225b153f91e3974)
+### ▶️ 在线视频：[习近平批示凸显粮荒；中资银行忙着执行美国制裁决定；汽车工业也要内循环（政论天下第213集20200812）天亮时分.mp4](http://175.180.64.199:8083/8874fceeb80e3191c1977ef12225b153f91e3974)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8874fceeb80e3191c1977ef12225b153f91e3974.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8874fceeb80e3191c1977ef12225b153f91e3974
 
-### ▶️ 在线视频：[UFO真的存在？高级生命真的存在？真相传媒.mp4](http://36.228.242.128:80/ec994e90d8c8ba31fa8acf5037aa9e8f9150b190)
+### ▶️ 在线视频：[UFO真的存在？高级生命真的存在？真相传媒.mp4](http://175.180.64.199:8083/ec994e90d8c8ba31fa8acf5037aa9e8f9150b190)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec994e90d8c8ba31fa8acf5037aa9e8f9150b190.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ec994e90d8c8ba31fa8acf5037aa9e8f9150b190
 
@@ -136,15 +136,15 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fba2cce89e5bd66a1e18ec91919449814c75df44.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fba2cce89e5bd66a1e18ec91919449814c75df44
 
-### ▶️ 在线视频：[公安部副部长失踪老兵上访战时维稳｜经典搞笑合集尽在大陆新闻解毒｜精彩集锦片段回顾14.mp4](http://175.180.64.199:8083/68fad52978806c7249bfd7e3e23f89282d5ed1b9)
+### ▶️ 在线视频：[公安部副部长失踪老兵上访战时维稳｜经典搞笑合集尽在大陆新闻解毒｜精彩集锦片段回顾14.mp4](http://112.104.130.80:8063/68fad52978806c7249bfd7e3e23f89282d5ed1b9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/68fad52978806c7249bfd7e3e23f89282d5ed1b9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:68fad52978806c7249bfd7e3e23f89282d5ed1b9
 
-### ▶️ 在线视频：[压不住三上将，习近平北戴河受挫！外媒起底栗战书香港藏富。黎智英归来！美国大使馆动向神秘.mp4](http://36.228.242.128:80/747ad380f03753245762829ed12544073484e7ab)
+### ▶️ 在线视频：[压不住三上将，习近平北戴河受挫！外媒起底栗战书香港藏富。黎智英归来！美国大使馆动向神秘.mp4](http://112.104.130.80:8063/747ad380f03753245762829ed12544073484e7ab)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/747ad380f03753245762829ed12544073484e7ab.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:747ad380f03753245762829ed12544073484e7ab
 
-### ▶️ 在线视频：[热点：新疆疫情无症状黎智英获保释美驻华使馆删中国真相传媒.mp4](http://118.161.105.179:80/4f07a7fa44afadc7e8c7a2ca518b3ecaac302ca1)
+### ▶️ 在线视频：[热点：新疆疫情无症状黎智英获保释美驻华使馆删中国真相传媒.mp4](http://112.104.130.80:8063/4f07a7fa44afadc7e8c7a2ca518b3ecaac302ca1)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f07a7fa44afadc7e8c7a2ca518b3ecaac302ca1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:4f07a7fa44afadc7e8c7a2ca518b3ecaac302ca1
 
@@ -156,23 +156,23 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/5f5425b8046afc10aeb2b99a3d9ac89630b9ffe6.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:5f5425b8046afc10aeb2b99a3d9ac89630b9ffe6
 
-### ▶️ 在线视频：[加国多伦多民众声援退党吁解体中共真相传媒.mp4](http://36.228.242.128:80/b6af4947762e2392c2fdb0583514341e0a7fec10)
+### ▶️ 在线视频：[加国多伦多民众声援退党吁解体中共真相传媒.mp4](http://112.104.130.80:8063/b6af4947762e2392c2fdb0583514341e0a7fec10)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b6af4947762e2392c2fdb0583514341e0a7fec10.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b6af4947762e2392c2fdb0583514341e0a7fec10
 
-### ▶️ 在线视频：[迫害法轮功为何是中国最大的人权灾难真相传媒.mp4](http://175.180.64.199:8083/32d9342b232eacc9404888c4b1b523e5e29e45e1)
+### ▶️ 在线视频：[迫害法轮功为何是中国最大的人权灾难真相传媒.mp4](http://118.161.105.179:80/32d9342b232eacc9404888c4b1b523e5e29e45e1)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/32d9342b232eacc9404888c4b1b523e5e29e45e1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:32d9342b232eacc9404888c4b1b523e5e29e45e1
 
-### ▶️ 在线视频：[美国国家安全顾问发表声明关注黎智英被捕真相传媒.mp4](http://112.104.130.80:8063/28e61829d5e54fda1a7ce564ce28bde5652bb97e)
+### ▶️ 在线视频：[美国国家安全顾问发表声明关注黎智英被捕真相传媒.mp4](http://118.161.105.179:80/28e61829d5e54fda1a7ce564ce28bde5652bb97e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/28e61829d5e54fda1a7ce564ce28bde5652bb97e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:28e61829d5e54fda1a7ce564ce28bde5652bb97e
 
-### ▶️ 在线视频：[黎智英被捕中共末日疯狂711苹果日报炙手可热真相传媒.mp4](http://112.104.130.80:8063/63361c147979b38324f0744aab37ac22559585a0)
+### ▶️ 在线视频：[黎智英被捕中共末日疯狂711苹果日报炙手可热真相传媒.mp4](http://36.228.242.128:80/63361c147979b38324f0744aab37ac22559585a0)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/63361c147979b38324f0744aab37ac22559585a0.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:63361c147979b38324f0744aab37ac22559585a0
 
-### ▶️ 在线视频：[美抗共政策背後有高人竟然是他真相传媒.mp4](http://112.104.130.80:8063/81a802e354a05d31871d29b6f6f24d8e04676c8e)
+### ▶️ 在线视频：[美抗共政策背後有高人竟然是他真相传媒.mp4](http://36.228.242.128:80/81a802e354a05d31871d29b6f6f24d8e04676c8e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/81a802e354a05d31871d29b6f6f24d8e04676c8e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:81a802e354a05d31871d29b6f6f24d8e04676c8e
 
@@ -180,11 +180,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9faab163b4f60b25f0073e318f308a36ccf720b1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9faab163b4f60b25f0073e318f308a36ccf720b1
 
-### ▶️ 在线视频：[黎智英奇迹！李克强在北戴河遭局？习近平奇招示弱：制裁11美国人，无川普政府成员！（老北京茶馆第358集20200811）.mp4](http://36.228.242.128:80/740adf525d120197f60feeef80810e4ad9cf111c)
+### ▶️ 在线视频：[黎智英奇迹！李克强在北戴河遭局？习近平奇招示弱：制裁11美国人，无川普政府成员！（老北京茶馆第358集20200811）.mp4](http://175.180.64.199:8083/740adf525d120197f60feeef80810e4ad9cf111c)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/740adf525d120197f60feeef80810e4ad9cf111c.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:740adf525d120197f60feeef80810e4ad9cf111c
 
-### ▶️ 在线视频：[黎智英保释，港澳办“严惩不手软”受挫；川普称习不再是朋友，是耻辱；香港制造正式变中国制造，美国驻华使馆删掉中国字样的内里乾坤（江峰漫谈20200811第221期）.mp4](http://36.228.242.128:80/5e4d2cc0f7acab037baef835a5d5c2baa97b2c50)
+### ▶️ 在线视频：[黎智英保释，港澳办“严惩不手软”受挫；川普称习不再是朋友，是耻辱；香港制造正式变中国制造，美国驻华使馆删掉中国字样的内里乾坤（江峰漫谈20200811第221期）.mp4](http://175.180.64.199:8083/5e4d2cc0f7acab037baef835a5d5c2baa97b2c50)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/5e4d2cc0f7acab037baef835a5d5c2baa97b2c50.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:5e4d2cc0f7acab037baef835a5d5c2baa97b2c50
 
@@ -192,43 +192,43 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/0d18a831eb9e784d3e0cda095501d07fb7f671bb.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:0d18a831eb9e784d3e0cda095501d07fb7f671bb
 
-### ▶️ 在线视频：[💥十人吃九人份？中共指示省粮！白宫枪响，特勤局人受伤；美称台湾国家，欲建交？中共给沙特核技术；港大抓捕，雷劈上海东方明珠塔，周庭黎智英天价获保，港火凤凰天象；央视片自曝手机监控新闻拍案惊奇大宇.mp4](http://36.228.242.128:80/83a7529c453778848c9da855621cff89ba8f78a9)
+### ▶️ 在线视频：[💥十人吃九人份？中共指示省粮！白宫枪响，特勤局人受伤；美称台湾国家，欲建交？中共给沙特核技术；港大抓捕，雷劈上海东方明珠塔，周庭黎智英天价获保，港火凤凰天象；央视片自曝手机监控新闻拍案惊奇大宇.mp4](http://118.161.105.179:80/83a7529c453778848c9da855621cff89ba8f78a9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/83a7529c453778848c9da855621cff89ba8f78a9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:83a7529c453778848c9da855621cff89ba8f78a9
 
-### ▶️ 在线视频：[【唐靖远快评】香港大抓捕与北戴河会议密切相关？习近平加速背後的政治逻辑；美中「香港战役」进入单行道热点互动08112020.mp4](http://175.180.64.199:8083/0c80eae98ad84eb323490eb9f2ac36d8f4a698d9)
+### ▶️ 在线视频：[【唐靖远快评】香港大抓捕与北戴河会议密切相关？习近平加速背後的政治逻辑；美中「香港战役」进入单行道热点互动08112020.mp4](http://118.161.105.179:80/0c80eae98ad84eb323490eb9f2ac36d8f4a698d9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/0c80eae98ad84eb323490eb9f2ac36d8f4a698d9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:0c80eae98ad84eb323490eb9f2ac36d8f4a698d9
 
-### ▶️ 在线视频：[美台建交前兆；黎智英周庭被捕；香港民众全力撑苹果；美国要改组联合国，只有民主选举政府才能成为成员国（政论天下第212集20200811）天亮时分.mp4](http://175.180.64.199:8083/ce9de41c3a4639eb11b0907bcd21a59f12a00c94)
+### ▶️ 在线视频：[美台建交前兆；黎智英周庭被捕；香港民众全力撑苹果；美国要改组联合国，只有民主选举政府才能成为成员国（政论天下第212集20200811）天亮时分.mp4](http://112.104.130.80:8063/ce9de41c3a4639eb11b0907bcd21a59f12a00c94)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ce9de41c3a4639eb11b0907bcd21a59f12a00c94.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ce9de41c3a4639eb11b0907bcd21a59f12a00c94
 
-### ▶️ 在线视频：[💥粮荒将至⁉️习近平终於发话了；中共肆意抓人，东方明珠遭雷劈⚡️；港货将标「中国制造」，香港失特殊地位；华融赖小民贪17。88亿，打破所有贪官纪录；封杀微信倒计时，是华人桥梁还是监狱【08。11】.mp4](http://36.228.242.128:80/8027b525c178423484328a6595d9c9dab6dddb84)
+### ▶️ 在线视频：[💥粮荒将至⁉️习近平终於发话了；中共肆意抓人，东方明珠遭雷劈⚡️；港货将标「中国制造」，香港失特殊地位；华融赖小民贪17。88亿，打破所有贪官纪录；封杀微信倒计时，是华人桥梁还是监狱【08。11】.mp4](http://118.161.105.179:80/8027b525c178423484328a6595d9c9dab6dddb84)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8027b525c178423484328a6595d9c9dab6dddb84.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8027b525c178423484328a6595d9c9dab6dddb84
 
-### ▶️ 在线视频：[暗示有大事？美国驻华使馆改徽号删「中国」两字；北戴河会议习近平经历了什麽；三颗苹果惊天下（文昭谈古论今20200811第800期）.mp4](http://112.104.130.80:8063/6e0dfe4b3ff4ec9183e8183249c393a3f8cd7ded)
+### ▶️ 在线视频：[暗示有大事？美国驻华使馆改徽号删「中国」两字；北戴河会议习近平经历了什麽；三颗苹果惊天下（文昭谈古论今20200811第800期）.mp4](http://118.161.105.179:80/6e0dfe4b3ff4ec9183e8183249c393a3f8cd7ded)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e0dfe4b3ff4ec9183e8183249c393a3f8cd7ded.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:6e0dfe4b3ff4ec9183e8183249c393a3f8cd7ded
 
-### ▶️ 在线视频：[闫丽梦博士证明中共封门隔离不能防疫真相传媒.mp4](http://118.161.105.179:80/4f48d743417dc7d1ba7ff15a210c1a67ee60ad6c)
+### ▶️ 在线视频：[闫丽梦博士证明中共封门隔离不能防疫真相传媒.mp4](http://112.104.130.80:8063/4f48d743417dc7d1ba7ff15a210c1a67ee60ad6c)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/4f48d743417dc7d1ba7ff15a210c1a67ee60ad6c.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:4f48d743417dc7d1ba7ff15a210c1a67ee60ad6c
 
-### ▶️ 在线视频：[文昭拿铁严导咖啡馆里看禁片【他们都来了】｜雷人咖啡☕️第二十三集.mp4](http://175.180.64.199:8083/490ee8529c692c36ab7661079ff1f437bb87e2c9)
+### ▶️ 在线视频：[文昭拿铁严导咖啡馆里看禁片【他们都来了】｜雷人咖啡☕️第二十三集.mp4](http://112.104.130.80:8063/490ee8529c692c36ab7661079ff1f437bb87e2c9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/490ee8529c692c36ab7661079ff1f437bb87e2c9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:490ee8529c692c36ab7661079ff1f437bb87e2c9
 
-### ▶️ 在线视频：[习近平贪恋权位，迫不及待发贺电！港人力撑大英雄，爆买他的报纸和股票。西安城墙倒塌.mp4](http://112.104.130.80:8063/849ae3189fbbcbacd55287e2c1f40511ab141d74)
+### ▶️ 在线视频：[习近平贪恋权位，迫不及待发贺电！港人力撑大英雄，爆买他的报纸和股票。西安城墙倒塌.mp4](http://175.180.64.199:8083/849ae3189fbbcbacd55287e2c1f40511ab141d74)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/849ae3189fbbcbacd55287e2c1f40511ab141d74.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:849ae3189fbbcbacd55287e2c1f40511ab141d74
 
-### ▶️ 在线视频：[江峰、文昭甩文睿好几条街，面对这些留言，我内心的真实感受.mp4](http://112.104.130.80:8063/94acfb6d2eb99a5b4ca59d2efebc7e617f19b6b7)
+### ▶️ 在线视频：[江峰、文昭甩文睿好几条街，面对这些留言，我内心的真实感受.mp4](http://175.180.64.199:8083/94acfb6d2eb99a5b4ca59d2efebc7e617f19b6b7)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/94acfb6d2eb99a5b4ca59d2efebc7e617f19b6b7.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:94acfb6d2eb99a5b4ca59d2efebc7e617f19b6b7
 
-### ▶️ 在线视频：[今日热点：雷劈东方明珠哪个妖怪遭劫距大选85天白宫传出枪声真相传媒.mp4](http://36.228.242.128:80/2603b7bafcf449b5b269033416d230007e4a486e)
+### ▶️ 在线视频：[今日热点：雷劈东方明珠哪个妖怪遭劫距大选85天白宫传出枪声真相传媒.mp4](http://112.104.130.80:8063/2603b7bafcf449b5b269033416d230007e4a486e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/2603b7bafcf449b5b269033416d230007e4a486e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:2603b7bafcf449b5b269033416d230007e4a486e
 
@@ -236,7 +236,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/33ea97f6c1076926f7dedecca7339981bfe5e013.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:33ea97f6c1076926f7dedecca7339981bfe5e013
 
-### ▶️ 在线视频：[袁弓夷：潜伏美国的上千中共党员已叛逃真相传媒.mp4](http://36.228.242.128:80/bdba875e8d5664eb4cd83e40e2a57beb4fed25e0)
+### ▶️ 在线视频：[袁弓夷：潜伏美国的上千中共党员已叛逃真相传媒.mp4](http://175.180.64.199:8083/bdba875e8d5664eb4cd83e40e2a57beb4fed25e0)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/bdba875e8d5664eb4cd83e40e2a57beb4fed25e0.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:bdba875e8d5664eb4cd83e40e2a57beb4fed25e0
 
@@ -248,15 +248,15 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b34f7dc8ca973adc07407075a850b60686084368.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b34f7dc8ca973adc07407075a850b60686084368
 
-### ▶️ 在线视频：[白宫紧急状态，川普被特勤带走；黎智英等被捕，港人无惧国安法反抗！美司法部长，揭安提法在美国搞社会主义；解密各国友好协会，背後渗透统战；欧洲出现第二波疫情新闻第一现场.mp4](http://118.161.105.179:80/97dcc6bd79a6c6521e9d90a3424e0ce95c06b3af)
+### ▶️ 在线视频：[白宫紧急状态，川普被特勤带走；黎智英等被捕，港人无惧国安法反抗！美司法部长，揭安提法在美国搞社会主义；解密各国友好协会，背後渗透统战；欧洲出现第二波疫情新闻第一现场.mp4](http://36.228.242.128:80/97dcc6bd79a6c6521e9d90a3424e0ce95c06b3af)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/97dcc6bd79a6c6521e9d90a3424e0ce95c06b3af.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:97dcc6bd79a6c6521e9d90a3424e0ce95c06b3af
 
-### ▶️ 在线视频：[国安法通过後香港首批大抓捕！跟美国制裁对着干？港人力挺黎智英和壹传媒，金钱亦有道义！美台关系提升，中共跳脚无奈横河郑宇硕热点互动08102020.mp4](http://36.228.242.128:80/e50eb01642c0321d3c5e08451cac855ebd90090d)
+### ▶️ 在线视频：[国安法通过後香港首批大抓捕！跟美国制裁对着干？港人力挺黎智英和壹传媒，金钱亦有道义！美台关系提升，中共跳脚无奈横河郑宇硕热点互动08102020.mp4](http://118.161.105.179:80/e50eb01642c0321d3c5e08451cac855ebd90090d)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e50eb01642c0321d3c5e08451cac855ebd90090d.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e50eb01642c0321d3c5e08451cac855ebd90090d
 
-### ▶️ 在线视频：[黎智英被捕，旗下壹传媒股票逆天飞扬，报纸两个小时卖光，人心所向；五眼联盟外长反港版国安法声明；美资银行停11名高官帐户，汇丰、渣打、星展跟进制裁（江峰漫谈20200810第220期）.mp4](http://175.180.64.199:8083/8b8f60184d4061d5e7a707c742ceaf7859806430)
+### ▶️ 在线视频：[黎智英被捕，旗下壹传媒股票逆天飞扬，报纸两个小时卖光，人心所向；五眼联盟外长反港版国安法声明；美资银行停11名高官帐户，汇丰、渣打、星展跟进制裁（江峰漫谈20200810第220期）.mp4](http://118.161.105.179:80/8b8f60184d4061d5e7a707c742ceaf7859806430)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8b8f60184d4061d5e7a707c742ceaf7859806430.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8b8f60184d4061d5e7a707c742ceaf7859806430
 
@@ -268,11 +268,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/75704b4ce606420519a9715cd6f9db40e34d9aea.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:75704b4ce606420519a9715cd6f9db40e34d9aea
 
-### ▶️ 在线视频：[【中国禁闻】8月10日完整版🔥黎智英被捕壹传媒股价暴涨；美卫生部长访台湾传达川普强力支持；美制裁港共官员银行如何选边站？五眼联盟发声明挺香港民主，美反共核心圈扩大！.mp4](http://36.228.242.128:80/6d11c5459b1ffcef586c7725cfa52797ba9a39b8)
+### ▶️ 在线视频：[【中国禁闻】8月10日完整版🔥黎智英被捕壹传媒股价暴涨；美卫生部长访台湾传达川普强力支持；美制裁港共官员银行如何选边站？五眼联盟发声明挺香港民主，美反共核心圈扩大！.mp4](http://175.180.64.199:8083/6d11c5459b1ffcef586c7725cfa52797ba9a39b8)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/6d11c5459b1ffcef586c7725cfa52797ba9a39b8.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:6d11c5459b1ffcef586c7725cfa52797ba9a39b8
 
-### ▶️ 在线视频：[传中印冲突牵出腐败大案中共军车材料造假车身被击穿致士兵死亡真相传媒.mp4](http://112.104.130.80:8063/845cea3d632febb42e3ba68d870524853df48932)
+### ▶️ 在线视频：[传中印冲突牵出腐败大案中共军车材料造假车身被击穿致士兵死亡真相传媒.mp4](http://118.161.105.179:80/845cea3d632febb42e3ba68d870524853df48932)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/845cea3d632febb42e3ba68d870524853df48932.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:845cea3d632febb42e3ba68d870524853df48932
 
@@ -280,11 +280,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/525ff7da661d0fe9fdad2336af535e9b0a4d0244.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:525ff7da661d0fe9fdad2336af535e9b0a4d0244
 
-### ▶️ 在线视频：[黎智英周庭被捕，中共报复制裁美国11人！终极王牌加速到来，被制裁常委除韩正汪洋还有别人（文昭谈古论今20200810第799期）.mp4](http://118.161.105.179:80/01315b77cc322daa6fd9ae10db4276ce0ea4e07b)
+### ▶️ 在线视频：[黎智英周庭被捕，中共报复制裁美国11人！终极王牌加速到来，被制裁常委除韩正汪洋还有别人（文昭谈古论今20200810第799期）.mp4](http://36.228.242.128:80/01315b77cc322daa6fd9ae10db4276ce0ea4e07b)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/01315b77cc322daa6fd9ae10db4276ce0ea4e07b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:01315b77cc322daa6fd9ae10db4276ce0ea4e07b
 
-### ▶️ 在线视频：[北戴河没完，只有一人表忠习近平？公安部长说穿全体伪忠诚。黎智英从容淡定。五眼联盟声明有玄机.mp4](http://118.161.105.179:80/a3c590a35a39e08c0ad984fa7b34eaabb1069f7f)
+### ▶️ 在线视频：[北戴河没完，只有一人表忠习近平？公安部长说穿全体伪忠诚。黎智英从容淡定。五眼联盟声明有玄机.mp4](http://175.180.64.199:8083/a3c590a35a39e08c0ad984fa7b34eaabb1069f7f)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/a3c590a35a39e08c0ad984fa7b34eaabb1069f7f.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:a3c590a35a39e08c0ad984fa7b34eaabb1069f7f
 
@@ -292,23 +292,23 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/0ae62920610ffd40225a627342b3d12d9461c9a5.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:0ae62920610ffd40225a627342b3d12d9461c9a5
 
-### ▶️ 在线视频：[微电影：路遇2020。08。08.mp4](http://112.104.130.80:8063/18901d9b7ff425f43c42b447826d99bfb55df9ec)
+### ▶️ 在线视频：[微电影：路遇2020。08。08.mp4](http://36.228.242.128:80/18901d9b7ff425f43c42b447826d99bfb55df9ec)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/18901d9b7ff425f43c42b447826d99bfb55df9ec.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:18901d9b7ff425f43c42b447826d99bfb55df9ec
 
-### ▶️ 在线视频：[美中国防部长通话火药味很浓真相传媒.mp4](http://112.104.130.80:8063/79a1ffde763777f05cd1ef4e0776e32032577f50)
+### ▶️ 在线视频：[美中国防部长通话火药味很浓真相传媒.mp4](http://118.161.105.179:80/79a1ffde763777f05cd1ef4e0776e32032577f50)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/79a1ffde763777f05cd1ef4e0776e32032577f50.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:79a1ffde763777f05cd1ef4e0776e32032577f50
 
-### ▶️ 在线视频：[新疆发生4。3级地震百姓逃命遭疫情封门真相传媒.mp4](http://112.104.130.80:8063/e43b356b6350aa8398970c7f67604230590769f2)
+### ▶️ 在线视频：[新疆发生4。3级地震百姓逃命遭疫情封门真相传媒.mp4](http://36.228.242.128:80/e43b356b6350aa8398970c7f67604230590769f2)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e43b356b6350aa8398970c7f67604230590769f2.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e43b356b6350aa8398970c7f67604230590769f2
 
-### ▶️ 在线视频：[今日热点：中共病毒未退大陆再爆戈登热与鼠疫美国预明年摘牌违规中企真相传媒.mp4](http://36.228.242.128:80/ad1ee949dfa4d17a5a1773060359ac41abf7721a)
+### ▶️ 在线视频：[今日热点：中共病毒未退大陆再爆戈登热与鼠疫美国预明年摘牌违规中企真相传媒.mp4](http://112.104.130.80:8063/ad1ee949dfa4d17a5a1773060359ac41abf7721a)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad1ee949dfa4d17a5a1773060359ac41abf7721a.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ad1ee949dfa4d17a5a1773060359ac41abf7721a
 
-### ▶️ 在线视频：[川普禁微信直戳中共要害美中用户有何影响真相传媒.mp4](http://112.104.130.80:8063/68d3c13da089d8a43eb020a728806911a70bd44f)
+### ▶️ 在线视频：[川普禁微信直戳中共要害美中用户有何影响真相传媒.mp4](http://118.161.105.179:80/68d3c13da089d8a43eb020a728806911a70bd44f)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/68d3c13da089d8a43eb020a728806911a70bd44f.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:68d3c13da089d8a43eb020a728806911a70bd44f
 
@@ -316,15 +316,15 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/16900cb2490a82ada8aea5bf20a3301bc80a52cb.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:16900cb2490a82ada8aea5bf20a3301bc80a52cb
 
-### ▶️ 在线视频：[中共积极干扰美大选恐川普连任真相传媒.mp4](http://123.204.9.212:80/77288031444e375d88cf6175479a680bc88bb8f3)
+### ▶️ 在线视频：[中共积极干扰美大选恐川普连任真相传媒.mp4](http://112.104.130.80:8063/77288031444e375d88cf6175479a680bc88bb8f3)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/77288031444e375d88cf6175479a680bc88bb8f3.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:77288031444e375d88cf6175479a680bc88bb8f3
 
-### ▶️ 在线视频：[太多不确定性深刻折磨中共，微软又挂起一只靴子，未来一切皆有可能.mp4](http://123.204.9.212:80/8525713152a1259a97442636b4b99cf9196e708a)
+### ▶️ 在线视频：[太多不确定性深刻折磨中共，微软又挂起一只靴子，未来一切皆有可能.mp4](http://112.104.130.80:8063/8525713152a1259a97442636b4b99cf9196e708a)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8525713152a1259a97442636b4b99cf9196e708a.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8525713152a1259a97442636b4b99cf9196e708a
 
-### ▶️ 在线视频：[纽约中领馆疑似在销毁文件他们也在准备撤吗？真相传媒.mp4](http://112.104.130.80:8063/7abf8bcd0aff49ff261845edd2c1dbc5aabdccc9)
+### ▶️ 在线视频：[纽约中领馆疑似在销毁文件他们也在准备撤吗？真相传媒.mp4](http://123.204.9.212:80/7abf8bcd0aff49ff261845edd2c1dbc5aabdccc9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/7abf8bcd0aff49ff261845edd2c1dbc5aabdccc9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:7abf8bcd0aff49ff261845edd2c1dbc5aabdccc9
 
@@ -332,15 +332,15 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ec0a60d411a3927342530dc43c5dea42d0cd9661.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ec0a60d411a3927342530dc43c5dea42d0cd9661
 
-### ▶️ 在线视频：[【Jason快评】南中国海过去近百年的故事；外交部长王毅近期对南海的新表述意味什麽？中共在南海行动的宏观驱动力是什麽？热点互动08092020.mp4](http://175.180.64.199:8083/22ccbc4147478f6f98c09d2a217e664a9a03cfa0)
+### ▶️ 在线视频：[【Jason快评】南中国海过去近百年的故事；外交部长王毅近期对南海的新表述意味什麽？中共在南海行动的宏观驱动力是什麽？热点互动08092020.mp4](http://123.204.9.212:80/22ccbc4147478f6f98c09d2a217e664a9a03cfa0)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/22ccbc4147478f6f98c09d2a217e664a9a03cfa0.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:22ccbc4147478f6f98c09d2a217e664a9a03cfa0
 
-### ▶️ 在线视频：[林郑次子逃离哈佛，中共金库脆断瑞士银行？美卫生部长到达台湾，美青少年控告抖音！（老北京茶馆第357集20200809）.mp4](http://36.228.242.128:80/03648bcb5295bc6b1194dbe9fae0f28df6d4304e)
+### ▶️ 在线视频：[林郑次子逃离哈佛，中共金库脆断瑞士银行？美卫生部长到达台湾，美青少年控告抖音！（老北京茶馆第357集20200809）.mp4](http://123.204.9.212:80/03648bcb5295bc6b1194dbe9fae0f28df6d4304e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/03648bcb5295bc6b1194dbe9fae0f28df6d4304e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:03648bcb5295bc6b1194dbe9fae0f28df6d4304e
 
-### ▶️ 在线视频：[麒麟断芯，微软断供，华为休克；华为的今天就是中共经济的明天，以及解决之道（政论天下第211集20200809）天亮时分.mp4](http://175.180.64.199:8083/2173fc48983eb0f0dabc6393a7487beb21143369)
+### ▶️ 在线视频：[麒麟断芯，微软断供，华为休克；华为的今天就是中共经济的明天，以及解决之道（政论天下第211集20200809）天亮时分.mp4](http://36.228.242.128:80/2173fc48983eb0f0dabc6393a7487beb21143369)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/2173fc48983eb0f0dabc6393a7487beb21143369.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:2173fc48983eb0f0dabc6393a7487beb21143369
 
@@ -348,11 +348,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/679e1ab0828ea3731a92058ab7a23a567c7f7c2c.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:679e1ab0828ea3731a92058ab7a23a567c7f7c2c
 
-### ▶️ 在线视频：[省级模范优秀教师丁晓霞揭中共监狱恐怖酷刑真相传媒.mp4](http://118.161.105.179:80/fc3ef3eed198ee75c54b25e4ebc2ed5991154710)
+### ▶️ 在线视频：[省级模范优秀教师丁晓霞揭中共监狱恐怖酷刑真相传媒.mp4](http://175.180.64.199:8083/fc3ef3eed198ee75c54b25e4ebc2ed5991154710)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc3ef3eed198ee75c54b25e4ebc2ed5991154710.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fc3ef3eed198ee75c54b25e4ebc2ed5991154710
 
-### ▶️ 在线视频：[北戴河看禁片？美国制裁港共！习家军急拜老同志。中国军车遭印军击穿.mp4](http://36.228.242.128:80/a5b96708a65d06d0231bfcfca9c84660bbbfd0dc)
+### ▶️ 在线视频：[北戴河看禁片？美国制裁港共！习家军急拜老同志。中国军车遭印军击穿.mp4](http://123.204.9.212:80/a5b96708a65d06d0231bfcfca9c84660bbbfd0dc)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/a5b96708a65d06d0231bfcfca9c84660bbbfd0dc.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:a5b96708a65d06d0231bfcfca9c84660bbbfd0dc
 
@@ -360,11 +360,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9fc55d8ec571878f7215a5e789fdca540f8684b8.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9fc55d8ec571878f7215a5e789fdca540f8684b8
 
-### ▶️ 在线视频：[【严真点评】美国制裁11名中港官员；禁抖音微信——与中共数字脱钩。.mp4](http://118.161.105.179:80/9f8408e68a40a51c79834b67d33ba359f0504c89)
+### ▶️ 在线视频：[【严真点评】美国制裁11名中港官员；禁抖音微信——与中共数字脱钩。.mp4](http://123.204.9.212:80/9f8408e68a40a51c79834b67d33ba359f0504c89)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9f8408e68a40a51c79834b67d33ba359f0504c89.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9f8408e68a40a51c79834b67d33ba359f0504c89
 
-### ▶️ 在线视频：[胡锡进替党叼盘过猛，踩到军方红线引不满【胡编念经】｜时事小品＿大陆新闻解毒.mp4](http://175.180.64.199:8083/c63d58af34e44590e8f697e2b3bed1dc954c966d)
+### ▶️ 在线视频：[胡锡进替党叼盘过猛，踩到军方红线引不满【胡编念经】｜时事小品＿大陆新闻解毒.mp4](http://123.204.9.212:80/c63d58af34e44590e8f697e2b3bed1dc954c966d)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c63d58af34e44590e8f697e2b3bed1dc954c966d.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c63d58af34e44590e8f697e2b3bed1dc954c966d
 
@@ -372,7 +372,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/46dc61ca00a7e60d3f5c2b3b2c045a4c70067177.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:46dc61ca00a7e60d3f5c2b3b2c045a4c70067177
 
-### ▶️ 在线视频：[外交部大实话664期：中美关系就像一对儿夫妻，妻子打死也不离婚：抖音和微信在美国大选中的“巨大作用”.mp4](http://175.180.64.199:8083/fe16e57c8aa2c2e514e47772c096518336407fd5)
+### ▶️ 在线视频：[外交部大实话664期：中美关系就像一对儿夫妻，妻子打死也不离婚：抖音和微信在美国大选中的“巨大作用”.mp4](http://36.228.242.128:80/fe16e57c8aa2c2e514e47772c096518336407fd5)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fe16e57c8aa2c2e514e47772c096518336407fd5.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fe16e57c8aa2c2e514e47772c096518336407fd5
 
@@ -380,51 +380,51 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/f25f20f8cce19c8a093c0e315865e59b2b6573b1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:f25f20f8cce19c8a093c0e315865e59b2b6573b1
 
-### ▶️ 在线视频：[💥李克强被迫写检讨❗️港官「嘴硬」不怕制裁，林郑儿子哈佛读书受影响？唐娟或面临10年监禁？美神盾舰PK中共「豆腐渣」，战力大比拼❗️战斧导弹上阵，大曝中共软肋；川普航母军演，吓跑辽宁号！【08。08】.mp4](http://112.104.130.80:8063/702bc7ac81816fe3bd57835bdbfea4f1e489fd63)
+### ▶️ 在线视频：[💥李克强被迫写检讨❗️港官「嘴硬」不怕制裁，林郑儿子哈佛读书受影响？唐娟或面临10年监禁？美神盾舰PK中共「豆腐渣」，战力大比拼❗️战斧导弹上阵，大曝中共软肋；川普航母军演，吓跑辽宁号！【08。08】.mp4](http://123.204.9.212:80/702bc7ac81816fe3bd57835bdbfea4f1e489fd63)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/702bc7ac81816fe3bd57835bdbfea4f1e489fd63.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:702bc7ac81816fe3bd57835bdbfea4f1e489fd63
 
-### ▶️ 在线视频：[最新重磅：美国务卿蓬佩奥讨共檄文战前总动员真相传媒.mp4](http://36.228.242.128:80/ad29ae97e299fbd576c1fd87d6e0a6802419e68b)
+### ▶️ 在线视频：[最新重磅：美国务卿蓬佩奥讨共檄文战前总动员真相传媒.mp4](http://118.161.105.179:80/ad29ae97e299fbd576c1fd87d6e0a6802419e68b)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ad29ae97e299fbd576c1fd87d6e0a6802419e68b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ad29ae97e299fbd576c1fd87d6e0a6802419e68b
 
-### ▶️ 在线视频：[中国共产党内部数据分析红朝衰败已沦为革命对象（粤语）｜「透视中国」时事解读【0031】SinoInsider20200808.mp4](http://112.104.130.80:8063/75cbd7c26b67e56a9e95f988e0bf87644bad0780)
+### ▶️ 在线视频：[中国共产党内部数据分析红朝衰败已沦为革命对象（粤语）｜「透视中国」时事解读【0031】SinoInsider20200808.mp4](http://36.228.242.128:80/75cbd7c26b67e56a9e95f988e0bf87644bad0780)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/75cbd7c26b67e56a9e95f988e0bf87644bad0780.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:75cbd7c26b67e56a9e95f988e0bf87644bad0780
 
-### ▶️ 在线视频：[今日热点美国正式禁止微信和抖音，出售给台湾四架先进大型无人驾驶侦察机王毅讲话被指分裂：一边奉陪到底一边避免对抗谷歌下架2500多中国YouTube频道真相传媒.mp4](http://175.180.64.199:8083/c8d1e3e76cf20206389c8f93f5d68dacfb926a41)
+### ▶️ 在线视频：[今日热点美国正式禁止微信和抖音，出售给台湾四架先进大型无人驾驶侦察机王毅讲话被指分裂：一边奉陪到底一边避免对抗谷歌下架2500多中国YouTube频道真相传媒.mp4](http://118.161.105.179:80/c8d1e3e76cf20206389c8f93f5d68dacfb926a41)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c8d1e3e76cf20206389c8f93f5d68dacfb926a41.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c8d1e3e76cf20206389c8f93f5d68dacfb926a41
 
-### ▶️ 在线视频：[中国大陆新布尼亚病毒酿7死具有人传人的风险真相传媒.mp4](http://36.228.242.128:80/451b25b29fca2672f97402fe34614ae15e11aa31)
+### ▶️ 在线视频：[中国大陆新布尼亚病毒酿7死具有人传人的风险真相传媒.mp4](http://123.204.9.212:80/451b25b29fca2672f97402fe34614ae15e11aa31)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/451b25b29fca2672f97402fe34614ae15e11aa31.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:451b25b29fca2672f97402fe34614ae15e11aa31
 
-### ▶️ 在线视频：[今日热点新疆疫情钉死门吐露发地震无处逃11名中港台官员被美国制裁真相传媒.mp4](http://175.180.64.199:8083/6e054cb25117c2a08625e2a959f615e8331dc9fa)
+### ▶️ 在线视频：[今日热点新疆疫情钉死门吐露发地震无处逃11名中港台官员被美国制裁真相传媒.mp4](http://118.161.105.179:80/6e054cb25117c2a08625e2a959f615e8331dc9fa)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/6e054cb25117c2a08625e2a959f615e8331dc9fa.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:6e054cb25117c2a08625e2a959f615e8331dc9fa
 
-### ▶️ 在线视频：[40名中共驻美记者签证将到期或面临驱逐真相传媒.mp4](http://123.204.9.212:80/9e290b2d9dcdd6a0ef5a3bea7364eed9814c9c8d)
+### ▶️ 在线视频：[40名中共驻美记者签证将到期或面临驱逐真相传媒.mp4](http://118.161.105.179:80/9e290b2d9dcdd6a0ef5a3bea7364eed9814c9c8d)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9e290b2d9dcdd6a0ef5a3bea7364eed9814c9c8d.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9e290b2d9dcdd6a0ef5a3bea7364eed9814c9c8d
 
-### ▶️ 在线视频：[美制裁港府，北戴河闹地震；五毛被下令噤声；疫情扰大选川普拜登谁得利？（2020。8。8）｜世界的十字路口唐浩.mp4](http://36.228.242.128:80/b13d8a2396801116267a623175a85e0dbefb90d1)
+### ▶️ 在线视频：[美制裁港府，北戴河闹地震；五毛被下令噤声；疫情扰大选川普拜登谁得利？（2020。8。8）｜世界的十字路口唐浩.mp4](http://118.161.105.179:80/b13d8a2396801116267a623175a85e0dbefb90d1)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b13d8a2396801116267a623175a85e0dbefb90d1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b13d8a2396801116267a623175a85e0dbefb90d1
 
-### ▶️ 在线视频：[中国共产党内部数据分析红朝衰败已沦为革命对象｜「透视中国」时事解读【0030】SinoInsider20200808.mp4](http://175.180.64.199:8083/f27285793a1234df00c22c9c68a83bb3db5fb04d)
+### ▶️ 在线视频：[中国共产党内部数据分析红朝衰败已沦为革命对象｜「透视中国」时事解读【0030】SinoInsider20200808.mp4](http://112.104.130.80:8063/f27285793a1234df00c22c9c68a83bb3db5fb04d)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/f27285793a1234df00c22c9c68a83bb3db5fb04d.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:f27285793a1234df00c22c9c68a83bb3db5fb04d
 
-### ▶️ 在线视频：[大难不死后她的故事被拍成电影真相传媒.mp4](http://118.161.105.179:80/f4e5082cec9a93c0db7df98d6333e8d687044778)
+### ▶️ 在线视频：[大难不死后她的故事被拍成电影真相传媒.mp4](http://36.228.242.128:80/f4e5082cec9a93c0db7df98d6333e8d687044778)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/f4e5082cec9a93c0db7df98d6333e8d687044778.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:f4e5082cec9a93c0db7df98d6333e8d687044778
 
-### ▶️ 在线视频：[美国千万悬赏，纽约中领馆急毁文件；手起刀落，美制裁林郑11高官，禁Tiktok微信；内蒙现黑死病死亡病例，35人被隔离.mp4](http://36.228.242.128:80/e6c48d669e02cf055ae4e2da6296f64a45808a17)
+### ▶️ 在线视频：[美国千万悬赏，纽约中领馆急毁文件；手起刀落，美制裁林郑11高官，禁Tiktok微信；内蒙现黑死病死亡病例，35人被隔离.mp4](http://123.204.9.212:80/e6c48d669e02cf055ae4e2da6296f64a45808a17)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e6c48d669e02cf055ae4e2da6296f64a45808a17.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e6c48d669e02cf055ae4e2da6296f64a45808a17
 
-### ▶️ 在线视频：[美禁微信触动中共防火墙！在美起诉微信案箭在弦上；11名港共高官进入“恶人榜”，美制裁重锤落下，中共无牌可出萧恩杨建利热点互动08072020.mp4](http://36.228.242.128:80/b2640f3524a651780359170f27edb17c4f0a6eae)
+### ▶️ 在线视频：[美禁微信触动中共防火墙！在美起诉微信案箭在弦上；11名港共高官进入“恶人榜”，美制裁重锤落下，中共无牌可出萧恩杨建利热点互动08072020.mp4](http://118.161.105.179:80/b2640f3524a651780359170f27edb17c4f0a6eae)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b2640f3524a651780359170f27edb17c4f0a6eae.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b2640f3524a651780359170f27edb17c4f0a6eae
 
@@ -432,99 +432,99 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/4583ddc8c5815824e87f45a4c597157397dd8508.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:4583ddc8c5815824e87f45a4c597157397dd8508
 
-### ▶️ 在线视频：[香港制裁名单出台！抖音TikTok、微信WeChat禁用！重鎚落下！新词：数字脱钩（江峰漫谈20200807第219期）.mp4](http://112.104.130.80:8063/fca946a058807c19e72ea31c31d26d7f38cf3bb0)
+### ▶️ 在线视频：[香港制裁名单出台！抖音TikTok、微信WeChat禁用！重鎚落下！新词：数字脱钩（江峰漫谈20200807第219期）.mp4](http://175.180.64.199:8083/fca946a058807c19e72ea31c31d26d7f38cf3bb0)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fca946a058807c19e72ea31c31d26d7f38cf3bb0.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fca946a058807c19e72ea31c31d26d7f38cf3bb0
 
-### ▶️ 在线视频：[三峡溃坝模拟片流出有多可怕？真相传媒.mp4](http://123.204.9.212:80/7eb5d152cb98a69d62c0e0f6d203ba647915933a)
+### ▶️ 在线视频：[三峡溃坝模拟片流出有多可怕？真相传媒.mp4](http://112.104.130.80:8063/7eb5d152cb98a69d62c0e0f6d203ba647915933a)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/7eb5d152cb98a69d62c0e0f6d203ba647915933a.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:7eb5d152cb98a69d62c0e0f6d203ba647915933a
 
-### ▶️ 在线视频：[【微视频】中共网际网路出海比「一带一路」更危险？抖音揭开中共出海策略.mp4](http://123.204.9.212:80/fc5c5b8a6256af45ba17d1080ab8deffe1dbf753)
+### ▶️ 在线视频：[【微视频】中共网际网路出海比「一带一路」更危险？抖音揭开中共出海策略.mp4](http://118.161.105.179:80/fc5c5b8a6256af45ba17d1080ab8deffe1dbf753)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc5c5b8a6256af45ba17d1080ab8deffe1dbf753.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fc5c5b8a6256af45ba17d1080ab8deffe1dbf753
 
-### ▶️ 在线视频：[🔥美军在青岛港外扣船？制裁林郑张晓明，禁TikTok和微信，警告摘牌中概股，美一日四连击；美中防长通话透火药味；美高官9日访台；大陆国企减薪，“地摊”再起；美悬赏千万邀举报中共新闻拍案惊奇大宇.mp4](http://36.228.242.128:80/b0a32c5b00aa189a2d6c32282eb24d5e4e7083f5)
+### ▶️ 在线视频：[🔥美军在青岛港外扣船？制裁林郑张晓明，禁TikTok和微信，警告摘牌中概股，美一日四连击；美中防长通话透火药味；美高官9日访台；大陆国企减薪，“地摊”再起；美悬赏千万邀举报中共新闻拍案惊奇大宇.mp4](http://112.104.130.80:8063/b0a32c5b00aa189a2d6c32282eb24d5e4e7083f5)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b0a32c5b00aa189a2d6c32282eb24d5e4e7083f5.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b0a32c5b00aa189a2d6c32282eb24d5e4e7083f5
 
-### ▶️ 在线视频：[【中国禁闻】8月7日完整版🔥美国制裁11名中港高官中共七常委集体「隐身」北戴河会议或已召开王毅回应蓬佩奥新铁幕演说认怂还是变相欺骗不明种子包裹蔓延全球中共生物武器攻击前测试？.mp4](http://118.161.105.179:80/75677f4a177278097a674ea4c9c49073ef1477c2)
+### ▶️ 在线视频：[【中国禁闻】8月7日完整版🔥美国制裁11名中港高官中共七常委集体「隐身」北戴河会议或已召开王毅回应蓬佩奥新铁幕演说认怂还是变相欺骗不明种子包裹蔓延全球中共生物武器攻击前测试？.mp4](http://112.104.130.80:8063/75677f4a177278097a674ea4c9c49073ef1477c2)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/75677f4a177278097a674ea4c9c49073ef1477c2.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:75677f4a177278097a674ea4c9c49073ef1477c2
 
-### ▶️ 在线视频：[💥突发❗️重拳制裁林郑等11人，冻结在美资产；北戴河闹翻天，传习被逼下台；微信抖音45天後川普必封；纽约中领馆爆大规模碎纸，欲毁证据？张玉环竟蒙冤入狱26年！美拟售台4无人机，中共又气炸【08。06】.mp4](http://175.180.64.199:8083/17a9419d12338b7abb17b06ec434062a30240a14)
+### ▶️ 在线视频：[💥突发❗️重拳制裁林郑等11人，冻结在美资产；北戴河闹翻天，传习被逼下台；微信抖音45天後川普必封；纽约中领馆爆大规模碎纸，欲毁证据？张玉环竟蒙冤入狱26年！美拟售台4无人机，中共又气炸【08。06】.mp4](http://36.228.242.128:80/17a9419d12338b7abb17b06ec434062a30240a14)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/17a9419d12338b7abb17b06ec434062a30240a14.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:17a9419d12338b7abb17b06ec434062a30240a14
 
-### ▶️ 在线视频：[央视认为的「上等人」与「下等人」区别，看「新闻联播」是上等人？｜经典搞笑合集尽在大陆新闻解毒｜精彩集锦片段回顾13.mp4](http://112.104.130.80:8063/e0289398b655916524a08f1c960505a8bc77dd0e)
+### ▶️ 在线视频：[央视认为的「上等人」与「下等人」区别，看「新闻联播」是上等人？｜经典搞笑合集尽在大陆新闻解毒｜精彩集锦片段回顾13.mp4](http://36.228.242.128:80/e0289398b655916524a08f1c960505a8bc77dd0e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e0289398b655916524a08f1c960505a8bc77dd0e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e0289398b655916524a08f1c960505a8bc77dd0e
 
-### ▶️ 在线视频：[加国政要为扞卫法轮功人权发声真相传媒.mp4](http://112.104.130.80:8063/540077a3f6caaff4304235021647929613a301c9)
+### ▶️ 在线视频：[加国政要为扞卫法轮功人权发声真相传媒.mp4](http://118.161.105.179:80/540077a3f6caaff4304235021647929613a301c9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/540077a3f6caaff4304235021647929613a301c9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:540077a3f6caaff4304235021647929613a301c9
 
-### ▶️ 在线视频：[美国禁用微信！川普暗助北戴河反习。孟晚舟即将被引渡。世卫再遭土共愚弄.mp4](http://123.204.9.212:80/c32adf60d36aaf953ba215403648896ad88fdcf4)
+### ▶️ 在线视频：[美国禁用微信！川普暗助北戴河反习。孟晚舟即将被引渡。世卫再遭土共愚弄.mp4](http://175.180.64.199:8083/c32adf60d36aaf953ba215403648896ad88fdcf4)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c32adf60d36aaf953ba215403648896ad88fdcf4.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c32adf60d36aaf953ba215403648896ad88fdcf4
 
-### ▶️ 在线视频：[美国开始制裁林郑月娥等11名官员；美台建交概率急升，远大于南海开战；制裁微信和抖音，净网运动与信息层面的中美脱钩（政论天下第210集20200807）天亮时分.mp4](http://118.161.105.179:80/c1de8e535eff6e4b8dbc413baba99d7de72c0315)
+### ▶️ 在线视频：[美国开始制裁林郑月娥等11名官员；美台建交概率急升，远大于南海开战；制裁微信和抖音，净网运动与信息层面的中美脱钩（政论天下第210集20200807）天亮时分.mp4](http://123.204.9.212:80/c1de8e535eff6e4b8dbc413baba99d7de72c0315)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c1de8e535eff6e4b8dbc413baba99d7de72c0315.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c1de8e535eff6e4b8dbc413baba99d7de72c0315
 
-### ▶️ 在线视频：[【中国禁闻】8月6日完整版（字幕）🔥美国五大领域「净网」剔除中国电信和科技公司新疆男模传视频揭被监禁内幕多省公安专项行动煽动全民参与打压法轮功.mp4](http://112.104.130.80:8063/84c8c45fb4fde3be9c5c0a8e7ba614bd2a57210e)
+### ▶️ 在线视频：[【中国禁闻】8月6日完整版（字幕）🔥美国五大领域「净网」剔除中国电信和科技公司新疆男模传视频揭被监禁内幕多省公安专项行动煽动全民参与打压法轮功.mp4](http://118.161.105.179:80/84c8c45fb4fde3be9c5c0a8e7ba614bd2a57210e)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/84c8c45fb4fde3be9c5c0a8e7ba614bd2a57210e.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:84c8c45fb4fde3be9c5c0a8e7ba614bd2a57210e
 
-### ▶️ 在线视频：[王毅批美国称中共和人民血肉相连网民骂爆真相传媒.mp4](http://123.205.228.32:80/4b796af520821968e512497ac53b4a40df439574)
+### ▶️ 在线视频：[王毅批美国称中共和人民血肉相连网民骂爆真相传媒.mp4](http://175.180.64.199:8083/4b796af520821968e512497ac53b4a40df439574)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/4b796af520821968e512497ac53b4a40df439574.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:4b796af520821968e512497ac53b4a40df439574
 
-### ▶️ 在线视频：[武汉医生爆料，疫情死亡至少10倍；纽约中领馆急毁机密；中共战狼为何放软；美卫生部长访台，有何战略；（2020。8。7）｜世界的十字路口唐浩.mp4](http://118.161.105.179:80/21851bc7ca0002a8c2f5fb271636173e9d856f33)
+### ▶️ 在线视频：[武汉医生爆料，疫情死亡至少10倍；纽约中领馆急毁机密；中共战狼为何放软；美卫生部长访台，有何战略；（2020。8。7）｜世界的十字路口唐浩.mp4](http://36.228.242.128:80/21851bc7ca0002a8c2f5fb271636173e9d856f33)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/21851bc7ca0002a8c2f5fb271636173e9d856f33.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:21851bc7ca0002a8c2f5fb271636173e9d856f33
 
-### ▶️ 在线视频：[「剥光衣服当皇帝的小丑」任大炮雷语惹祸真相传媒.mp4](http://36.228.242.128:80/0b006484d05d9a9c2412794957a17c136f594358)
+### ▶️ 在线视频：[「剥光衣服当皇帝的小丑」任大炮雷语惹祸真相传媒.mp4](http://112.104.130.80:8063/0b006484d05d9a9c2412794957a17c136f594358)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/0b006484d05d9a9c2412794957a17c136f594358.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:0b006484d05d9a9c2412794957a17c136f594358
 
-### ▶️ 在线视频：[刘鹤公开羞辱李克强？央视视频火爆流传真相传媒.mp4](http://112.104.130.80:8063/d56d582c0dc77ef015369f41332dd6ec224d2118)
+### ▶️ 在线视频：[刘鹤公开羞辱李克强？央视视频火爆流传真相传媒.mp4](http://175.180.64.199:8083/d56d582c0dc77ef015369f41332dd6ec224d2118)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/d56d582c0dc77ef015369f41332dd6ec224d2118.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:d56d582c0dc77ef015369f41332dd6ec224d2118
 
-### ▶️ 在线视频：[美国政府罕见系列行动揭开中共深藏的罪恶真相传媒.mp4](http://36.228.242.128:80/32629445b9ce822e72657b2e99abe2bb25d4068b)
+### ▶️ 在线视频：[美国政府罕见系列行动揭开中共深藏的罪恶真相传媒.mp4](http://112.104.130.80:8063/32629445b9ce822e72657b2e99abe2bb25d4068b)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/32629445b9ce822e72657b2e99abe2bb25d4068b.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:32629445b9ce822e72657b2e99abe2bb25d4068b
 
-### ▶️ 在线视频：[王毅刚“拒绝脱钩”，胡锡进就呼唤“中美断交”，暴风雨不来都不行了.mp4](http://118.161.105.179:80/07d8e018d31263a15c88d8bb8e2620afbc6a0250)
+### ▶️ 在线视频：[王毅刚“拒绝脱钩”，胡锡进就呼唤“中美断交”，暴风雨不来都不行了.mp4](http://36.228.242.128:80/07d8e018d31263a15c88d8bb8e2620afbc6a0250)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/07d8e018d31263a15c88d8bb8e2620afbc6a0250.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:07d8e018d31263a15c88d8bb8e2620afbc6a0250
 
-### ▶️ 在线视频：[🚨像武肺！蜱虫病毒席卷多省；内蒙再爆鼠疫，1死35隔离；台风暴雨，上海被淹；收购TikTok地雷多；美国净网行动，5领域清共；好莱坞媚共细节；战略重心全转中共，美军：打就要赢新闻拍案惊奇大宇.mp4](http://175.180.64.199:8083/d3b25f8503ff035ac767b42f7891ff8e91986fd6)
+### ▶️ 在线视频：[🚨像武肺！蜱虫病毒席卷多省；内蒙再爆鼠疫，1死35隔离；台风暴雨，上海被淹；收购TikTok地雷多；美国净网行动，5领域清共；好莱坞媚共细节；战略重心全转中共，美军：打就要赢新闻拍案惊奇大宇.mp4](http://112.104.130.80:8063/d3b25f8503ff035ac767b42f7891ff8e91986fd6)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/d3b25f8503ff035ac767b42f7891ff8e91986fd6.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:d3b25f8503ff035ac767b42f7891ff8e91986fd6
 
-### ▶️ 在线视频：[美国卫生部长阿扎尔访台，开啓台湾高阶官员访美大门；蓬培奥称此行深远重要使命：美台共组新世卫组织、台建医疗战略物资产业链（江峰漫谈20200806第218期）.mp4](http://175.180.64.199:8083/8fab1b0e2b2fdcb8767328caf2c75558c72ad6cc)
+### ▶️ 在线视频：[美国卫生部长阿扎尔访台，开啓台湾高阶官员访美大门；蓬培奥称此行深远重要使命：美台共组新世卫组织、台建医疗战略物资产业链（江峰漫谈20200806第218期）.mp4](http://118.161.105.179:80/8fab1b0e2b2fdcb8767328caf2c75558c72ad6cc)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/8fab1b0e2b2fdcb8767328caf2c75558c72ad6cc.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:8fab1b0e2b2fdcb8767328caf2c75558c72ad6cc
 
-### ▶️ 在线视频：[【中国禁闻】8月6日完整版🔥美国五大领域「净网」剔除中国电信和科技公司新疆男模传视频揭被监禁内幕多省公安专项行动煽动全民参与打压法轮功.mp4](http://112.104.130.80:8063/47d7d5808107aa7d9a2e56f3165fbae4943815a9)
+### ▶️ 在线视频：[【中国禁闻】8月6日完整版🔥美国五大领域「净网」剔除中国电信和科技公司新疆男模传视频揭被监禁内幕多省公安专项行动煽动全民参与打压法轮功.mp4](http://123.204.9.212:80/47d7d5808107aa7d9a2e56f3165fbae4943815a9)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/47d7d5808107aa7d9a2e56f3165fbae4943815a9.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:47d7d5808107aa7d9a2e56f3165fbae4943815a9
 
-### ▶️ 在线视频：[俄庆占领海参崴中共卖国知多少真相传媒.mp4](http://118.161.105.179:80/b842eed8124faaf52c53ebce0931cbabd33d1da8)
+### ▶️ 在线视频：[俄庆占领海参崴中共卖国知多少真相传媒.mp4](http://112.104.130.80:8063/b842eed8124faaf52c53ebce0931cbabd33d1da8)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/b842eed8124faaf52c53ebce0931cbabd33d1da8.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:b842eed8124faaf52c53ebce0931cbabd33d1da8
 
-### ▶️ 在线视频：[脸书放弃中国，股价应声上涨；谷歌大扫荡，大删2500个中共频道；美净网行动，五大战线全面脱勾；崔天凯强调合作，王毅服软喊话？美国试射洲际导弹，防长：要战就要赢！黎巴嫩神秘大爆炸内幕！【08。06】.mp4](http://36.228.242.128:80/5d75824abd1573561e674c347ed4b74dfebdfd12)
+### ▶️ 在线视频：[脸书放弃中国，股价应声上涨；谷歌大扫荡，大删2500个中共频道；美净网行动，五大战线全面脱勾；崔天凯强调合作，王毅服软喊话？美国试射洲际导弹，防长：要战就要赢！黎巴嫩神秘大爆炸内幕！【08。06】.mp4](http://112.104.130.80:8063/5d75824abd1573561e674c347ed4b74dfebdfd12)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/5d75824abd1573561e674c347ed4b74dfebdfd12.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:5d75824abd1573561e674c347ed4b74dfebdfd12
 
-### ▶️ 在线视频：[美国「清网」五线总攻，中国科技巨头全体阵亡！瑞士外长警告采取行动，中共权贵财产被冻结？（文昭谈古论今20200806第798期）.mp4](http://175.180.64.199:8083/cf3c5d833f987945d0db771129fba01d04138d68)
+### ▶️ 在线视频：[美国「清网」五线总攻，中国科技巨头全体阵亡！瑞士外长警告采取行动，中共权贵财产被冻结？（文昭谈古论今20200806第798期）.mp4](http://112.104.130.80:8063/cf3c5d833f987945d0db771129fba01d04138d68)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/cf3c5d833f987945d0db771129fba01d04138d68.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:cf3c5d833f987945d0db771129fba01d04138d68
 
-### ▶️ 在线视频：[外交部发言人罕见道出实情【嫖娼与爱国❢下】｜雷人咖啡☕️第二十二集.mp4](http://123.204.9.212:80/f1dfb9f85ad24a4ce179060266379a8983776c64)
+### ▶️ 在线视频：[外交部发言人罕见道出实情【嫖娼与爱国❢下】｜雷人咖啡☕️第二十二集.mp4](http://36.228.242.128:80/f1dfb9f85ad24a4ce179060266379a8983776c64)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/f1dfb9f85ad24a4ce179060266379a8983776c64.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:f1dfb9f85ad24a4ce179060266379a8983776c64
 
@@ -532,7 +532,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/a22145ee5efcbbb57f7516adb50b169e9f3f4ba4.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:a22145ee5efcbbb57f7516adb50b169e9f3f4ba4
 
-### ▶️ 在线视频：[川普封杀海外抖音TikTok？刘鹤戏耍李克强，习李斗白热化！逆淘汰加内循环，人性下架？（老北京茶馆第354集20200803）.mp4](http://123.204.9.212:80/e34db4cad46927173fd413076f44847ec5147a7c)
+### ▶️ 在线视频：[川普封杀海外抖音TikTok？刘鹤戏耍李克强，习李斗白热化！逆淘汰加内循环，人性下架？（老北京茶馆第354集20200803）.mp4](http://175.180.64.199:8083/e34db4cad46927173fd413076f44847ec5147a7c)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/e34db4cad46927173fd413076f44847ec5147a7c.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:e34db4cad46927173fd413076f44847ec5147a7c
 
@@ -548,27 +548,27 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/72fdbfd5f7caab59a44ec4a448cc95b1869fd5f1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:72fdbfd5f7caab59a44ec4a448cc95b1869fd5f1
 
-### ▶️ 在线视频：[【禁闻】禁片《为你而来》第一部：走上天安门.mp4](http://175.180.64.199:8083/26bc87748eac90ef34ac0332ae093f2c8f6dfb1d)
+### ▶️ 在线视频：[【禁闻】禁片《为你而来》第一部：走上天安门.mp4](http://123.204.9.212:80/26bc87748eac90ef34ac0332ae093f2c8f6dfb1d)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/26bc87748eac90ef34ac0332ae093f2c8f6dfb1d.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:26bc87748eac90ef34ac0332ae093f2c8f6dfb1d
 
-### ▶️ 在线视频：[【中国禁闻】7月31日完整版（字幕）🔥医院监控又坏了？武汉护士事件疑点重重引起网民大量关注；悼念台湾首任民选总统李登辉大陆学者盼中国民主化；百年债券检验中共政权合法性想脱手须认中华民国是唯一？.mp4](http://123.204.9.212:80/72d623632b5cc95af95eef46fe9d9aa601b4c551)
+### ▶️ 在线视频：[【中国禁闻】7月31日完整版（字幕）🔥医院监控又坏了？武汉护士事件疑点重重引起网民大量关注；悼念台湾首任民选总统李登辉大陆学者盼中国民主化；百年债券检验中共政权合法性想脱手须认中华民国是唯一？.mp4](http://118.161.105.179:80/72d623632b5cc95af95eef46fe9d9aa601b4c551)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/72d623632b5cc95af95eef46fe9d9aa601b4c551.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:72d623632b5cc95af95eef46fe9d9aa601b4c551
 
-### ▶️ 在线视频：[【禁闻】港版国安法首次伸向海外中共挑战国际社会.mp4](http://123.204.9.212:80/ea7cd9452876fd1f869336bd98997ac973013ae1)
+### ▶️ 在线视频：[【禁闻】港版国安法首次伸向海外中共挑战国际社会.mp4](http://175.180.64.199:8083/ea7cd9452876fd1f869336bd98997ac973013ae1)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/ea7cd9452876fd1f869336bd98997ac973013ae1.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:ea7cd9452876fd1f869336bd98997ac973013ae1
 
-### ▶️ 在线视频：[【禁闻】乌鲁木齐疫情严重传红山体育馆改建成方舱医院制造业加紧撤离三星关闭最後一家中国电脑厂多伦多7族裔集会高喊中共滚出加拿大.mp4](http://123.204.9.212:80/613690116034607c7392ee666ed44d784ddbf7a3)
+### ▶️ 在线视频：[【禁闻】乌鲁木齐疫情严重传红山体育馆改建成方舱医院制造业加紧撤离三星关闭最後一家中国电脑厂多伦多7族裔集会高喊中共滚出加拿大.mp4](http://175.180.64.199:8083/613690116034607c7392ee666ed44d784ddbf7a3)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/613690116034607c7392ee666ed44d784ddbf7a3.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:613690116034607c7392ee666ed44d784ddbf7a3
 
-### ▶️ 在线视频：[《石涛。News》「蓬佩奥“讨共檄文”之日雷电击中自由女神🗽像美国抗议者当众焚烧圣经」北京大雨习近平生日被誉为「21世纪马克思主义」当代马克思之语的「撒旦的代言人」（0208）.mp4](http://36.228.242.128:80/9138db0a1a69d9d92aeed176199e6bc61d941514)
+### ▶️ 在线视频：[《石涛。News》「蓬佩奥“讨共檄文”之日雷电击中自由女神🗽像美国抗议者当众焚烧圣经」北京大雨习近平生日被誉为「21世纪马克思主义」当代马克思之语的「撒旦的代言人」（0208）.mp4](http://123.204.9.212:80/9138db0a1a69d9d92aeed176199e6bc61d941514)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/9138db0a1a69d9d92aeed176199e6bc61d941514.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:9138db0a1a69d9d92aeed176199e6bc61d941514
 
-### ▶️ 在线视频：[【中国禁闻】8月2日完整版🔥蓬佩奥吁全球建立联盟世界各国纷视中共为敌港版国安法首伸向海外中共挑战国际社会Arm中国CEO被解雇拒不离职劫持公司称要中共政府介入禁片《为你而来》：走上天安门.mp4](http://175.180.64.199:8083/fc27979fa2f7d48bfa4f59ad34dc9ff3020d13d7)
+### ▶️ 在线视频：[【中国禁闻】8月2日完整版🔥蓬佩奥吁全球建立联盟世界各国纷视中共为敌港版国安法首伸向海外中共挑战国际社会Arm中国CEO被解雇拒不离职劫持公司称要中共政府介入禁片《为你而来》：走上天安门.mp4](http://123.204.9.212:80/fc27979fa2f7d48bfa4f59ad34dc9ff3020d13d7)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/fc27979fa2f7d48bfa4f59ad34dc9ff3020d13d7.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:fc27979fa2f7d48bfa4f59ad34dc9ff3020d13d7
 
@@ -576,11 +576,11 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/625ee4c9f9db4ee914ab139bce82f866e9b6dd12.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:625ee4c9f9db4ee914ab139bce82f866e9b6dd12
 
-### ▶️ 在线视频：[【禁闻】「Arm中国」CEO被解雇拒不离职劫持公司称要中共政府介入.mp4](http://175.180.64.199:8083/225d01678a99e05dbcda21783e6e800bf72aeace)
+### ▶️ 在线视频：[【禁闻】「Arm中国」CEO被解雇拒不离职劫持公司称要中共政府介入.mp4](http://123.204.9.212:80/225d01678a99e05dbcda21783e6e800bf72aeace)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/225d01678a99e05dbcda21783e6e800bf72aeace.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:225d01678a99e05dbcda21783e6e800bf72aeace
 
-### ▶️ 在线视频：[习近平羞辱李克强；内循环下，中共经济将枯竭而死。美国要禁微信和抖音，中共为何也调查微信（政论天下第207集20200802）天亮时分.mp4](http://175.180.64.199:8083/be78bb599a57f501dd9e38d15270282f530d7784)
+### ▶️ 在线视频：[习近平羞辱李克强；内循环下，中共经济将枯竭而死。美国要禁微信和抖音，中共为何也调查微信（政论天下第207集20200802）天亮时分.mp4](http://123.204.9.212:80/be78bb599a57f501dd9e38d15270282f530d7784)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/be78bb599a57f501dd9e38d15270282f530d7784.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:be78bb599a57f501dd9e38d15270282f530d7784
 
@@ -588,7 +588,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/c945dbee572622e6f88ef0383dda49474bc67970.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:c945dbee572622e6f88ef0383dda49474bc67970
 
-### ▶️ 在线视频：[【微视频】庚子年是未来中共最幸福的一年.mp4](http://175.180.64.199:8083/4bf1a3a9aab1cbf0054b631ac1269a3c2f687d21)
+### ▶️ 在线视频：[【微视频】庚子年是未来中共最幸福的一年.mp4](http://118.161.105.179:80/4bf1a3a9aab1cbf0054b631ac1269a3c2f687d21)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/4bf1a3a9aab1cbf0054b631ac1269a3c2f687d21.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:4bf1a3a9aab1cbf0054b631ac1269a3c2f687d21
 
@@ -596,7 +596,7 @@
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/73349353db6fbb4f684b8ff91c8ee179e8b22ee4.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:73349353db6fbb4f684b8ff91c8ee179e8b22ee4
 
-### ▶️ 在线视频：[有史以来对中共最严厉的国际制裁真相传媒.mp4](http://112.104.130.80:8063/5da39635beda1f442d720ddf0efbf8a0a9ca9929)
+### ▶️ 在线视频：[有史以来对中共最严厉的国际制裁真相传媒.mp4](http://175.180.64.199:8083/5da39635beda1f442d720ddf0efbf8a0a9ca9929)
 
 [【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://is.gd/DAfqYZ) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/5da39635beda1f442d720ddf0efbf8a0a9ca9929.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:5da39635beda1f442d720ddf0efbf8a0a9ca9929
 
