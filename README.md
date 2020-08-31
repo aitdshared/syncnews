@@ -1,11 +1,7 @@
 # 9月1日最新大事内幕局势疫情时刻更新💥 真相=生命❤️ 请速广传📢 请收藏本页短网址 https://git.io/news20
 
-### ▶️ 在线视频：[港版国安法黑手伸向海外，通缉名单含美国公民真相传媒.mp4](http://112.105.221.80:80/34fb7fddf2c36d39c3bbdcbf7d855ca01a6d4149)
 
-[【网必通稳定高速看】](#最最推荐️网必通播放软件自动更新视频边下边看长期有种全自动下载视频) [【文字新闻】](https://github.com/begood0513/goodnews/blob/master/README.md) [【三退平安】](https://bit.ly/32KNuuR) [【本视频BT种子】](https://raw.githubusercontent.com/aitdshared/syncnews/master/34fb7fddf2c36d39c3bbdcbf7d855ca01a6d4149.torrent) 【本视频磁力链接】magnet:?xt=urn:btih:34fb7fddf2c36d39c3bbdcbf7d855ca01a6d4149
-
-
-## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://bit.ly/32KNuuR)
+## [【三退平安】太紧急了❗️❗️❗️ 刘伯温说的瘟疫人类大淘汰已经拉开序幕，武汉疫情迅速发展，尽快点开这里，简单填即得到平安果，無需重复](https://bit.ly/34Qp1a8)
 
 
 ## 【最最推荐❗️】网必通播放软件自动更新视频边下边看长期有种（全自动下载视频）
